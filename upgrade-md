@@ -1,0 +1,122 @@
+#!/bin/bash
+
+
+update_readme() {
+case "$1" in
+	zh-cn|en-us)
+		if [ "$1" = "zh-cn" ]; then
+			echo '## Bing Wallpaper' >README.md
+			DESC='今日图片: &nbsp;'
+		else
+			DESC='Today: '
+		fi
+
+		cat <<EOF>>README.md
+![](${imagebase}&w=1000)${DESC}[${copyright}](${imagebase})
+<br><br/>
+EOF
+;;
+	*)
+		if [ "$1" = "ja-jp" ]; then echo '## Bing Wallpaper' >OTHER.md; DESC='今日の壁紙: &nbsp;'
+		else DESC='Today: '; fi
+
+		cat <<EOF>>OTHER.md
+![](${imagebase}&w=1000)${DESC}[${copyright}](${imagebase})
+<br><br/>
+EOF
+	;;
+	esac
+}
+
+_find_js() {
+JS="json/$1/$(date '+%Y/%m/%d').json"
+while true; do
+	if [ -f "$JS" ]; then
+		break
+	else
+		local name=$((`date '+%d'`-1))
+		JS="json/$1/$(date '+%Y/%m')/$name.json"
+	fi
+done
+}
+
+
+update_archives_md() {
+archives_dir="archives/${end_date:0:4}/${end_date:4:2}"
+[ -d "${archives_dir}" ] || mkdir -p "${archives_dir}"
+DESC="${title}:&nbsp;&ensp;"
+
+if [ ! -f 'mk_archives.lock.status' ]; then
+	if [ "$1" = "zh-cn" ]; then echo '## Bing Wallpaper' >"${archives_dir}/${end_date:6}.cn.md"; fi
+	touch 'mk_archives.lock.status'
+fi
+
+if [ ! -f 'mk_archivesl.jp.lock.status' ]; then
+	if [ "$1" = "ja-jp" ]; then echo '## Bing Wallpaper' >"${archives_dir}/${end_date:6}.global.md"; fi
+	touch 'mk_archives.jp.lock.status'
+fi
+
+case "$1" in
+	zh-cn|en-us)
+		cat <<EOF>>"${archives_dir}/${end_date:6}.cn.md"
+![](${imagebase}&w=1000)${DESC}[${copyright}](${imagebase})
+<br><br/>
+EOF
+	;;
+
+	*)
+		cat <<EOF>>"${archives_dir}/${end_date:6}.global.md"
+![](${imagebase}&w=1000)${DESC}[${copyright}](${imagebase})
+<br><br/>
+EOF
+	;;
+esac
+}
+
+update_archives() {
+
+_start() {
+	local seqn
+	seqn="$(date +%N.%S).tem"
+	cat "$2" | sed -e '/^{$/d' -e '/^}$/d' -e 's/:/=/' -e 's/,$//' -e 's/"//' -e 's/"=/=/' -e 's/=\ "/="/' > $seqn
+	. ./$seqn
+	update_archives_md $1
+	rm $seqn
+	}
+
+for J in $(find json -name '*.json' | sort -r); do
+	local lan
+	lan="${J#json/}"
+	lan="${lan%%/*.json}"
+	[ "$lan" = 'pt-br' ] || _start $lan $J
+done
+
+for p in $(find json -name '*.json' | sort -r | grep 'pt-br')
+do
+	_start pt-br $p
+done
+
+
+local month target
+find archives -xtype l -delete
+find archives -type d -empty -delete
+month="$(ls archives/$(date '+%Y') | grep -E '^[+-]?([0-9]*)\.?[0-9]+' | tail -1)"
+target="$(ls archives/$(date '+%Y')/$month/*global.md | tail -1)"
+ln -srf "$target" "archives/$(date '+%Y')/$month/README.md"
+ln -srf "archives/$(date '+%Y')/$month/README.md" "archives/$(date '+%Y')/README.md"
+#cn_target="$(ls archives/$(date '+%Y')/$month/*cn.md | tail -1)"
+#ln -srf  "${cn_target}" "archives/$(date '+%Y')/README.md"
+
+rm "mk_archives.lock.status" 'mk_archives.jp.lock.status'
+}
+
+
+for i in $(grep 'country =' main.py | sed -e "s/'//g" -e 's|country =||' -e 's| ||g' -e 's/\[//' -e 's/\]//' -e 's/,/\n/g' | tr 'A-Z' 'a-z'); do
+	_find_js $i
+	cat "$JS" | sed -e '/^{$/d' -e '/^}$/d' -e 's/:/=/' -e 's/,$//' -e 's/"//' -e 's/"=/=/' -e 's/=\ "/="/' > $i.tmp
+	. ./$i.tmp
+	update_readme $i
+	rm $i.tmp
+done
+[ ! -d 'archives' ] || rm -rf archives
+update_archives
