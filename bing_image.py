@@ -5,8 +5,6 @@
 import json
 import requests
 
-from datetime import datetime
-
 
 def get_json_data(C):
     url = 'https://global.bing.com/HPImageArchive.aspx?format=js&idx=0&n=1&pid=hp&FORM=BEHPTB&uhd=1&uhdwidth=3840&uhdheight=2160&mkt=' + C
@@ -21,7 +19,6 @@ def get_json_data(C):
     resolutions = 'UHD'
 
     return {
-      'date': datetime.now().strftime('%Y-%m-%d'),
       'sta_date': jsoned['images'][0]['startdate'],
       'end_date': jsoned['images'][0]['enddate'],
       'title': jsoned['images'][0]['title'],
@@ -38,6 +35,12 @@ if __name__ == '__main__':
 
 
 """
+
+from datetime import datetime
+
+'date': datetime.now().strftime('%Y-%m-%d'),
+
+
 resolutions:
 
 [
