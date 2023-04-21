@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ProcidaItaly_JA-JP5458628565_UHD.jpg&w=1000)今日の壁紙: &nbsp;[プローチダ, イタリア カンパニア州 (© Sean Pavone/Shutterstock)](https://www.bing.com/th?id=OHR.ProcidaItaly_JA-JP5458628565_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EarthDayFox_JA-JP5721458397_UHD.jpg&w=1000)今日の壁紙: &nbsp;[チャネル諸島国立公園に住むシマハイイロギツネ, 米国 カリフォルニア州 (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.EarthDayFox_JA-JP5721458397_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.Gevaudan_FR-FR8210514398_UHD.jpg&w=1000)Today: [Saugues et de sa sculpture en bois de la bête du Gevaudan, Haute-Loire (© Gautier Stephane/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.Gevaudan_FR-FR8210514398_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ProcidaItaly_IT-IT5234311599_UHD.jpg&w=1000)Today: [Procida, Campania, Italia (© Sean Pavone/Shutterstock)](https://www.bing.com/th?id=OHR.ProcidaItaly_IT-IT5234311599_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TaiwanYuhina_PT-BR9492619236_UHD.jpg&w=1000)Today: [Yuhina de Taiwan, Área Cênica Nacional de Alishan, em Taiwan (© Staffan Widstrand/Minden Pictures)](https://www.bing.com/th?id=OHR.TaiwanYuhina_PT-BR9492619236_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ProcidaItaly_PT-BR4815511808_UHD.jpg&w=1000)Today: [Prócida, Itália (© Sean Pavone/Shutterstock)](https://www.bing.com/th?id=OHR.ProcidaItaly_PT-BR4815511808_UHD.jpg)
 <br><br/>

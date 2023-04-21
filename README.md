@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ProcidaItaly_ZH-CN7712975930_UHD.jpg&w=1000)今日图片: &nbsp;[普罗奇达岛，意大利 (© Sean Pavone/Shutterstock)](https://www.bing.com/th?id=OHR.ProcidaItaly_ZH-CN7712975930_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EarthDayFox_ZH-CN7926350207_UHD.jpg&w=1000)今日图片: &nbsp;[岛屿灰狐，海峡群岛国家公园，美国加利福尼亚州 (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.EarthDayFox_ZH-CN7926350207_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TaiwanYuhina_EN-US1768443431_UHD.jpg&w=1000)Today: [Taiwan yuhina pair, Alishan National Scenic Area, Taiwan (© Staffan Widstrand/Minden Pictures)](https://www.bing.com/th?id=OHR.TaiwanYuhina_EN-US1768443431_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ProcidaItaly_EN-US6282924427_UHD.jpg&w=1000)Today: [Procida, Italy (© Sean Pavone/Shutterstock)](https://www.bing.com/th?id=OHR.ProcidaItaly_EN-US6282924427_UHD.jpg)
 <br><br/>
