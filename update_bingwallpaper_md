@@ -1,0 +1,41 @@
+#!/bin/bash
+
+
+_pre() {
+		mkdir -pv $1
+		cat <<EOF>$1/bing-wallpaper.md
+## Bing Wallpaper
+EOF
+}
+
+update_readme() {
+#local LAN=${1#json/}
+#LAN=${LAN%%/*}
+local LAN=$1
+local dest=pic/$LAN
+[ -d "$dest" ] || _pre "$dest"
+[ -e "$dest/bing-wallpaper.md" ] || exit 12333333
+
+local Y=${end_date:0:4}
+local M=${end_date:4:2}
+local D=${end_date:6}
+
+if [ -z "$(grep $Y-$M-$D pic/$LAN/bing-wallpaper.md)" ]; then
+
+		cat <<EOF>>$dest/bing-wallpaper.md
+$Y-$M-$D | [${copyright}](${image_url})
+
+EOF
+fi
+}
+
+
+for i in $(grep 'country =' main.py | sed -e "s/'//g" -e 's|country =||' -e 's| ||g' -e 's/\[//' -e 's/\]//' -e 's/,/\n/g' | tr 'A-Z' 'a-z'); do
+
+		for j in `find json/$i -name '*.json' | sort -rV`; do
+				cat "$j" | sed -e '/^{$/d' -e '/^}$/d' -e 's/:/=/' -e 's/,$//' -e 's/"//' -e 's/"=/=/' -e 's/=\ "/="/' > $i.tmp
+				. ./$i.tmp
+				update_readme $i
+				rm $i.tmp -f
+		done
+done
