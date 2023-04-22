@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.EarthDayFox_ZH-CN7926350207_UHD.jpg&w=1000)今日图片: &nbsp;[岛屿灰狐，海峡群岛国家公园，美国加利福尼亚州 (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.EarthDayFox_ZH-CN7926350207_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Honnavaralavenderfields_ZH-CN8054655091_UHD.jpg&w=1000)今日图片: &nbsp;[日出时分薄雾笼罩下的薰衣草田，印度 (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.Honnavaralavenderfields_ZH-CN8054655091_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ProcidaItaly_EN-US6282924427_UHD.jpg&w=1000)Today: [Procida, Italy (© Sean Pavone/Shutterstock)](https://www.bing.com/th?id=OHR.ProcidaItaly_EN-US6282924427_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EarthDayFox_EN-US3922955169_UHD.jpg&w=1000)Today: [Island fox in Channel Islands National Park, California (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.EarthDayFox_EN-US3922955169_UHD.jpg)
 <br><br/>
