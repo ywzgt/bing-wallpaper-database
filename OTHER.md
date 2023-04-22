@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.EarthDayFox_JA-JP5721458397_UHD.jpg&w=1000)今日の壁紙: &nbsp;[チャネル諸島国立公園に住むシマハイイロギツネ, 米国 カリフォルニア州 (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.EarthDayFox_JA-JP5721458397_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Gevaudan_FR-FR8210514398_UHD.jpg&w=1000)Today: [Saugues et de sa sculpture en bois de la bête du Gevaudan, Haute-Loire (© Gautier Stephane/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.Gevaudan_FR-FR8210514398_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EarthDayFox_FR-FR1316341314_UHD.jpg&w=1000)Today: [Renard gris insulaire, archipel Channel Islands, Californie, États-Unis (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.EarthDayFox_FR-FR1316341314_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ProcidaItaly_DE-DE8410608904_UHD.jpg&w=1000)Today: [Procida, Kampanien Italien (© Sean Pavone/Shutterstock)](https://www.bing.com/th?id=OHR.ProcidaItaly_DE-DE8410608904_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EarthDayFox_DE-DE8965516064_UHD.jpg&w=1000)Today: [Insel-Graufuchs im Channel-Islands Nationalpark, Kalifornien, USA (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.EarthDayFox_DE-DE8965516064_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ProcidaItaly_ES-ES3683647900_UHD.jpg&w=1000)Today: [Procida, Italia (© Sean Pavone/Shutterstock)](https://www.bing.com/th?id=OHR.ProcidaItaly_ES-ES3683647900_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EarthDayFox_ES-ES6018405178_UHD.jpg&w=1000)Today: [Zorro isleño en el Parque Nacional de las Islas del Canal, California, EE.UU. (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.EarthDayFox_ES-ES6018405178_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DartmoorNationalPark_EN-GB4196669556_UHD.jpg&w=1000)Today: [Meldon Hill, Dartmoor National Park, Devon (© AWL Images/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.DartmoorNationalPark_EN-GB4196669556_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EarthDayFox_EN-GB4275362878_UHD.jpg&w=1000)Today: [Island fox in Channel Islands National Park, California (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.EarthDayFox_EN-GB4275362878_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ProcidaItaly_IT-IT5234311599_UHD.jpg&w=1000)Today: [Procida, Campania, Italia (© Sean Pavone/Shutterstock)](https://www.bing.com/th?id=OHR.ProcidaItaly_IT-IT5234311599_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EarthDayFox_IT-IT5922500776_UHD.jpg&w=1000)Today: [Urocione del Parco Nazionale delle isole Channel, California, Stati Uniti (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.EarthDayFox_IT-IT5922500776_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ProcidaItaly_PT-BR4815511808_UHD.jpg&w=1000)Today: [Prócida, Itália (© Sean Pavone/Shutterstock)](https://www.bing.com/th?id=OHR.ProcidaItaly_PT-BR4815511808_UHD.jpg)
 <br><br/>
