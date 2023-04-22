@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.EarthDayFox_JA-JP5721458397_UHD.jpg&w=1000)今日の壁紙: &nbsp;[チャネル諸島国立公園に住むシマハイイロギツネ, 米国 カリフォルニア州 (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.EarthDayFox_JA-JP5721458397_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.StuttgartPublicLibrary_JA-JP1364154542_UHD.jpg&w=1000)今日の壁紙: &nbsp;[シュトゥットガルト公共図書館, ドイツ (© Axel Brunst/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.StuttgartPublicLibrary_JA-JP1364154542_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.EarthDayFox_FR-FR1316341314_UHD.jpg&w=1000)Today: [Renard gris insulaire, archipel Channel Islands, Californie, États-Unis (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.EarthDayFox_FR-FR1316341314_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.EarthDayFox_IT-IT5922500776_UHD.jpg&w=1000)Today: [Urocione del Parco Nazionale delle isole Channel, California, Stati Uniti (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.EarthDayFox_IT-IT5922500776_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ProcidaItaly_PT-BR4815511808_UHD.jpg&w=1000)Today: [Prócida, Itália (© Sean Pavone/Shutterstock)](https://www.bing.com/th?id=OHR.ProcidaItaly_PT-BR4815511808_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EarthDayFox_PT-BR4769845045_UHD.jpg&w=1000)Today: [Raposa da ilha no Parque Nacional das Ilhas do Canal, na Califórnia, nos EUA (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.EarthDayFox_PT-BR4769845045_UHD.jpg)
 <br><br/>
