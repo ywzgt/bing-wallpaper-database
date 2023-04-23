@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.StuttgartPublicLibrary_JA-JP1364154542_UHD.jpg&w=1000)今日の壁紙: &nbsp;[シュトゥットガルト公共図書館, ドイツ (© Axel Brunst/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.StuttgartPublicLibrary_JA-JP1364154542_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ThreeWildebeest_JA-JP2908704390_UHD.jpg&w=1000)今日の壁紙: &nbsp;[マサイマラ国立保護区, ケニア (© Matt Polski/Getty Images)](https://www.bing.com/th?id=OHR.ThreeWildebeest_JA-JP2908704390_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.StuttgartPublicLibrary_FR-FR1520907172_UHD.jpg&w=1000)Today: [Bibliothèque municipale de Stuttgart, Allemagne (© Axel Brunst/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.StuttgartPublicLibrary_FR-FR1520907172_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.StuttgartPublicLibrary_IT-IT6419135185_UHD.jpg&w=1000)Today: [Biblioteca civica di Stoccarda, Germania (© Axel Brunst/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.StuttgartPublicLibrary_IT-IT6419135185_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.EarthDayFox_PT-BR4769845045_UHD.jpg&w=1000)Today: [Raposa da ilha no Parque Nacional das Ilhas do Canal, na Califórnia, nos EUA (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.EarthDayFox_PT-BR4769845045_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.StuttgartPublicLibrary_PT-BR4937823800_UHD.jpg&w=1000)Today: [Biblioteca Pública de Stuttgart, na Alemanha  (© Axel Brunst/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.StuttgartPublicLibrary_PT-BR4937823800_UHD.jpg)
 <br><br/>
