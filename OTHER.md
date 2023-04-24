@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ThreeWildebeest_JA-JP2908704390_UHD.jpg&w=1000)今日の壁紙: &nbsp;[マサイマラ国立保護区, ケニア (© Matt Polski/Getty Images)](https://www.bing.com/th?id=OHR.ThreeWildebeest_JA-JP2908704390_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AdelieWPD_JA-JP7318498181_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アデリーペンギン, 南極大陸 (© David Merron Photography/Getty Images)](https://www.bing.com/th?id=OHR.AdelieWPD_JA-JP7318498181_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.FranconianWineCellar_FR-FR1735465864_UHD.jpg&w=1000)Today: [Cave à vin dans la forêt de Bavière, Allemagne (© Andreas Zerndl/Getty Images)](https://www.bing.com/th?id=OHR.FranconianWineCellar_FR-FR1735465864_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.FranconianWineCellar_IT-IT2051034569_UHD.jpg&w=1000)Today: [Cantina nella Foresta Bavarese, Germania (© Andreas Zerndl/Getty Images)](https://www.bing.com/th?id=OHR.FranconianWineCellar_IT-IT2051034569_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.StuttgartPublicLibrary_PT-BR4937823800_UHD.jpg&w=1000)Today: [Biblioteca Pública de Stuttgart, na Alemanha  (© Axel Brunst/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.StuttgartPublicLibrary_PT-BR4937823800_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FranconianWineCellar_PT-BR4973800707_UHD.jpg&w=1000)Today: [Adega da Floresta da Baviera, na Alemanha  (© Andreas Zerndl/Getty Images)](https://www.bing.com/th?id=OHR.FranconianWineCellar_PT-BR4973800707_UHD.jpg)
 <br><br/>
