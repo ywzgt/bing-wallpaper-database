@@ -37,7 +37,7 @@ jobs:
       run: |
         git config user.name 'github-actions'
         git config user.email 'noreply@github.com'
+        echo "Action in [$(date '+%Y-%m-%d %H:%M:%S')]" >> update.log
         git add .
         git commit -m "generated in $(date '+%Y-%m-%d %H:%M')"
-        [ -z "$(git log|head -2|grep github-actions)" ] || echo "$(date '+%Y-%m-%d %H:%M:%S')   `git log|head -1|awk '{print $2}'`" >> update.log
         git push
