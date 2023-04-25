@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AdelieWPD_JA-JP7318498181_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アデリーペンギン, 南極大陸 (© David Merron Photography/Getty Images)](https://www.bing.com/th?id=OHR.AdelieWPD_JA-JP7318498181_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GHOAudubonDay_JA-JP8134912758_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アメリカワシミミズク  (© Michael Morse/Getty Images)](https://www.bing.com/th?id=OHR.GHOAudubonDay_JA-JP8134912758_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AdelieWPD_FR-FR1082449253_UHD.jpg&w=1000)Today: [Manchots Adélie en Antarctique (© David Merron Photography/Getty Images)](https://www.bing.com/th?id=OHR.AdelieWPD_FR-FR1082449253_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.FrecceTricolori_IT-IT2306161494_UHD.jpg&w=1000)Today: [Festa della Liberazione (© Silvio Verrecchia/EyeEm/Getty Images)](https://www.bing.com/th?id=OHR.FrecceTricolori_IT-IT2306161494_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.FranconianWineCellar_PT-BR4973800707_UHD.jpg&w=1000)Today: [Adega da Floresta da Baviera, na Alemanha  (© Andreas Zerndl/Getty Images)](https://www.bing.com/th?id=OHR.FranconianWineCellar_PT-BR4973800707_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AdelieWPD_PT-BR5302212413_UHD.jpg&w=1000)Today: [Pinguins-de-Adélia na Antártica (© David Merron Photography/Getty Images)](https://www.bing.com/th?id=OHR.AdelieWPD_PT-BR5302212413_UHD.jpg)
 <br><br/>
