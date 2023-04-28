@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MariposaGrove_JA-JP1724100743_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ヨセミテ国立公園にあるマリポサグローブ, 米国 カリフォルニア州 (© Orbon Alija/Getty Images)](https://www.bing.com/th?id=OHR.MariposaGrove_JA-JP1724100743_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JTNPMilkyWay_JA-JP0040708702_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ジョシュア・ツリー国立公園, 米国 カリフォルニア州 (© Schroptschop/Getty Images)](https://www.bing.com/th?id=OHR.JTNPMilkyWay_JA-JP0040708702_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MariposaGrove_FR-FR4964975063_UHD.jpg&w=1000)Today: [Forêt de séquoias géants de Mariposa Grove, Yosemite, Californie, États-Unis (© Orbon Alija/Getty Images)](https://www.bing.com/th?id=OHR.MariposaGrove_FR-FR4964975063_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MariposaGrove_IT-IT8703227587_UHD.jpg&w=1000)Today: [Boschetto di Mariposa nel Parco Nazionale dello Yosemite, California (© Orbon Alija/Getty Images)](https://www.bing.com/th?id=OHR.MariposaGrove_IT-IT8703227587_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SouthPadre_PT-BR5387043078_UHD.jpg&w=1000)Today: [Ilha South Padre, Texas, nos EUA (© Jeff R Clow/Getty Images)](https://www.bing.com/th?id=OHR.SouthPadre_PT-BR5387043078_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MariposaGrove_PT-BR5231629704_UHD.jpg&w=1000)Today: [Mariposa Grove no Parque Nacional de Yosemite, Califórnia, nos EUA  (© Orbon Alija/Getty Images)](https://www.bing.com/th?id=OHR.MariposaGrove_PT-BR5231629704_UHD.jpg)
 <br><br/>
