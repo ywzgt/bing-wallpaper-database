@@ -1,15 +1,15 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ExteriorPreservationHall_JA-JP1094294616_UHD.jpg&w=1000)今日の壁紙: &nbsp;[プリザベーション・ホール, 米国 ルイジアナ州 (© Cosmo Condina North America/Alamy)](https://www.bing.com/th?id=OHR.ExteriorPreservationHall_JA-JP1094294616_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KlostersSerneus_JA-JP1346156954_UHD.jpg&w=1000)今日の壁紙: &nbsp;[シルブレッタアルプスと湖, スイス (© Florin Baumann/Getty Images)](https://www.bing.com/th?id=OHR.KlostersSerneus_JA-JP1346156954_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ExteriorPreservationHall_FR-FR8893416037_UHD.jpg&w=1000)Today: [Preservation Hall, Nouvelle-Orléans, Louisiane (© Cosmo Condina North America/Alamy)](https://www.bing.com/th?id=OHR.ExteriorPreservationHall_FR-FR8893416037_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LilyLaborDay_FR-FR3324597226_UHD.jpg&w=1000)Today: [Muguet de mai en fleurs (© shapencolour/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.LilyLaborDay_FR-FR3324597226_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ExteriorPreservationHall_DE-DE8207516768_UHD.jpg&w=1000)Today: [Preservation Hall, New Orleans, Louisiana, USA (© Cosmo Condina North America/Alamy)](https://www.bing.com/th?id=OHR.ExteriorPreservationHall_DE-DE8207516768_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SunflowerBee_DE-DE9415817741_UHD.jpg&w=1000)Today: [Biene im Sonnenblumenfeld bei Fresdorf (© Ralf Hirschberger/dpa-Zentralbild/dpa/Alamy Live News)](https://www.bing.com/th?id=OHR.SunflowerBee_DE-DE9415817741_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ExteriorPreservationHall_ES-ES8232748030_UHD.jpg&w=1000)Today: [Preservation Hall, Nueva Orleans, Luisiana, EE.UU. (© Cosmo Condina North America/Alamy)](https://www.bing.com/th?id=OHR.ExteriorPreservationHall_ES-ES8232748030_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.QuebecCityBridge_ES-ES5046803154_UHD.jpg&w=1000)Today: [Puente de Quebec sobre el bajo río San Lorenzo, Canadá (© Ronald Santerre/Getty Images)](https://www.bing.com/th?id=OHR.QuebecCityBridge_ES-ES5046803154_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ExteriorPreservationHall_EN-GB5783524556_UHD.jpg&w=1000)Today: [Preservation Hall, New Orleans, Louisiana (© Cosmo Condina North America/Alamy)](https://www.bing.com/th?id=OHR.ExteriorPreservationHall_EN-GB5783524556_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.QuebecCityBridge_EN-GB5878837587_UHD.jpg&w=1000)Today: [Quebec Bridge across the lower Saint Lawrence River, Canada (© Ronald Santerre/Getty Images)](https://www.bing.com/th?id=OHR.QuebecCityBridge_EN-GB5878837587_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ExteriorPreservationHall_IT-IT1147958461_UHD.jpg&w=1000)Today: [Preservation Hall, New Orleans, Louisiana, Stati Uniti (© Cosmo Condina North America/Alamy)](https://www.bing.com/th?id=OHR.ExteriorPreservationHall_IT-IT1147958461_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.QuebecCityBridge_IT-IT2390988840_UHD.jpg&w=1000)Today: [Ponte del Quebec sul fiume San Lorenzo, Canada  (© Ronald Santerre/Getty Images)](https://www.bing.com/th?id=OHR.QuebecCityBridge_IT-IT2390988840_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.JTNPMilkyWay_PT-BR5635937343_UHD.jpg&w=1000)Today: [Milky Way over Joshua Tree National Park, California (© Schroptschop/Getty Images)](https://www.bing.com/th?id=OHR.JTNPMilkyWay_PT-BR5635937343_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ExteriorPreservationHall_PT-BR5718704073_UHD.jpg&w=1000)Today: [Preservation Hall, Nova Orleans, Louisiana, nos EUA  (© Cosmo Condina North America/Alamy)](https://www.bing.com/th?id=OHR.ExteriorPreservationHall_PT-BR5718704073_UHD.jpg)
 <br><br/>
