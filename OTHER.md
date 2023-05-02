@@ -1,15 +1,15 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.KlostersSerneus_JA-JP1346156954_UHD.jpg&w=1000)今日の壁紙: &nbsp;[シルブレッタアルプスと湖, スイス (© Florin Baumann/Getty Images)](https://www.bing.com/th?id=OHR.KlostersSerneus_JA-JP1346156954_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Hachijyuhachi2023_JA-JP1581523255_UHD.jpg&w=1000)今日の壁紙: &nbsp;[円形茶畑, 京都府 相楽郡 (© Tuul and Bruno Morandi/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.Hachijyuhachi2023_JA-JP1581523255_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LilyLaborDay_FR-FR3324597226_UHD.jpg&w=1000)Today: [Muguet de mai en fleurs (© shapencolour/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.LilyLaborDay_FR-FR3324597226_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KlostersSerneus_FR-FR8987474545_UHD.jpg&w=1000)Today: [Lacs Jöriseen, massif de Silvretta, Suisse  (© Florin Baumann/Getty Images)](https://www.bing.com/th?id=OHR.KlostersSerneus_FR-FR8987474545_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SunflowerBee_DE-DE9415817741_UHD.jpg&w=1000)Today: [Biene im Sonnenblumenfeld bei Fresdorf (© Ralf Hirschberger/dpa-Zentralbild/dpa/Alamy Live News)](https://www.bing.com/th?id=OHR.SunflowerBee_DE-DE9415817741_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KlostersSerneus_DE-DE9805698061_UHD.jpg&w=1000)Today: [Jöriseen in den Silvretta Alpen, Schweiz (© Florin Baumann/Getty Images)](https://www.bing.com/th?id=OHR.KlostersSerneus_DE-DE9805698061_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.QuebecCityBridge_ES-ES5046803154_UHD.jpg&w=1000)Today: [Puente de Quebec sobre el bajo río San Lorenzo, Canadá (© Ronald Santerre/Getty Images)](https://www.bing.com/th?id=OHR.QuebecCityBridge_ES-ES5046803154_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KlostersSerneus_ES-ES8285488352_UHD.jpg&w=1000)Today: [Lagos Jöriseen en los Alpes de Silvretta, Suiza (© Florin Baumann/Getty Images)](https://www.bing.com/th?id=OHR.KlostersSerneus_ES-ES8285488352_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.QuebecCityBridge_EN-GB5878837587_UHD.jpg&w=1000)Today: [Quebec Bridge across the lower Saint Lawrence River, Canada (© Ronald Santerre/Getty Images)](https://www.bing.com/th?id=OHR.QuebecCityBridge_EN-GB5878837587_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KlostersSerneus_EN-GB0372620771_UHD.jpg&w=1000)Today: [Jöriseen lakes in the Silvretta Alps, Switzerland (© Florin Baumann/Getty Images)](https://www.bing.com/th?id=OHR.KlostersSerneus_EN-GB0372620771_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.QuebecCityBridge_IT-IT2390988840_UHD.jpg&w=1000)Today: [Ponte del Quebec sul fiume San Lorenzo, Canada  (© Ronald Santerre/Getty Images)](https://www.bing.com/th?id=OHR.QuebecCityBridge_IT-IT2390988840_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KlostersSerneus_IT-IT3251495028_UHD.jpg&w=1000)Today: [I laghi di Jöriseen nelle Alpi del Silvretta, Svizzera (© Florin Baumann/Getty Images)](https://www.bing.com/th?id=OHR.KlostersSerneus_IT-IT3251495028_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ExteriorPreservationHall_PT-BR5718704073_UHD.jpg&w=1000)Today: [Preservation Hall, Nova Orleans, Louisiana, nos EUA  (© Cosmo Condina North America/Alamy)](https://www.bing.com/th?id=OHR.ExteriorPreservationHall_PT-BR5718704073_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.QuebecCityBridge_PT-BR5681899847_UHD.jpg&w=1000)Today: [Ponte de Quebec sobre a parte inferior do rio São Lourenço, no Canadá  (© Ronald Santerre/Getty Images)](https://www.bing.com/th?id=OHR.QuebecCityBridge_PT-BR5681899847_UHD.jpg)
 <br><br/>
