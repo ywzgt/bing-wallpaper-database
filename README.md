@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.QuebecCityBridge_ZH-CN9618387961_UHD.jpg&w=1000)今日图片: &nbsp;[横跨圣劳伦斯河下游的魁北克大桥，加拿大 (© Ronald Santerre/Getty Images)](https://www.bing.com/th?id=OHR.QuebecCityBridge_ZH-CN9618387961_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KlostersSerneus_ZH-CN9821473046_UHD.jpg&w=1000)今日图片: &nbsp;[阿尔卑斯山脉锡尔夫雷塔山的乔里森湖，瑞士 (© Florin Baumann/Getty Images)](https://www.bing.com/th?id=OHR.KlostersSerneus_ZH-CN9821473046_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ExteriorPreservationHall_EN-US9095698933_UHD.jpg&w=1000)Today: [Preservation Hall, New Orleans, Louisiana (© Cosmo Condina North America/Alamy)](https://www.bing.com/th?id=OHR.ExteriorPreservationHall_EN-US9095698933_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KoreanBell_EN-US9211069806_UHD.jpg&w=1000)Today: [Korean Bell of Friendship, Los Angeles (© Carlos Marin/Getty Images)](https://www.bing.com/th?id=OHR.KoreanBell_EN-US9211069806_UHD.jpg)
 <br><br/>
