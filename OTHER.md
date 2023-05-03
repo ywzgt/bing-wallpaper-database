@@ -1,15 +1,15 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Hachijyuhachi2023_JA-JP1581523255_UHD.jpg&w=1000)今日の壁紙: &nbsp;[円形茶畑, 京都府 相楽郡 (© Tuul and Bruno Morandi/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.Hachijyuhachi2023_JA-JP1581523255_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Constitution2023_JA-JP2079590135_UHD.jpg&w=1000)今日の壁紙: &nbsp;[国会議事堂, 東京都 千代田区 (© Sean Pavone/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.Constitution2023_JA-JP2079590135_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.KlostersSerneus_FR-FR8987474545_UHD.jpg&w=1000)Today: [Lacs Jöriseen, massif de Silvretta, Suisse  (© Florin Baumann/Getty Images)](https://www.bing.com/th?id=OHR.KlostersSerneus_FR-FR8987474545_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ThreeWildebeest_FR-FR9059959513_UHD.jpg&w=1000)Today: [Gnous dans le Masaï Mara, Kenya (© Matt Polski/Getty Images)](https://www.bing.com/th?id=OHR.ThreeWildebeest_FR-FR9059959513_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.KlostersSerneus_DE-DE9805698061_UHD.jpg&w=1000)Today: [Jöriseen in den Silvretta Alpen, Schweiz (© Florin Baumann/Getty Images)](https://www.bing.com/th?id=OHR.KlostersSerneus_DE-DE9805698061_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ThreeWildebeest_DE-DE0436671164_UHD.jpg&w=1000)Today: [Gnus in der Masai Mara, Kenia (© Matt Polski/Getty Images)](https://www.bing.com/th?id=OHR.ThreeWildebeest_DE-DE0436671164_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.KlostersSerneus_ES-ES8285488352_UHD.jpg&w=1000)Today: [Lagos Jöriseen en los Alpes de Silvretta, Suiza (© Florin Baumann/Getty Images)](https://www.bing.com/th?id=OHR.KlostersSerneus_ES-ES8285488352_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ThreeWildebeest_ES-ES8355065020_UHD.jpg&w=1000)Today: [Ñus en el Maasai Mara, Kenia (© Matt Polski/Getty Images)](https://www.bing.com/th?id=OHR.ThreeWildebeest_ES-ES8355065020_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.KlostersSerneus_EN-GB0372620771_UHD.jpg&w=1000)Today: [Jöriseen lakes in the Silvretta Alps, Switzerland (© Florin Baumann/Getty Images)](https://www.bing.com/th?id=OHR.KlostersSerneus_EN-GB0372620771_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ThreeWildebeest_EN-GB6085832180_UHD.jpg&w=1000)Today: [Wildebeests in the Maasai Mara, Kenya (© Matt Polski/Getty Images)](https://www.bing.com/th?id=OHR.ThreeWildebeest_EN-GB6085832180_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.KlostersSerneus_IT-IT3251495028_UHD.jpg&w=1000)Today: [I laghi di Jöriseen nelle Alpi del Silvretta, Svizzera (© Florin Baumann/Getty Images)](https://www.bing.com/th?id=OHR.KlostersSerneus_IT-IT3251495028_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ThreeWildebeest_IT-IT3805881299_UHD.jpg&w=1000)Today: [Gnu nel Maasai Mara, Kenya (© Matt Polski/Getty Images)](https://www.bing.com/th?id=OHR.ThreeWildebeest_IT-IT3805881299_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.QuebecCityBridge_PT-BR5681899847_UHD.jpg&w=1000)Today: [Ponte de Quebec sobre a parte inferior do rio São Lourenço, no Canadá  (© Ronald Santerre/Getty Images)](https://www.bing.com/th?id=OHR.QuebecCityBridge_PT-BR5681899847_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KlostersSerneus_PT-BR5752952274_UHD.jpg&w=1000)Today: [Lagos Jöriseen nos Alpes Silvretta, na Suíça  (© Florin Baumann/Getty Images)](https://www.bing.com/th?id=OHR.KlostersSerneus_PT-BR5752952274_UHD.jpg)
 <br><br/>

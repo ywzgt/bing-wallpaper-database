@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.KlostersSerneus_ZH-CN9821473046_UHD.jpg&w=1000)今日图片: &nbsp;[阿尔卑斯山脉锡尔夫雷塔山的乔里森湖，瑞士 (© Florin Baumann/Getty Images)](https://www.bing.com/th?id=OHR.KlostersSerneus_ZH-CN9821473046_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ThreeWildebeest_ZH-CN0175563521_UHD.jpg&w=1000)今日图片: &nbsp;[马赛马拉的角马，肯尼亚 (© Matt Polski/Getty Images)](https://www.bing.com/th?id=OHR.ThreeWildebeest_ZH-CN0175563521_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.KoreanBell_EN-US9211069806_UHD.jpg&w=1000)Today: [Korean Bell of Friendship, Los Angeles (© Carlos Marin/Getty Images)](https://www.bing.com/th?id=OHR.KoreanBell_EN-US9211069806_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KlostersSerneus_EN-US9360254697_UHD.jpg&w=1000)Today: [Jöriseen lakes in the Silvretta Alps, Switzerland (© Florin Baumann/Getty Images)](https://www.bing.com/th?id=OHR.KlostersSerneus_EN-US9360254697_UHD.jpg)
 <br><br/>
