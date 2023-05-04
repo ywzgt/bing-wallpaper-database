@@ -1,15 +1,15 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Constitution2023_JA-JP2079590135_UHD.jpg&w=1000)今日の壁紙: &nbsp;[国会議事堂, 東京都 千代田区 (© Sean Pavone/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.Constitution2023_JA-JP2079590135_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RebelBase_JA-JP2351113050_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ティカル国立公園にあるマヤ遺跡, グアテマラ (© THP Creative/Getty Images)](https://www.bing.com/th?id=OHR.RebelBase_JA-JP2351113050_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ThreeWildebeest_FR-FR9059959513_UHD.jpg&w=1000)Today: [Gnous dans le Masaï Mara, Kenya (© Matt Polski/Getty Images)](https://www.bing.com/th?id=OHR.ThreeWildebeest_FR-FR9059959513_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RebelBase_FR-FR9127535893_UHD.jpg&w=1000)Today: [Ruines mayas de Tikal, Guatemala (© THP Creative/Getty Images)](https://www.bing.com/th?id=OHR.RebelBase_FR-FR9127535893_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ThreeWildebeest_DE-DE0436671164_UHD.jpg&w=1000)Today: [Gnus in der Masai Mara, Kenia (© Matt Polski/Getty Images)](https://www.bing.com/th?id=OHR.ThreeWildebeest_DE-DE0436671164_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RebelBase_DE-DE2573028901_UHD.jpg&w=1000)Today: [Maya-Ruinen in Tikal, Guatemala  (© THP Creative/Getty Images)](https://www.bing.com/th?id=OHR.RebelBase_DE-DE2573028901_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ThreeWildebeest_ES-ES8355065020_UHD.jpg&w=1000)Today: [Ñus en el Maasai Mara, Kenia (© Matt Polski/Getty Images)](https://www.bing.com/th?id=OHR.ThreeWildebeest_ES-ES8355065020_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RebelBase_ES-ES8408731929_UHD.jpg&w=1000)Today: [Ruinas mayas de Tikal, Guatemala (© THP Creative/Getty Images)](https://www.bing.com/th?id=OHR.RebelBase_ES-ES8408731929_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ThreeWildebeest_EN-GB6085832180_UHD.jpg&w=1000)Today: [Wildebeests in the Maasai Mara, Kenya (© Matt Polski/Getty Images)](https://www.bing.com/th?id=OHR.ThreeWildebeest_EN-GB6085832180_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RebelBase_EN-GB0256294399_UHD.jpg&w=1000)Today: [Mayan ruins in Tikal, Guatemala (© THP Creative/Getty Images)](https://www.bing.com/th?id=OHR.RebelBase_EN-GB0256294399_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ThreeWildebeest_IT-IT3805881299_UHD.jpg&w=1000)Today: [Gnu nel Maasai Mara, Kenya (© Matt Polski/Getty Images)](https://www.bing.com/th?id=OHR.ThreeWildebeest_IT-IT3805881299_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RebelBase_IT-IT4204234662_UHD.jpg&w=1000)Today: [Rovine Maya nel Tikal, Guatemala (© THP Creative/Getty Images)](https://www.bing.com/th?id=OHR.RebelBase_IT-IT4204234662_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.KlostersSerneus_PT-BR5752952274_UHD.jpg&w=1000)Today: [Lagos Jöriseen nos Alpes Silvretta, na Suíça  (© Florin Baumann/Getty Images)](https://www.bing.com/th?id=OHR.KlostersSerneus_PT-BR5752952274_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ThreeWildebeest_PT-BR5590684985_UHD.jpg&w=1000)Today: [Wildebeests in the Maasai Mara, Kenya (© Matt Polski/Getty Images)](https://www.bing.com/th?id=OHR.ThreeWildebeest_PT-BR5590684985_UHD.jpg)
 <br><br/>
