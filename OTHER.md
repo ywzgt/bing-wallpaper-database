@@ -1,15 +1,15 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.RebelBase_JA-JP2351113050_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ティカル国立公園にあるマヤ遺跡, グアテマラ (© THP Creative/Getty Images)](https://www.bing.com/th?id=OHR.RebelBase_JA-JP2351113050_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChildDay2023_JA-JP5088360063_UHD.jpg&w=1000)今日の壁紙: &nbsp;[風に泳ぐ鯉のぼり (© rai/Adobe Stock)](https://www.bing.com/th?id=OHR.ChildDay2023_JA-JP5088360063_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RebelBase_FR-FR9127535893_UHD.jpg&w=1000)Today: [Ruines mayas de Tikal, Guatemala (© THP Creative/Getty Images)](https://www.bing.com/th?id=OHR.RebelBase_FR-FR9127535893_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Popocatepetl_FR-FR3156820655_UHD.jpg&w=1000)Today: [Église Nuestra Señora de los Remedios, Puebla, Mexique (© Radius Images/Shutterstock)](https://www.bing.com/th?id=OHR.Popocatepetl_FR-FR3156820655_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RebelBase_DE-DE2573028901_UHD.jpg&w=1000)Today: [Maya-Ruinen in Tikal, Guatemala  (© THP Creative/Getty Images)](https://www.bing.com/th?id=OHR.RebelBase_DE-DE2573028901_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Popocatepetl_DE-DE8514604787_UHD.jpg&w=1000)Today: [Church of Nuestra Señora de los Remedios and Popocatépetl, Puebla, Mexico (© Radius Images/Shutterstock)](https://www.bing.com/th?id=OHR.Popocatepetl_DE-DE8514604787_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RebelBase_ES-ES8408731929_UHD.jpg&w=1000)Today: [Ruinas mayas de Tikal, Guatemala (© THP Creative/Getty Images)](https://www.bing.com/th?id=OHR.RebelBase_ES-ES8408731929_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Popocatepetl_ES-ES6274699860_UHD.jpg&w=1000)Today: [Santuario de Nuestra Señora de los Remedios, Puebla, México (© Radius Images/Shutterstock)](https://www.bing.com/th?id=OHR.Popocatepetl_ES-ES6274699860_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RebelBase_EN-GB0256294399_UHD.jpg&w=1000)Today: [Mayan ruins in Tikal, Guatemala (© THP Creative/Getty Images)](https://www.bing.com/th?id=OHR.RebelBase_EN-GB0256294399_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Popocatepetl_EN-GB3272306048_UHD.jpg&w=1000)Today: [Church of Nuestra Señora de los Remedios and Popocatépetl, Puebla, Mexico (© Radius Images/Shutterstock)](https://www.bing.com/th?id=OHR.Popocatepetl_EN-GB3272306048_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RebelBase_IT-IT4204234662_UHD.jpg&w=1000)Today: [Rovine Maya nel Tikal, Guatemala (© THP Creative/Getty Images)](https://www.bing.com/th?id=OHR.RebelBase_IT-IT4204234662_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Popocatepetl_IT-IT2263518716_UHD.jpg&w=1000)Today: [Chiesa di Nuestra Señora de los Remedios, Puebla, Messico (© Radius Images/Shutterstock)](https://www.bing.com/th?id=OHR.Popocatepetl_IT-IT2263518716_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ThreeWildebeest_PT-BR5590684985_UHD.jpg&w=1000)Today: [Wildebeests in the Maasai Mara, Kenya (© Matt Polski/Getty Images)](https://www.bing.com/th?id=OHR.ThreeWildebeest_PT-BR5590684985_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RebelBase_PT-BR6000097788_UHD.jpg&w=1000)Today: [Ruínas maias em Tikal, na Guatemala (© THP Creative/Getty Images)](https://www.bing.com/th?id=OHR.RebelBase_PT-BR6000097788_UHD.jpg)
 <br><br/>
