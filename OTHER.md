@@ -1,15 +1,15 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ChildDay2023_JA-JP5088360063_UHD.jpg&w=1000)今日の壁紙: &nbsp;[風に泳ぐ鯉のぼり (© rai/Adobe Stock)](https://www.bing.com/th?id=OHR.ChildDay2023_JA-JP5088360063_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HwangmaesanAzaleas_JA-JP5660353966_UHD.jpg&w=1000)今日の壁紙: &nbsp;[黄梅山, 韓国 (© Stock for you/Shutterstock)](https://www.bing.com/th?id=OHR.HwangmaesanAzaleas_JA-JP5660353966_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Popocatepetl_FR-FR3156820655_UHD.jpg&w=1000)Today: [Église Nuestra Señora de los Remedios, Puebla, Mexique (© Radius Images/Shutterstock)](https://www.bing.com/th?id=OHR.Popocatepetl_FR-FR3156820655_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HwangmaesanAzaleas_FR-FR3419632015_UHD.jpg&w=1000)Today: [Azalées en fleurs, montagne Hwangmaesan, Corée du Sud (© Stock for you/Shutterstock)](https://www.bing.com/th?id=OHR.HwangmaesanAzaleas_FR-FR3419632015_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Popocatepetl_DE-DE8514604787_UHD.jpg&w=1000)Today: [Church of Nuestra Señora de los Remedios and Popocatépetl, Puebla, Mexico (© Radius Images/Shutterstock)](https://www.bing.com/th?id=OHR.Popocatepetl_DE-DE8514604787_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RheininFlammen_DE-DE8169751630_UHD.jpg&w=1000)Today: [Feuerwerk in Speyer Rheinland-Pfalz (© Janny2/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.RheininFlammen_DE-DE8169751630_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Popocatepetl_ES-ES6274699860_UHD.jpg&w=1000)Today: [Santuario de Nuestra Señora de los Remedios, Puebla, México (© Radius Images/Shutterstock)](https://www.bing.com/th?id=OHR.Popocatepetl_ES-ES6274699860_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HwangmaesanAzaleas_ES-ES6421131514_UHD.jpg&w=1000)Today: [Azaleas reales en flor en la montaña Hwangmaesan, Corea del Sur (© Stock for you/Shutterstock)](https://www.bing.com/th?id=OHR.HwangmaesanAzaleas_ES-ES6421131514_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Popocatepetl_EN-GB3272306048_UHD.jpg&w=1000)Today: [Church of Nuestra Señora de los Remedios and Popocatépetl, Puebla, Mexico (© Radius Images/Shutterstock)](https://www.bing.com/th?id=OHR.Popocatepetl_EN-GB3272306048_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CollegiateChurch_EN-GB2302415888_UHD.jpg&w=1000)Today: [Westminster Abbey Church, England, UK (© IR Stone/Shutterstock)](https://www.bing.com/th?id=OHR.CollegiateChurch_EN-GB2302415888_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Popocatepetl_IT-IT2263518716_UHD.jpg&w=1000)Today: [Chiesa di Nuestra Señora de los Remedios, Puebla, Messico (© Radius Images/Shutterstock)](https://www.bing.com/th?id=OHR.Popocatepetl_IT-IT2263518716_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HwangmaesanAzaleas_IT-IT3245665910_UHD.jpg&w=1000)Today: [Azalee reali in fiore sul monte Hwangmaesan, Corea del Sud (© Stock for you/Shutterstock)](https://www.bing.com/th?id=OHR.HwangmaesanAzaleas_IT-IT3245665910_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RebelBase_PT-BR6000097788_UHD.jpg&w=1000)Today: [Ruínas maias em Tikal, na Guatemala (© THP Creative/Getty Images)](https://www.bing.com/th?id=OHR.RebelBase_PT-BR6000097788_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Popocatepetl_PT-BR1206870374_UHD.jpg&w=1000)Today: [Igreja de Nuestra Señora de los Remedios e Popocatépetl, Puebla, México (© Radius Images/Shutterstock)](https://www.bing.com/th?id=OHR.Popocatepetl_PT-BR1206870374_UHD.jpg)
 <br><br/>
