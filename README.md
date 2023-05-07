@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SealLaughing_ZH-CN5809094643_UHD.jpg&w=1000)今日图片: &nbsp;[海豹幼崽，伦迪岛，英国 (© Henley Spiers/Minden Pictures)](https://www.bing.com/th?id=OHR.SealLaughing_ZH-CN5809094643_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TheChaps_ZH-CN5966508162_UHD.jpg&w=1000)今日图片: &nbsp;[精致拱门，拱门国家公园，犹他州 (© Mark Brodkin Photography/Getty Images)](https://www.bing.com/th?id=OHR.TheChaps_ZH-CN5966508162_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HwangmaesanAzaleas_EN-US0649441292_UHD.jpg&w=1000)Today: [Royal azaleas in bloom on Hwangmaesan Mountain, South Korea (© Stock for you/Shutterstock)](https://www.bing.com/th?id=OHR.HwangmaesanAzaleas_EN-US0649441292_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SealLaughing_EN-US0742497806_UHD.jpg&w=1000)Today: [Gray seal pup, Lundy Island, England (© Henley Spiers/Minden Pictures)](https://www.bing.com/th?id=OHR.SealLaughing_EN-US0742497806_UHD.jpg)
 <br><br/>
