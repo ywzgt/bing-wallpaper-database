@@ -1,15 +1,15 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.HwangmaesanAzaleas_JA-JP5660353966_UHD.jpg&w=1000)今日の壁紙: &nbsp;[黄梅山, 韓国 (© Stock for you/Shutterstock)](https://www.bing.com/th?id=OHR.HwangmaesanAzaleas_JA-JP5660353966_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SealLaughing_JA-JP4326487726_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ランディ島, イギリス イングランド (© Henley Spiers/Minden Pictures)](https://www.bing.com/th?id=OHR.SealLaughing_JA-JP4326487726_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HwangmaesanAzaleas_FR-FR3419632015_UHD.jpg&w=1000)Today: [Azalées en fleurs, montagne Hwangmaesan, Corée du Sud (© Stock for you/Shutterstock)](https://www.bing.com/th?id=OHR.HwangmaesanAzaleas_FR-FR3419632015_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SealLaughing_FR-FR3690246135_UHD.jpg&w=1000)Today: [Bébé phoque, île de Lundy, Angleterre (© Henley Spiers/Minden Pictures)](https://www.bing.com/th?id=OHR.SealLaughing_FR-FR3690246135_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RheininFlammen_DE-DE8169751630_UHD.jpg&w=1000)Today: [Feuerwerk in Speyer Rheinland-Pfalz (© Janny2/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.RheininFlammen_DE-DE8169751630_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SealLaughing_DE-DE9050321655_UHD.jpg&w=1000)Today: [Kegelrobbenwelpen, Lundy Island, England (© Henley Spiers/Minden Pictures)](https://www.bing.com/th?id=OHR.SealLaughing_DE-DE9050321655_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HwangmaesanAzaleas_ES-ES6421131514_UHD.jpg&w=1000)Today: [Azaleas reales en flor en la montaña Hwangmaesan, Corea del Sur (© Stock for you/Shutterstock)](https://www.bing.com/th?id=OHR.HwangmaesanAzaleas_ES-ES6421131514_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OdocoileusVirginianus_ES-ES7304576288_UHD.jpg&w=1000)Today: [Cierva de cola blanca y cervatillo recién nacido, Montana, EE.UU. (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.OdocoileusVirginianus_ES-ES7304576288_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CollegiateChurch_EN-GB2302415888_UHD.jpg&w=1000)Today: [Westminster Abbey Church, England, UK (© IR Stone/Shutterstock)](https://www.bing.com/th?id=OHR.CollegiateChurch_EN-GB2302415888_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SealLaughing_EN-GB5277006835_UHD.jpg&w=1000)Today: [Seal pup, Lundy Island, England (© Henley Spiers/Minden Pictures)](https://www.bing.com/th?id=OHR.SealLaughing_EN-GB5277006835_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HwangmaesanAzaleas_IT-IT3245665910_UHD.jpg&w=1000)Today: [Azalee reali in fiore sul monte Hwangmaesan, Corea del Sud (© Stock for you/Shutterstock)](https://www.bing.com/th?id=OHR.HwangmaesanAzaleas_IT-IT3245665910_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SealLaughing_IT-IT6694983805_UHD.jpg&w=1000)Today: [Cucciolo di foca, isola di Lundy, Inghilterra (© Henley Spiers/Minden Pictures)](https://www.bing.com/th?id=OHR.SealLaughing_IT-IT6694983805_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Popocatepetl_PT-BR1206870374_UHD.jpg&w=1000)Today: [Igreja de Nuestra Señora de los Remedios e Popocatépetl, Puebla, México (© Radius Images/Shutterstock)](https://www.bing.com/th?id=OHR.Popocatepetl_PT-BR1206870374_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HwangmaesanAzaleas_PT-BR1848101696_UHD.jpg&w=1000)Today: [Azáleas reais em flor na montanha Hwangmaesan, Coreia do Sul (© Stock for you/Shutterstock)](https://www.bing.com/th?id=OHR.HwangmaesanAzaleas_PT-BR1848101696_UHD.jpg)
 <br><br/>
