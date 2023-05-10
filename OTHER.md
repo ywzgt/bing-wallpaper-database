@@ -1,15 +1,15 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MorroJable_JA-JP6883832271_UHD.jpg&w=1000)今日の壁紙: &nbsp;[フエルテベントゥラ島, スペイン (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.MorroJable_JA-JP6883832271_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CordouanLighthouse_JA-JP7082673075_UHD.jpg&w=1000)今日の壁紙: &nbsp;[コルドゥアン灯台, フランス シャラント (© FRTimelapse/Getty Images)](https://www.bing.com/th?id=OHR.CordouanLighthouse_JA-JP7082673075_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TheChaps_FR-FR4392259575_UHD.jpg&w=1000)Today: [Delicate Arch, Parc National des Arches, Utah, États-Unis (© Mark Brodkin Photography/Getty Images)](https://www.bing.com/th?id=OHR.TheChaps_FR-FR4392259575_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CordouanLighthouse_FR-FR9014715232_UHD.jpg&w=1000)Today: [Phare de Cordouan, Royan, Charente, France (© FRTimelapse/Getty Images)](https://www.bing.com/th?id=OHR.CordouanLighthouse_FR-FR9014715232_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Atoll_DE-DE0099170564_UHD.jpg&w=1000)Today: [Kauehi-Atoll, Tuamotu-Archipel, Französisch-Polynesien (© WaterFrame/Alamy)](https://www.bing.com/th?id=OHR.Atoll_DE-DE0099170564_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CordouanLighthouse_DE-DE0586160414_UHD.jpg&w=1000)Today: [Leuchtturm von Cordouan, Royan, Charente, Frankreich (© FRTimelapse/Getty Images)](https://www.bing.com/th?id=OHR.CordouanLighthouse_DE-DE0586160414_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Atoll_ES-ES0231561416_UHD.jpg&w=1000)Today: [Atolón Kauehi en el archipiélago Tuamotu de la Polinesia Francesa (© WaterFrame/Alamy)](https://www.bing.com/th?id=OHR.Atoll_ES-ES0231561416_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CordouanLighthouse_ES-ES6838746502_UHD.jpg&w=1000)Today: [Faro de Cordouan, Royan, Charente, Francia (© FRTimelapse/Getty Images)](https://www.bing.com/th?id=OHR.CordouanLighthouse_ES-ES6838746502_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TheYorkshireDales_EN-GB8640579102_UHD.jpg&w=1000)Today: [The Yorkshire Dales, UK (© Jeremy Walker/Getty Images)](https://www.bing.com/th?id=OHR.TheYorkshireDales_EN-GB8640579102_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CordouanLighthouse_EN-GB6417431530_UHD.jpg&w=1000)Today: [Cordouan Lighthouse, Royan, Charente, France (© FRTimelapse/Getty Images)](https://www.bing.com/th?id=OHR.CordouanLighthouse_EN-GB6417431530_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Pompei_IT-IT4615926702_UHD.jpg&w=1000)Today: [Rovine di Pompei, Campania (© Massimo Ripani/Sime/eStock Photo)](https://www.bing.com/th?id=OHR.Pompei_IT-IT4615926702_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CordouanLighthouse_IT-IT6579555278_UHD.jpg&w=1000)Today: [Faro di Cordouan, Royan, Charente, Francia (© FRTimelapse/Getty Images)](https://www.bing.com/th?id=OHR.CordouanLighthouse_IT-IT6579555278_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TheChaps_PT-BR3805944610_UHD.jpg&w=1000)Today: [Delicate Arch, Arches National Park, Utah nos EUA (© Mark Brodkin Photography/Getty Images)](https://www.bing.com/th?id=OHR.TheChaps_PT-BR3805944610_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Atoll_PT-BR4064286054_UHD.jpg&w=1000)Today: [Atol de Kauehi, Arquipélago de Tuamotu, na Polinésia Francesa (© WaterFrame/Alamy)](https://www.bing.com/th?id=OHR.Atoll_PT-BR4064286054_UHD.jpg)
 <br><br/>
