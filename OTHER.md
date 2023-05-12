@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.WildLupine_JA-JP8182170206_UHD.jpg&w=1000)今日の壁紙: &nbsp;[野生のルピナス (© silverjohn/Getty Images Plus)](https://www.bing.com/th?id=OHR.WildLupine_JA-JP8182170206_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SonnyBonoPelicans_JA-JP8385085647_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ソニーボノ・ソルトン湖国立野生生物保護区, 米国 カリフォルニア州 (© David McNew/Getty Images)](https://www.bing.com/th?id=OHR.SonnyBonoPelicans_JA-JP8385085647_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.WildLupine_FR-FR0066475130_UHD.jpg&w=1000)Today: [Lupin sauvage violet et bleu (© silverjohn/Getty Images Plus)](https://www.bing.com/th?id=OHR.WildLupine_FR-FR0066475130_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.WildLupine_IT-IT7783064723_UHD.jpg&w=1000)Today: [Lupino selvatico viola e blu (© silverjohn/Getty Images Plus)](https://www.bing.com/th?id=OHR.WildLupine_IT-IT7783064723_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.FootballField_PT-BR4517916371_UHD.jpg&w=1000)Today: [Henningsvær Stadium, Norway (© Morten Falch Sortland/Getty Images)](https://www.bing.com/th?id=OHR.FootballField_PT-BR4517916371_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WildLupine_PT-BR4776568888_UHD.jpg&w=1000)Today: [Lupina selvagem em roxo e azul (© silverjohn/Getty Images Plus)](https://www.bing.com/th?id=OHR.WildLupine_PT-BR4776568888_UHD.jpg)
 <br><br/>
