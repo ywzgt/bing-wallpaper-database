@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SonnyBonoPelicans_JA-JP8385085647_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ソニーボノ・ソルトン湖国立野生生物保護区, 米国 カリフォルニア州 (© David McNew/Getty Images)](https://www.bing.com/th?id=OHR.SonnyBonoPelicans_JA-JP8385085647_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OdocoileusVirginianus_JA-JP8573295409_UHD.jpg&w=1000)今日の壁紙: &nbsp;[オジロジカの母子, 米国 モンタナ州 (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.OdocoileusVirginianus_JA-JP8573295409_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SonnyBonoPelicans_FR-FR4244110139_UHD.jpg&w=1000)Today: [Réserve naturelle nationale de Sonny Bono Salton Sea, Californie (© David McNew/Getty Images)](https://www.bing.com/th?id=OHR.SonnyBonoPelicans_FR-FR4244110139_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SonnyBonoPelicans_IT-IT7971350601_UHD.jpg&w=1000)Today: [Pellicani al Sonny Bono Salton Sea National Wildlife Refuge, California (© David McNew/Getty Images)](https://www.bing.com/th?id=OHR.SonnyBonoPelicans_IT-IT7971350601_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WildLupine_PT-BR4776568888_UHD.jpg&w=1000)Today: [Lupina selvagem em roxo e azul (© silverjohn/Getty Images Plus)](https://www.bing.com/th?id=OHR.WildLupine_PT-BR4776568888_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SonnyBonoPelicans_PT-BR5084592128_UHD.jpg&w=1000)Today: [Pelicanos em Sonny Bono Salton Sea National Wildlife Refuge, na Califórnia (© David McNew/Getty Images)](https://www.bing.com/th?id=OHR.SonnyBonoPelicans_PT-BR5084592128_UHD.jpg)
 <br><br/>
