@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AoiMatsuri2023_JA-JP8770594775_UHD.jpg&w=1000)今日の壁紙: &nbsp;[葵祭, 京都 下鴨神社 (© The Asahi Shimbun/Getty Images)](https://www.bing.com/th?id=OHR.AoiMatsuri2023_JA-JP8770594775_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AmericanWetlands_JA-JP9114182507_UHD.jpg&w=1000)今日の壁紙: &nbsp;[オケフェノキー国立野生動物保護区, 米国 ジョージア州 (© Brad Beck/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AmericanWetlands_JA-JP9114182507_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MorroJable_FR-FR4892451097_UHD.jpg&w=1000)Today: [Morro Jable et Playa del Matorral, Fuerteventura, Îles Canaries, Espagne (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.MorroJable_FR-FR4892451097_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MorroJable_IT-IT8361270560_UHD.jpg&w=1000)Today: [Morro Jable e Playa del Matorral, Fuerteventura, Isole Canarie (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.MorroJable_IT-IT8361270560_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.OdocoileusVirginianus_PT-BR5303938011_UHD.jpg&w=1000)Today: [Cervo-de-cauda-branca e cervo recém-nascido, em Montana nos EUA (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.OdocoileusVirginianus_PT-BR5303938011_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MorroJable_PT-BR5522198016_UHD.jpg&w=1000)Today: [Morro Jable e Playa del Matorral, Fuerteventura, Ilhas Canárias, na Espanha (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.MorroJable_PT-BR5522198016_UHD.jpg)
 <br><br/>
