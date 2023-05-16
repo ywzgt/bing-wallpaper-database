@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AmericanWetlands_JA-JP9114182507_UHD.jpg&w=1000)今日の壁紙: &nbsp;[オケフェノキー国立野生動物保護区, 米国 ジョージア州 (© Brad Beck/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AmericanWetlands_JA-JP9114182507_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CormorantBridge_JA-JP9437791090_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ナチュラル・ブリッジ・ステート・ビーチ, 米国 カリフォルニア州 (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CormorantBridge_JA-JP9437791090_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.FestivalCannes_FR-FR5682247225_UHD.jpg&w=1000)Today: [Îles de Lerins, Cannes, Côtes d’Azur (© Hemis/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.FestivalCannes_FR-FR5682247225_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AmericanWetlands_IT-IT8776833543_UHD.jpg&w=1000)Today: [Pagaiare in canoa nell'Okefenokee National Wildlife Refuge, Georgia (© Brad Beck/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AmericanWetlands_IT-IT8776833543_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MorroJable_PT-BR5522198016_UHD.jpg&w=1000)Today: [Morro Jable e Playa del Matorral, Fuerteventura, Ilhas Canárias, na Espanha (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.MorroJable_PT-BR5522198016_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AmericanWetlands_PT-BR5846493559_UHD.jpg&w=1000)Today: [Canoa remando no Refúgio Nacional de Vida Selvagem de Okefenokee (© Brad Beck/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AmericanWetlands_PT-BR5846493559_UHD.jpg)
 <br><br/>
