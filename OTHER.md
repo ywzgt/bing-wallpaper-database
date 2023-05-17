@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.CormorantBridge_JA-JP9437791090_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ナチュラル・ブリッジ・ステート・ビーチ, 米国 カリフォルニア州 (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CormorantBridge_JA-JP9437791090_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MuseoSoumaya_JA-JP0165923558_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ソウマヤ美術館プラザカルソ館, メキシコ メキシコシティ (© Juan Romero/Alamy)](https://www.bing.com/th?id=OHR.MuseoSoumaya_JA-JP0165923558_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CormorantBridge_FR-FR6120224436_UHD.jpg&w=1000)Today: [Plage de Natural Bridges, Santa Cruz, Californie (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CormorantBridge_FR-FR6120224436_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CormorantBridge_IT-IT8917929906_UHD.jpg&w=1000)Today: [Parco statale dei Ponti Naturali a Santa Cruz, California (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CormorantBridge_IT-IT8917929906_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AmericanWetlands_PT-BR5846493559_UHD.jpg&w=1000)Today: [Canoa remando no Refúgio Nacional de Vida Selvagem de Okefenokee (© Brad Beck/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AmericanWetlands_PT-BR5846493559_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CormorantBridge_PT-BR6164830212_UHD.jpg&w=1000)Today: [Natural Bridges State Park em Santa Cruz, na Califórnia nos EUA (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CormorantBridge_PT-BR6164830212_UHD.jpg)
 <br><br/>

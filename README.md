@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.CormorantBridge_ZH-CN7673299694_UHD.jpg&w=1000)今日图片: &nbsp;[加利福尼亚州圣克鲁斯的天然桥州立公园 (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CormorantBridge_ZH-CN7673299694_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SardineBurial_ZH-CN9563091726_UHD.jpg&w=1000)今日图片: &nbsp;[拉曼加，穆尔西亚，西班牙 (© SOMATUSCANI/Getty Images)](https://www.bing.com/th?id=OHR.SardineBurial_ZH-CN9563091726_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg&w=1000)Today: [Canoeing in Okefenokee National Wildlife Refuge, Georgia (© Brad Beck/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CormorantBridge_EN-US1902862286_UHD.jpg&w=1000)Today: [Natural Bridges State Beach in Santa Cruz, California (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CormorantBridge_EN-US1902862286_UHD.jpg)
 <br><br/>
