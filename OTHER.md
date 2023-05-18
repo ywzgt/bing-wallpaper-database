@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.MuseoSoumaya_JA-JP0165923558_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ソウマヤ美術館プラザカルソ館, メキシコ メキシコシティ (© Juan Romero/Alamy)](https://www.bing.com/th?id=OHR.MuseoSoumaya_JA-JP0165923558_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CormorantBridge_FR-FR6120224436_UHD.jpg&w=1000)Today: [Plage de Natural Bridges, Santa Cruz, Californie (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CormorantBridge_FR-FR6120224436_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MuseoSoumaya_FR-FR5141735106_UHD.jpg&w=1000)Today: [Plaza Carso, musée Soumay, ville de Mexico, Mexique (© Juan Romero/Alamy)](https://www.bing.com/th?id=OHR.MuseoSoumaya_FR-FR5141735106_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CormorantBridge_DE-DE4541774493_UHD.jpg&w=1000)Today: [Natural Bridges State Park in Santa Cruz, Kalifornien (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CormorantBridge_DE-DE4541774493_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HoopoeFathersday_DE-DE8234010695_UHD.jpg&w=1000)Today: [Wiedehopf füttert seine Jungen nach der Exkursion, Biosphärenreservat Mittelelbe, Sachsen-Anhalt (© imageBROKER/Martin Demmel/GettyImages)](https://www.bing.com/th?id=OHR.HoopoeFathersday_DE-DE8234010695_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CormorantBridge_ES-ES7546746501_UHD.jpg&w=1000)Today: [Parque Estatal Natural Bridges en Santa Cruz, California, EE.UU. (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CormorantBridge_ES-ES7546746501_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MuseoSoumaya_ES-ES7663567636_UHD.jpg&w=1000)Today: [Plaza Carso, Museo Soumaya, Ciudad de México, México (© Juan Romero/Alamy)](https://www.bing.com/th?id=OHR.MuseoSoumaya_ES-ES7663567636_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CormorantBridge_EN-GB0868004148_UHD.jpg&w=1000)Today: [Natural Bridges State Beach in Santa Cruz, California (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CormorantBridge_EN-GB0868004148_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MuseoSoumaya_EN-GB1309622714_UHD.jpg&w=1000)Today: [Museo Soumaya, Plaza Carso building, Mexico City, Mexico (© Juan Romero/Alamy)](https://www.bing.com/th?id=OHR.MuseoSoumaya_EN-GB1309622714_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CormorantBridge_IT-IT8917929906_UHD.jpg&w=1000)Today: [Parco statale dei Ponti Naturali a Santa Cruz, California (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CormorantBridge_IT-IT8917929906_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MuseoSoumaya_IT-IT1686511851_UHD.jpg&w=1000)Today: [Edificio di Plaza Carso, Museo Soumay, Città del Messico (© Juan Romero/Alamy)](https://www.bing.com/th?id=OHR.MuseoSoumaya_IT-IT1686511851_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CormorantBridge_PT-BR6164830212_UHD.jpg&w=1000)Today: [Natural Bridges State Park em Santa Cruz, na Califórnia nos EUA (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CormorantBridge_PT-BR6164830212_UHD.jpg)
 <br><br/>
