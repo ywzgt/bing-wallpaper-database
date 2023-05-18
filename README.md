@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SardineBurial_ZH-CN9563091726_UHD.jpg&w=1000)今日图片: &nbsp;[拉曼加，穆尔西亚，西班牙 (© SOMATUSCANI/Getty Images)](https://www.bing.com/th?id=OHR.SardineBurial_ZH-CN9563091726_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SumatranRhino_ZH-CN4529744910_UHD.jpg&w=1000)今日图片: &nbsp;[苏门答腊犀牛，韦卡巴斯国家公园，印度尼西亚 (© Cyril Ruoso/Minden Pictures)](https://www.bing.com/th?id=OHR.SumatranRhino_ZH-CN4529744910_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CormorantBridge_EN-US1902862286_UHD.jpg&w=1000)Today: [Natural Bridges State Beach in Santa Cruz, California (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CormorantBridge_EN-US1902862286_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MuseoSoumaya_EN-US2440983924_UHD.jpg&w=1000)Today: [Museo Soumaya, Plaza Carso, Mexico City, Mexico (© Juan Romero/Alamy)](https://www.bing.com/th?id=OHR.MuseoSoumaya_EN-US2440983924_UHD.jpg)
 <br><br/>

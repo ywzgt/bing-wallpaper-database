@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MuseoSoumaya_JA-JP0165923558_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ソウマヤ美術館プラザカルソ館, メキシコ メキシコシティ (© Juan Romero/Alamy)](https://www.bing.com/th?id=OHR.MuseoSoumaya_JA-JP0165923558_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SumatranRhino_JA-JP0144447499_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ウェイカンバス国立公園, インドネシア (© Cyril Ruoso/Minden Pictures)](https://www.bing.com/th?id=OHR.SumatranRhino_JA-JP0144447499_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MuseoSoumaya_FR-FR5141735106_UHD.jpg&w=1000)Today: [Plaza Carso, musée Soumay, ville de Mexico, Mexique (© Juan Romero/Alamy)](https://www.bing.com/th?id=OHR.MuseoSoumaya_FR-FR5141735106_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MuseoSoumaya_IT-IT1686511851_UHD.jpg&w=1000)Today: [Edificio di Plaza Carso, Museo Soumay, Città del Messico (© Juan Romero/Alamy)](https://www.bing.com/th?id=OHR.MuseoSoumaya_IT-IT1686511851_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CormorantBridge_PT-BR6164830212_UHD.jpg&w=1000)Today: [Natural Bridges State Park em Santa Cruz, na Califórnia nos EUA (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CormorantBridge_PT-BR6164830212_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MuseoSoumaya_PT-BR6724252759_UHD.jpg&w=1000)Today: [Museo Soumaya, edifício Plaza Carso, Cidade do México, México (© Juan Romero/Alamy)](https://www.bing.com/th?id=OHR.MuseoSoumaya_PT-BR6724252759_UHD.jpg)
 <br><br/>
