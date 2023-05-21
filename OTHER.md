@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.wheat2023_JA-JP0808192742_UHD.jpg&w=1000)今日の壁紙: &nbsp;[露が輝く麦の穂 (© mariko satou/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.wheat2023_JA-JP0808192742_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BiodiverseCostaRica_JA-JP1077467676_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アレナル火山, コスタリカ (© Kevin Wells/Getty Images)](https://www.bing.com/th?id=OHR.BiodiverseCostaRica_JA-JP1077467676_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PontdArcole_FR-FR5695342336_UHD.jpg&w=1000)Today: [Pont d’Arcole sur la Seine, Paris, France (© StockByM/Getty Images)](https://www.bing.com/th?id=OHR.PontdArcole_FR-FR5695342336_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PontdArcole_IT-IT0136817375_UHD.jpg&w=1000)Today: [Fiume Senna, Parigi, Francia (© StockByM/Getty Images)](https://www.bing.com/th?id=OHR.PontdArcole_IT-IT0136817375_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.EuropeanHoneybee_PT-BR4239657418_UHD.jpg&w=1000)Today: [Abelhas européias em Sheffield, na Inglaterra (© Deborah Vernon/Alamy)](https://www.bing.com/th?id=OHR.EuropeanHoneybee_PT-BR4239657418_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PontdArcole_PT-BR4920312632_UHD.jpg&w=1000)Today: [Rio Sena, em Paris, na França (© StockByM/Getty Images)](https://www.bing.com/th?id=OHR.PontdArcole_PT-BR4920312632_UHD.jpg)
 <br><br/>
