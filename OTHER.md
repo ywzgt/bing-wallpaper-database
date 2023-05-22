@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BiodiverseCostaRica_JA-JP1077467676_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アレナル火山, コスタリカ (© Kevin Wells/Getty Images)](https://www.bing.com/th?id=OHR.BiodiverseCostaRica_JA-JP1077467676_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WesternBoxTurtle_JA-JP1310734552_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ニシキハコガメ (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.WesternBoxTurtle_JA-JP1310734552_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BiodiverseCostaRica_FR-FR6284486896_UHD.jpg&w=1000)Today: [Volcan Arenal, Monteverde, Costa Rica (© Kevin Wells/Getty Images)](https://www.bing.com/th?id=OHR.BiodiverseCostaRica_FR-FR6284486896_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BiodiverseCostaRica_IT-IT0869035242_UHD.jpg&w=1000)Today: [Vulcano Arenal, Monteverde, Costa Rica  (© Kevin Wells/Getty Images)](https://www.bing.com/th?id=OHR.BiodiverseCostaRica_IT-IT0869035242_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PontdArcole_PT-BR4920312632_UHD.jpg&w=1000)Today: [Rio Sena, em Paris, na França (© StockByM/Getty Images)](https://www.bing.com/th?id=OHR.PontdArcole_PT-BR4920312632_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BiodiverseCostaRica_PT-BR5409439931_UHD.jpg&w=1000)Today: [Vulcão Arenal, Monteverde, na Costa Rica (© Kevin Wells/Getty Images)](https://www.bing.com/th?id=OHR.BiodiverseCostaRica_PT-BR5409439931_UHD.jpg)
 <br><br/>
