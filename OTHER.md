@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.WesternBoxTurtle_JA-JP1310734552_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ニシキハコガメ (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.WesternBoxTurtle_JA-JP1310734552_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BiodiverseCostaRica_FR-FR6284486896_UHD.jpg&w=1000)Today: [Volcan Arenal, Monteverde, Costa Rica (© Kevin Wells/Getty Images)](https://www.bing.com/th?id=OHR.BiodiverseCostaRica_FR-FR6284486896_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WesternBoxTurtle_FR-FR2003044235_UHD.jpg&w=1000)Today: [Tortue à boîte ornée (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.WesternBoxTurtle_FR-FR2003044235_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BiodiverseCostaRica_DE-DE1731534946_UHD.jpg&w=1000)Today: [Arenal Vulkan, Monteverde, Costa Rica (© Kevin Wells/Getty Images)](https://www.bing.com/th?id=OHR.BiodiverseCostaRica_DE-DE1731534946_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WesternBoxTurtle_DE-DE2199819764_UHD.jpg&w=1000)Today: [Schildkröte (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.WesternBoxTurtle_DE-DE2199819764_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BiodiverseCostaRica_ES-ES0838291190_UHD.jpg&w=1000)Today: [Volcán Arenal, La Fortuna de San Carlos, Costa Rica (© Kevin Wells/Getty Images)](https://www.bing.com/th?id=OHR.BiodiverseCostaRica_ES-ES0838291190_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WesternBoxTurtle_ES-ES0948780387_UHD.jpg&w=1000)Today: [Tortuga de Caja occidental (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.WesternBoxTurtle_ES-ES0948780387_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BiodiverseCostaRica_EN-GB7008355136_UHD.jpg&w=1000)Today: [Arenal Volcano seen from Monteverde, Costa Rica (© Kevin Wells/Getty Images)](https://www.bing.com/th?id=OHR.BiodiverseCostaRica_EN-GB7008355136_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WesternBoxTurtle_EN-GB7102181609_UHD.jpg&w=1000)Today: [Western box turtle (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.WesternBoxTurtle_EN-GB7102181609_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BiodiverseCostaRica_IT-IT0869035242_UHD.jpg&w=1000)Today: [Vulcano Arenal, Monteverde, Costa Rica  (© Kevin Wells/Getty Images)](https://www.bing.com/th?id=OHR.BiodiverseCostaRica_IT-IT0869035242_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WesternBoxTurtle_IT-IT1413333123_UHD.jpg&w=1000)Today: [La tartaruga scatola occidentale  (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.WesternBoxTurtle_IT-IT1413333123_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BiodiverseCostaRica_PT-BR5409439931_UHD.jpg&w=1000)Today: [Vulcão Arenal, Monteverde, na Costa Rica (© Kevin Wells/Getty Images)](https://www.bing.com/th?id=OHR.BiodiverseCostaRica_PT-BR5409439931_UHD.jpg)
 <br><br/>
