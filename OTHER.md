@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.WesternBoxTurtle_JA-JP1310734552_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ニシキハコガメ (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.WesternBoxTurtle_JA-JP1310734552_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OldFortress_JA-JP1697393031_UHD.jpg&w=1000)今日の壁紙: &nbsp;[コルフ島の旧要塞, ギリシャ (© Netfalls Remy Musser/Shutterstock)](https://www.bing.com/th?id=OHR.OldFortress_JA-JP1697393031_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.WesternBoxTurtle_FR-FR2003044235_UHD.jpg&w=1000)Today: [Tortue à boîte ornée (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.WesternBoxTurtle_FR-FR2003044235_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.WesternBoxTurtle_IT-IT1413333123_UHD.jpg&w=1000)Today: [La tartaruga scatola occidentale  (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.WesternBoxTurtle_IT-IT1413333123_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BiodiverseCostaRica_PT-BR5409439931_UHD.jpg&w=1000)Today: [Vulcão Arenal, Monteverde, na Costa Rica (© Kevin Wells/Getty Images)](https://www.bing.com/th?id=OHR.BiodiverseCostaRica_PT-BR5409439931_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WesternBoxTurtle_PT-BR5703667401_UHD.jpg&w=1000)Today: [Ttartaruga de caixa ocidental (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.WesternBoxTurtle_PT-BR5703667401_UHD.jpg)
 <br><br/>
