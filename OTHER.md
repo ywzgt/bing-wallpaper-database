@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.OldFortress_JA-JP1697393031_UHD.jpg&w=1000)今日の壁紙: &nbsp;[コルフ島の旧要塞, ギリシャ (© Netfalls Remy Musser/Shutterstock)](https://www.bing.com/th?id=OHR.OldFortress_JA-JP1697393031_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SaksunFaroe_JA-JP1994915437_UHD.jpg&w=1000)今日の壁紙: &nbsp;[フェロー諸島のサクスン村, デンマーク (© miroslav_1/Getty Images)](https://www.bing.com/th?id=OHR.SaksunFaroe_JA-JP1994915437_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.OldFortress_FR-FR6019989198_UHD.jpg&w=1000)Today: [Le Vieux Fort de Corfou (© Netfalls Remy Musser/Shutterstock)](https://www.bing.com/th?id=OHR.OldFortress_FR-FR6019989198_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.OldFortress_IT-IT2107671514_UHD.jpg&w=1000)Today: [L'antica fortezza di Corfù, Grecia (© Netfalls Remy Musser/Shutterstock)](https://www.bing.com/th?id=OHR.OldFortress_IT-IT2107671514_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WesternBoxTurtle_PT-BR5703667401_UHD.jpg&w=1000)Today: [Ttartaruga de caixa ocidental (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.WesternBoxTurtle_PT-BR5703667401_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OldFortress_PT-BR6093588176_UHD.jpg&w=1000)Today: [A Velha Fortaleza de Corfu, na Grécia (© Netfalls Remy Musser/Shutterstock)](https://www.bing.com/th?id=OHR.OldFortress_PT-BR6093588176_UHD.jpg)
 <br><br/>
