@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SaksunFaroe_JA-JP1994915437_UHD.jpg&w=1000)今日の壁紙: &nbsp;[フェロー諸島のサクスン村, デンマーク (© miroslav_1/Getty Images)](https://www.bing.com/th?id=OHR.SaksunFaroe_JA-JP1994915437_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WatSriSawai_JA-JP2219268493_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ワット・シー・サワイ, タイ (© Casper1774 Studio/Shutterstock)](https://www.bing.com/th?id=OHR.WatSriSawai_JA-JP2219268493_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SaksunFaroe_FR-FR6129573896_UHD.jpg&w=1000)Today: [Le village insulaire de Saksun dans l'Atlantique Nord (© miroslav_1/Getty Images)](https://www.bing.com/th?id=OHR.SaksunFaroe_FR-FR6129573896_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.OrvietoWell_IT-IT7164285597_UHD.jpg&w=1000)Today: [Pozzo del Papa scala e finestra a doppia elica, Orvieto (© Ben Robson Hull Photography/Getty Images)](https://www.bing.com/th?id=OHR.OrvietoWell_IT-IT7164285597_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.OldFortress_PT-BR6093588176_UHD.jpg&w=1000)Today: [A Velha Fortaleza de Corfu, na Grécia (© Netfalls Remy Musser/Shutterstock)](https://www.bing.com/th?id=OHR.OldFortress_PT-BR6093588176_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SaksunFaroe_PT-BR6443520957_UHD.jpg&w=1000)Today: [Saksun, nas Ilhas Faroé, na Dinamarca (© miroslav_1/Getty Images)](https://www.bing.com/th?id=OHR.SaksunFaroe_PT-BR6443520957_UHD.jpg)
 <br><br/>
