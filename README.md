@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.WatSriSawai_ZH-CN7688908090_UHD.jpg&w=1000)今日图片: &nbsp;[西沙瓦寺，素可泰历史公园，泰国 (© Casper1774 Studio/Shutterstock)](https://www.bing.com/th?id=OHR.WatSriSawai_ZH-CN7688908090_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AloeDichotomum_ZH-CN7940121733_UHD.jpg&w=1000)今日图片: &nbsp;[纳米比亚的植物 (© Fotofeeling/DEEPOL by plainpicture)](https://www.bing.com/th?id=OHR.AloeDichotomum_ZH-CN7940121733_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SaksunFaroe_EN-US3384967997_UHD.jpg&w=1000)Today: [Saksun, Faroe Islands, Denmark (© miroslav_1/Getty Images)](https://www.bing.com/th?id=OHR.SaksunFaroe_EN-US3384967997_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WatSriSawai_EN-US3779091241_UHD.jpg&w=1000)Today: [Wat Sri Sawai in Sukhothai Historical Park, Thailand (© Casper1774 Studio/Shutterstock)](https://www.bing.com/th?id=OHR.WatSriSawai_EN-US3779091241_UHD.jpg)
 <br><br/>
