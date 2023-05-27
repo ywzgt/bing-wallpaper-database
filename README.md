@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AloeDichotomum_ZH-CN7940121733_UHD.jpg&w=1000)今日图片: &nbsp;[纳米比亚的植物 (© Fotofeeling/DEEPOL by plainpicture)](https://www.bing.com/th?id=OHR.AloeDichotomum_ZH-CN7940121733_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TegallalangTerrace_ZH-CN8126456968_UHD.jpg&w=1000)今日图片: &nbsp;[乌布的德格拉朗梯田，印度尼西亚 (© Cavan Images/Adobe Stock)](https://www.bing.com/th?id=OHR.TegallalangTerrace_ZH-CN8126456968_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WatSriSawai_EN-US3779091241_UHD.jpg&w=1000)Today: [Wat Sri Sawai in Sukhothai Historical Park, Thailand (© Casper1774 Studio/Shutterstock)](https://www.bing.com/th?id=OHR.WatSriSawai_EN-US3779091241_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AloeDichotomum_EN-US4149828212_UHD.jpg&w=1000)Today: [Quiver trees in Namibia (© Fotofeeling/DEEPOL by plainpicture)](https://www.bing.com/th?id=OHR.AloeDichotomum_EN-US4149828212_UHD.jpg)
 <br><br/>
