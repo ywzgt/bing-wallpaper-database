@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TegallalangTerrace_JA-JP2685499345_UHD.jpg&w=1000)今日の壁紙: &nbsp;[テガララン・ライステラス, インドネシア (© Cavan Images/Adobe Stock)](https://www.bing.com/th?id=OHR.TegallalangTerrace_JA-JP2685499345_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PontdArcole_JA-JP2896354577_UHD.jpg&w=1000)今日の壁紙: &nbsp;[セーヌ川, フランス パリ (© StockByM/Getty Images)](https://www.bing.com/th?id=OHR.PontdArcole_JA-JP2896354577_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.FrenchTennis_FR-FR8649321439_UHD.jpg&w=1000)Today: [Coucher de soleil sur le court Philippe Chatrier, Roland-Garros, Paris (© Juergen Hasenkopf/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.FrenchTennis_FR-FR8649321439_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TegallalangTerrace_IT-IT1569351575_UHD.jpg&w=1000)Today: [Fattorie a terrazza di Tegallalang a Ubud, Indonesia  (© Cavan Images/Adobe Stock)](https://www.bing.com/th?id=OHR.TegallalangTerrace_IT-IT1569351575_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AloeDichotomum_PT-BR7066173975_UHD.jpg&w=1000)Today: [Vida vegetal na Namíbia (© Fotofeeling/DEEPOL by plainpicture)](https://www.bing.com/th?id=OHR.AloeDichotomum_PT-BR7066173975_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TegallalangTerrace_PT-BR7397277478_UHD.jpg&w=1000)Today: [Fazendas de terraço Tegallalang em Ubud, na Indonésia (© Cavan Images/Adobe Stock)](https://www.bing.com/th?id=OHR.TegallalangTerrace_PT-BR7397277478_UHD.jpg)
 <br><br/>
