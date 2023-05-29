@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.PontdArcole_JA-JP2896354577_UHD.jpg&w=1000)今日の壁紙: &nbsp;[セーヌ川, フランス パリ (© StockByM/Getty Images)](https://www.bing.com/th?id=OHR.PontdArcole_JA-JP2896354577_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HiddenBeach_JA-JP3236921669_UHD.jpg&w=1000)今日の壁紙: &nbsp;[マリエタス諸島のプラヤ・デル・アモール, メキシコ (© ferrantraite/Getty Images)](https://www.bing.com/th?id=OHR.HiddenBeach_JA-JP3236921669_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.Antilles_FR-FR6506777411_UHD.jpg&w=1000)Today: [Grand Cul-de-Sac Marin, Parc National de Guadeloupe, Antilles  (© Hemis/Alamy)](https://www.bing.com/th?id=OHR.Antilles_FR-FR6506777411_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.Antilles_IT-IT7910228854_UHD.jpg&w=1000)Today: [Grand Cul-de-Sac Marin, Parco Nazionale della Guadalupa, Piccole Antille  (© Hemis/Alamy)](https://www.bing.com/th?id=OHR.Antilles_IT-IT7910228854_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TegallalangTerrace_PT-BR7397277478_UHD.jpg&w=1000)Today: [Fazendas de terraço Tegallalang em Ubud, na Indonésia (© Cavan Images/Adobe Stock)](https://www.bing.com/th?id=OHR.TegallalangTerrace_PT-BR7397277478_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Antilles_PT-BR7757709340_UHD.jpg&w=1000)Today: [Grand Cul-de-Sac Marin, Parque Nacional de Guadalupe, Pequenas Antilhas (© Hemis/Alamy)](https://www.bing.com/th?id=OHR.Antilles_PT-BR7757709340_UHD.jpg)
 <br><br/>
