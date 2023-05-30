@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.HiddenBeach_JA-JP3236921669_UHD.jpg&w=1000)今日の壁紙: &nbsp;[マリエタス諸島のプラヤ・デル・アモール, メキシコ (© ferrantraite/Getty Images)](https://www.bing.com/th?id=OHR.HiddenBeach_JA-JP3236921669_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WorldOtterDay_JA-JP3462049774_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ラッコの赤ちゃん, 米国 アラスカ州 (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.WorldOtterDay_JA-JP3462049774_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.HiddenBeach_FR-FR6570977941_UHD.jpg&w=1000)Today: [Playa del Amor, Îles Marietas, Puerto Vallarta, Mexique (© ferrantraite/Getty Images)](https://www.bing.com/th?id=OHR.HiddenBeach_FR-FR6570977941_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.HiddenBeach_IT-IT5182417860_UHD.jpg&w=1000)Today: [Playa del Amor, Isole Marietas, Puerto Vallarta, Messico  (© ferrantraite/Getty Images)](https://www.bing.com/th?id=OHR.HiddenBeach_IT-IT5182417860_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Antilles_PT-BR7757709340_UHD.jpg&w=1000)Today: [Grand Cul-de-Sac Marin, Parque Nacional de Guadalupe, Pequenas Antilhas (© Hemis/Alamy)](https://www.bing.com/th?id=OHR.Antilles_PT-BR7757709340_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HiddenBeach_PT-BR5412203730_UHD.jpg&w=1000)Today: [Playa del Amor, Ilhas Marietas, Puerto Vallarta, no México (© ferrantraite/Getty Images)](https://www.bing.com/th?id=OHR.HiddenBeach_PT-BR5412203730_UHD.jpg)
 <br><br/>
