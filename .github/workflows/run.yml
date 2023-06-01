@@ -28,7 +28,7 @@ jobs:
       run: python main.py
 
     - name: Update README.md
-      run: timeout 300 bash upgrade-md
+      run: timeout 30 bash upgrade-md || echo "README.md no update"
 
     - name: Update Commit
       run: |
