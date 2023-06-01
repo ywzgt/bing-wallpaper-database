@@ -1,15 +1,15 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.WorldOtterDay_JA-JP3462049774_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ラッコの赤ちゃん, 米国 アラスカ州 (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.WorldOtterDay_JA-JP3462049774_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ReefAwareness_JA-JP3893578762_UHD.jpg&w=1000)今日の壁紙: &nbsp;[グレートバリアリーフ, オーストラリア (© AirPano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.ReefAwareness_JA-JP3893578762_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WorldOtterDay_FR-FR6635303643_UHD.jpg&w=1000)Today: [Petit de loutre de mer, Baie du Prince William, Alaska (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.WorldOtterDay_FR-FR6635303643_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ReefAwareness_FR-FR6730128355_UHD.jpg&w=1000)Today: [Vue aérienne de la Grande Barrière de Corail, Australie (© AirPano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.ReefAwareness_FR-FR6730128355_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WorldOtterDay_DE-DE7818224728_UHD.jpg&w=1000)Today: [Seeotterwelpe, Prince-William-Sund, Alaska (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.WorldOtterDay_DE-DE7818224728_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ReefAwareness_DE-DE8258767284_UHD.jpg&w=1000)Today: [Luftaufnahme vom Great Barrier Reef, Australien (© AirPano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.ReefAwareness_DE-DE8258767284_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WorldOtterDay_ES-ES1844828627_UHD.jpg&w=1000)Today: [Cría de nutria marina, Prince William Sound, Alaska (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.WorldOtterDay_ES-ES1844828627_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ReefAwareness_ES-ES1945757538_UHD.jpg&w=1000)Today: [Imagen aérea de la Gran Barrera de Coral, Australia (© AirPano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.ReefAwareness_ES-ES1945757538_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WorldOtterDay_EN-GB8244382691_UHD.jpg&w=1000)Today: [Sea otter pup, Prince William Sound, Alaska (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.WorldOtterDay_EN-GB8244382691_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ReefAwareness_EN-GB8413195988_UHD.jpg&w=1000)Today: [Aerial image of the Great Barrier Reef, Australia (© AirPano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.ReefAwareness_EN-GB8413195988_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WorldOtterDay_IT-IT6594215443_UHD.jpg&w=1000)Today: [Cucciolo di lontra marina, Prince William Sound, Alaska  (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.WorldOtterDay_IT-IT6594215443_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ReefAwareness_IT-IT7365437503_UHD.jpg&w=1000)Today: [Immagine aerea della Grande barriera corallina, Australia (© AirPano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.ReefAwareness_IT-IT7365437503_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HiddenBeach_PT-BR5412203730_UHD.jpg&w=1000)Today: [Playa del Amor, Ilhas Marietas, Puerto Vallarta, no México (© ferrantraite/Getty Images)](https://www.bing.com/th?id=OHR.HiddenBeach_PT-BR5412203730_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WorldOtterDay_PT-BR8489449093_UHD.jpg&w=1000)Today: [Filhote de lontra marinha, Prince William Sound, na Alasca (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.WorldOtterDay_PT-BR8489449093_UHD.jpg)
 <br><br/>
