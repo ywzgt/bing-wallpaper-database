@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.PortugalDay_JA-JP0015831815_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ポルト大聖堂, ポルトガル (© Reinhard Schmid/Huber/eStock Photo)](https://www.bing.com/th?id=OHR.PortugalDay_JA-JP0015831815_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Ajisai2023_JA-JP0262225341_UHD.jpg&w=1000)今日の壁紙: &nbsp;[美の山公園, 埼玉県 秩父市 (© SOURCENEXT/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.Ajisai2023_JA-JP0262225341_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.LeMansCentenary_FR-FR2969423081_UHD.jpg&w=1000)Today: [Vue aérienne du circuit Bugatti, Le Mans (© Lou Benoist/AFP via Getty Images)](https://www.bing.com/th?id=OHR.LeMansCentenary_FR-FR2969423081_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PortugalDay_IT-IT6704188860_UHD.jpg&w=1000)Today: [La Cattedrale di Porto, Portogallo (© Reinhard Schmid/Huber/eStock Photo)](https://www.bing.com/th?id=OHR.PortugalDay_IT-IT6704188860_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BalloonsTurkey_PT-BR7705553978_UHD.jpg&w=1000)Today: [Balões de ar quente na Capadócia, Turquia (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.BalloonsTurkey_PT-BR7705553978_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PortugalDay_PT-BR8034817895_UHD.jpg&w=1000)Today: [Catedral do Porto, Portugal (© Reinhard Schmid/Huber/eStock Photo)](https://www.bing.com/th?id=OHR.PortugalDay_PT-BR8034817895_UHD.jpg)
 <br><br/>
