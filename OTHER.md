@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Ajisai2023_JA-JP0262225341_UHD.jpg&w=1000)今日の壁紙: &nbsp;[美の山公園, 埼玉県 秩父市 (© SOURCENEXT/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.Ajisai2023_JA-JP0262225341_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BigBendAnniv_JA-JP0554152393_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ビッグ・ベンド国立公園のサボテン, 米国 テキサス州 (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.BigBendAnniv_JA-JP0554152393_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.GoliathHeron_FR-FR2354863423_UHD.jpg&w=1000)Today: [Héron goliath, Parc national Kruger, Afrique du Sud (© Johan Swanepoel/Alamy)](https://www.bing.com/th?id=OHR.GoliathHeron_FR-FR2354863423_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.GoliathHeron_IT-IT7577072381_UHD.jpg&w=1000)Today: [Airone golia, Parco nazionale di Kruger, Sudafrica (© Johan Swanepoel/Alamy)](https://www.bing.com/th?id=OHR.GoliathHeron_IT-IT7577072381_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PortugalDay_PT-BR8034817895_UHD.jpg&w=1000)Today: [Catedral do Porto, Portugal (© Reinhard Schmid/Huber/eStock Photo)](https://www.bing.com/th?id=OHR.PortugalDay_PT-BR8034817895_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GoliathHeron_PT-BR9417001385_UHD.jpg&w=1000)Today: [Garça Goliath no Parque Nacional Kruger, África do Sul (© Johan Swanepoel/Alamy)](https://www.bing.com/th?id=OHR.GoliathHeron_PT-BR9417001385_UHD.jpg)
 <br><br/>
