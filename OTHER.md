@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BigBendAnniv_JA-JP0554152393_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ビッグ・ベンド国立公園のサボテン, 米国 テキサス州 (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.BigBendAnniv_JA-JP0554152393_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OkefenokeeSwamp_JA-JP0829275517_UHD.jpg&w=1000)今日の壁紙: &nbsp;[オケフェノキー湿原の遊歩道, 米国 ジョージア州 (© Emmer Photo/Alamy)](https://www.bing.com/th?id=OHR.OkefenokeeSwamp_JA-JP0829275517_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BigBendAnniv_FR-FR4667898386_UHD.jpg&w=1000)Today: [Figuier de barbarie, Parc National de Big Bend, Texas, États-Unis (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.BigBendAnniv_FR-FR4667898386_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BigBendAnniv_IT-IT0010435736_UHD.jpg&w=1000)Today: [Pianta di fico d'India, Parco Nazionale di Big Bend, Texas, Stati Uniti (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.BigBendAnniv_IT-IT0010435736_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GoliathHeron_PT-BR9417001385_UHD.jpg&w=1000)Today: [Garça Goliath no Parque Nacional Kruger, África do Sul (© Johan Swanepoel/Alamy)](https://www.bing.com/th?id=OHR.GoliathHeron_PT-BR9417001385_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BigBendAnniv_PT-BR9746173577_UHD.jpg&w=1000)Today: [Planta de pera espinhosa, Big Bend National Park, Texas, EUA (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.BigBendAnniv_PT-BR9746173577_UHD.jpg)
 <br><br/>
