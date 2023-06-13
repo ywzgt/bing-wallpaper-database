@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.OkefenokeeSwamp_ZH-CN3640203783_UHD.jpg&w=1000)今日图片: &nbsp;[奥克弗诺基沼泽木板路上的西班牙苔藓，佐治亚州，美国 (© Emmer Photo/Alamy)](https://www.bing.com/th?id=OHR.OkefenokeeSwamp_ZH-CN3640203783_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PassauSunsetJune_ZH-CN7563956674_UHD.jpg&w=1000)今日图片: &nbsp;[多瑙河畔的帕绍市，巴伐利亚，德国 (© Scott Wilson/Alamy)](https://www.bing.com/th?id=OHR.PassauSunsetJune_ZH-CN7563956674_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BigBendAnniv_EN-US8613000977_UHD.jpg&w=1000)Today: [Prickly pear cactus, Big Bend National Park, Texas (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.BigBendAnniv_EN-US8613000977_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OkefenokeeSwamp_EN-US8688169198_UHD.jpg&w=1000)Today: [Trees with Spanish moss over a boardwalk in the Okefenokee Swamp, Folkston, Georgia (© Emmer Photo/Alamy)](https://www.bing.com/th?id=OHR.OkefenokeeSwamp_EN-US8688169198_UHD.jpg)
 <br><br/>
