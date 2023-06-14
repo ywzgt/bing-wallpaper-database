@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.GoliathHeron_JA-JP7916095808_UHD.jpg&w=1000)今日の壁紙: &nbsp;[クルーガー国立公園のオニアオサギ, 南アフリカ共和国 (© Johan Swanepoel/Alamy)](https://www.bing.com/th?id=OHR.GoliathHeron_JA-JP7916095808_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SmokyFireflies_JA-JP1430941774_UHD.jpg&w=1000)今日の壁紙: &nbsp;[グレート・スモーキー山脈国立公園の森に舞う蛍, 米国 テネシー州 (© Floris Van Bruegel/Minden Pictures)](https://www.bing.com/th?id=OHR.SmokyFireflies_JA-JP1430941774_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PortugalDay_FR-FR4102767310_UHD.jpg&w=1000)Today: [Cathédrale de Porto, Portugal (© Reinhard Schmid/Huber/eStock Photo)](https://www.bing.com/th?id=OHR.PortugalDay_FR-FR4102767310_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PassauSunsetJune_IT-IT1818534343_UHD.jpg&w=1000)Today: [La città di Passavia riflessa nel Danubio, Baviera, Germania (© Scott Wilson/Alamy)](https://www.bing.com/th?id=OHR.PassauSunsetJune_IT-IT1818534343_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.OkefenokeeSwamp_PT-BR9993214300_UHD.jpg&w=1000)Today: [Árvores de musgo espanhol sobre um calçadão no pântano Okefenokee, Folkston, Geórgia (© Emmer Photo/Alamy)](https://www.bing.com/th?id=OHR.OkefenokeeSwamp_PT-BR9993214300_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PassauSunsetJune_PT-BR1202861779_UHD.jpg&w=1000)Today: [A cidade de Passau refletindo no rio Danúbio, Baviera, Alemanha (© Scott Wilson/Alamy)](https://www.bing.com/th?id=OHR.PassauSunsetJune_PT-BR1202861779_UHD.jpg)
 <br><br/>
