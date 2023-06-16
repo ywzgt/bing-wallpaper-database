@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.HawksbillTurtle_JA-JP0788184313_UHD.jpg&w=1000)今日の壁紙: &nbsp;[阿嘉島のウミガメ, 沖縄県 (© Robert Mallon/Getty Images)](https://www.bing.com/th?id=OHR.HawksbillTurtle_JA-JP0788184313_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SurfSanDiego_JA-JP5997733489_UHD.jpg&w=1000)今日の壁紙: &nbsp;[サンディエゴで行われたパドルアウト, 米国 カリフォルニア州 (© Brandon Colbert Photography/Getty Images)](https://www.bing.com/th?id=OHR.SurfSanDiego_JA-JP5997733489_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.HawksbillTurtle_FR-FR5646969618_UHD.jpg&w=1000)Today: [Tortue imbriquée près d'Akajima, Okinawa, Japon (© Robert Mallon/Getty Images)](https://www.bing.com/th?id=OHR.HawksbillTurtle_FR-FR5646969618_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.HawksbillTurtle_IT-IT4337897539_UHD.jpg&w=1000)Today: [Una tartaruga embricata che nuota vicino ad Akajima, Okinawa, Giappone (© Robert Mallon/Getty Images)](https://www.bing.com/th?id=OHR.HawksbillTurtle_IT-IT4337897539_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SmokyFireflies_PT-BR0661449530_UHD.jpg&w=1000)Today: [Vagalumes síncronos, Parque Nacional Great Smoky Mountains, Tennessee, EUA (© Floris Van Bruegel/Minden Pictures)](https://www.bing.com/th?id=OHR.SmokyFireflies_PT-BR0661449530_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HawksbillTurtle_PT-BR9425456104_UHD.jpg&w=1000)Today: [Tartaruga-de-pente nada perto de Akajima, Okinawa, Japão (© Robert Mallon/Getty Images)](https://www.bing.com/th?id=OHR.HawksbillTurtle_PT-BR9425456104_UHD.jpg)
 <br><br/>
