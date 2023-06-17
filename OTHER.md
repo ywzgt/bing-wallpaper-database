@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SurfSanDiego_JA-JP5997733489_UHD.jpg&w=1000)今日の壁紙: &nbsp;[サンディエゴで行われたパドルアウト, 米国 カリフォルニア州 (© Brandon Colbert Photography/Getty Images)](https://www.bing.com/th?id=OHR.SurfSanDiego_JA-JP5997733489_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TernFather_JA-JP1363160491_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ニッカーソン・ビーチ・パークの仲睦まじいアジサシの親子, 米国 ニューヨーク州 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.TernFather_JA-JP1363160491_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SurfSanDiego_FR-FR5933823345_UHD.jpg&w=1000)Today: [« Pagaie pour la solidarité » à San Diego, Californie, États-Unis (© Brandon Colbert Photography/Getty Images)](https://www.bing.com/th?id=OHR.SurfSanDiego_FR-FR5933823345_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SurfSanDiego_IT-IT5610851115_UHD.jpg&w=1000)Today: [Il “Pagaiare per l'unità” di San Diego, California, USA  (© Brandon Colbert Photography/Getty Images)](https://www.bing.com/th?id=OHR.SurfSanDiego_IT-IT5610851115_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HawksbillTurtle_PT-BR9425456104_UHD.jpg&w=1000)Today: [Tartaruga-de-pente nada perto de Akajima, Okinawa, Japão (© Robert Mallon/Getty Images)](https://www.bing.com/th?id=OHR.HawksbillTurtle_PT-BR9425456104_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SurfSanDiego_PT-BR0003573569_UHD.jpg&w=1000)Today: ['Reme pela unidade' em San Diego, Califórnia, EUA  (© Brandon Colbert Photography/Getty Images)](https://www.bing.com/th?id=OHR.SurfSanDiego_PT-BR0003573569_UHD.jpg)
 <br><br/>
