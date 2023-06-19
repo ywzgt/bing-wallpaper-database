@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Fawn_ZH-CN2172152960_UHD.jpg&w=1000)今日图片: &nbsp;[奔跑在诺曼底草地上的小狍，法国 (© Gerard Lacz/Minden)](https://www.bing.com/th?id=OHR.Fawn_ZH-CN2172152960_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EagleTree_ZH-CN7775102951_UHD.jpg&w=1000)今日图片: &nbsp;[秃鹰，通加斯国家森林，阿拉斯加，美国 (© Jaynes Gallery/Shutterstock)](https://www.bing.com/th?id=OHR.EagleTree_ZH-CN7775102951_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TernFather_EN-US0899570111_UHD.jpg&w=1000)Today: [Common tern father with chick, Nickerson Beach, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.TernFather_EN-US0899570111_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SanFranHall_EN-US0993956473_UHD.jpg&w=1000)Today: [City Hall lit up for Juneteenth in San Francisco, California (© yhelfman/Shutterstock)](https://www.bing.com/th?id=OHR.SanFranHall_EN-US0993956473_UHD.jpg)
 <br><br/>
