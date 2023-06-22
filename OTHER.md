@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.PeruAmazon_JA-JP3970237476_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アマゾン熱帯雨林, ペルー (© Rhett Ayers Butler/Getty Images)](https://www.bing.com/th?id=OHR.PeruAmazon_JA-JP3970237476_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PollinatorMonarch_JA-JP4171117800_UHD.jpg&w=1000)今日の壁紙: &nbsp;[リアトリスにとまるオオカバマダラ (© bookguy/Getty Images)](https://www.bing.com/th?id=OHR.PollinatorMonarch_JA-JP4171117800_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PeruAmazon_FR-FR7280583164_UHD.jpg&w=1000)Today: [Forêt amazonienne, Pérou (© Rhett Ayers Butler/Getty Images)](https://www.bing.com/th?id=OHR.PeruAmazon_FR-FR7280583164_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PeruAmazon_IT-IT9169623612_UHD.jpg&w=1000)Today: [L'Amazzonia peruviana, Perù (© Rhett Ayers Butler/Getty Images)](https://www.bing.com/th?id=OHR.PeruAmazon_IT-IT9169623612_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.StonehengeSalisbury_PT-BR7064860081_UHD.jpg&w=1000)Today: [Stonehenge, Planície de Salisbury, Wiltshire, Inglaterra (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.StonehengeSalisbury_PT-BR7064860081_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PeruAmazon_PT-BR7421781188_UHD.jpg&w=1000)Today: [Amazônia peruana, Peru (© Rhett Ayers Butler/Getty Images)](https://www.bing.com/th?id=OHR.PeruAmazon_PT-BR7421781188_UHD.jpg)
 <br><br/>
