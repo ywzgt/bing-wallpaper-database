@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.PollinatorMonarch_JA-JP4171117800_UHD.jpg&w=1000)今日の壁紙: &nbsp;[リアトリスにとまるオオカバマダラ (© bookguy/Getty Images)](https://www.bing.com/th?id=OHR.PollinatorMonarch_JA-JP4171117800_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NhaTrang_JA-JP4366541911_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ニャフー湾, ベトナム ニャチャン (© Thang Tat Nguyen/Getty Images)](https://www.bing.com/th?id=OHR.NhaTrang_JA-JP4366541911_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SaintMichel_FR-FR7818696393_UHD.jpg&w=1000)Today: [Abbaye et baie du Mont Saint-Michel, Normandie (© Mathieu Rivrin/Getty Images)](https://www.bing.com/th?id=OHR.SaintMichel_FR-FR7818696393_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PollinatorMonarch_IT-IT6949124466_UHD.jpg&w=1000)Today: [Le farfalle monarca si nutrono di fiori selvatici (© bookguy/Getty Images)](https://www.bing.com/th?id=OHR.PollinatorMonarch_IT-IT6949124466_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PeruAmazon_PT-BR7421781188_UHD.jpg&w=1000)Today: [Amazônia peruana, Peru (© Rhett Ayers Butler/Getty Images)](https://www.bing.com/th?id=OHR.PeruAmazon_PT-BR7421781188_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PollinatorMonarch_PT-BR7841420881_UHD.jpg&w=1000)Today: [Borboletas-monarca alimentando-se de flores silvestres estreladas (© bookguy/Getty Images)](https://www.bing.com/th?id=OHR.PollinatorMonarch_PT-BR7841420881_UHD.jpg)
 <br><br/>
