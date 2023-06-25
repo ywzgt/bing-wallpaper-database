@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.PetraTreasury_JA-JP4638552113_UHD.jpg&w=1000)今日の壁紙: &nbsp;[エル・カズネ, ヨルダン ペトラ (© WitthayaP/Shutterstock)](https://www.bing.com/th?id=OHR.PetraTreasury_JA-JP4638552113_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VillandryGarden_JA-JP4858825894_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ロワール渓谷内のヴィランドリー城, フランス ロワール県 (© VLADJ55/Shutterstock)](https://www.bing.com/th?id=OHR.VillandryGarden_JA-JP4858825894_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PetraTreasury_FR-FR9534450320_UHD.jpg&w=1000)Today: [Khazneh, Pétra, Jordanie (© WitthayaP/Shutterstock)](https://www.bing.com/th?id=OHR.PetraTreasury_FR-FR9534450320_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PetraTreasury_IT-IT8544676447_UHD.jpg&w=1000)Today: [Il Tesoro, Petra, Giornadia (© WitthayaP/Shutterstock)](https://www.bing.com/th?id=OHR.PetraTreasury_IT-IT8544676447_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.NhaTrang_PT-BR8126662489_UHD.jpg&w=1000)Today: [Baía de Nha Phu, Nha Trang, Vietnã (© Thang Tat Nguyen/Getty Images)](https://www.bing.com/th?id=OHR.NhaTrang_PT-BR8126662489_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PetraTreasury_PT-BR8415620611_UHD.jpg&w=1000)Today: [Al-Khazneh (the Treasury), Petra, Jordan (© WitthayaP/Shutterstock)](https://www.bing.com/th?id=OHR.PetraTreasury_PT-BR8415620611_UHD.jpg)
 <br><br/>
