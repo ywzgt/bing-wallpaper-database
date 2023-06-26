@@ -1,1 +1,1 @@
-06/26.global.md
+06/27.global.md
