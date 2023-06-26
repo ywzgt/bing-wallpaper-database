@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.VillandryGarden_JA-JP4858825894_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ロワール渓谷内のヴィランドリー城, フランス ロワール県 (© VLADJ55/Shutterstock)](https://www.bing.com/th?id=OHR.VillandryGarden_JA-JP4858825894_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SedonaSunset_JA-JP5059075419_UHD.jpg&w=1000)今日の壁紙: &nbsp;[セドナ, 米国 アリゾナ州 (© Jonathan Ross/Getty Images)](https://www.bing.com/th?id=OHR.SedonaSunset_JA-JP5059075419_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.VillandryGarden_FR-FR9767496581_UHD.jpg&w=1000)Today: [Château de Villandry et son jardin, Vallée de la Loire (© VLADJ55/Shutterstock)](https://www.bing.com/th?id=OHR.VillandryGarden_FR-FR9767496581_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.VillandryGarden_IT-IT7596299422_UHD.jpg&w=1000)Today: [Castello di Villandry e giardino, Valle della Loira, Francia (© VLADJ55/Shutterstock)](https://www.bing.com/th?id=OHR.VillandryGarden_IT-IT7596299422_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PetraTreasury_PT-BR8415620611_UHD.jpg&w=1000)Today: [Al-Khazneh (the Treasury), Petra, Jordan (© WitthayaP/Shutterstock)](https://www.bing.com/th?id=OHR.PetraTreasury_PT-BR8415620611_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VillandryGarden_PT-BR8698616986_UHD.jpg&w=1000)Today: [Chateau de Villandry e seu jardim, Vale do Loire, França (© VLADJ55/Shutterstock)](https://www.bing.com/th?id=OHR.VillandryGarden_PT-BR8698616986_UHD.jpg)
 <br><br/>
