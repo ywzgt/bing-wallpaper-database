@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BanyakIslands_JA-JP5494773758_UHD.jpg&w=1000)今日の壁紙: &nbsp;[バニャック諸島, インドネシア (© fbxx/Getty Images)](https://www.bing.com/th?id=OHR.BanyakIslands_JA-JP5494773758_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ClamBears_JA-JP8912125986_UHD.jpg&w=1000)今日の壁紙: &nbsp;[レイク・クラーク国立公園, 米国 アラスカ州 (© Carlos Carreno/Getty Images)](https://www.bing.com/th?id=OHR.ClamBears_JA-JP8912125986_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BanyakIslands_FR-FR0543870795_UHD.jpg&w=1000)Today: [Îles Banyak, Sumatra, Indonésie (© fbxx/Getty Images)](https://www.bing.com/th?id=OHR.BanyakIslands_FR-FR0543870795_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AlgheroCapoCaccia_IT-IT6529245223_UHD.jpg&w=1000)Today: [Capo Caccia, Alghero (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.AlgheroCapoCaccia_IT-IT6529245223_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PrideIceland_PT-BR9247748028_UHD.jpg&w=1000)Today: [Bandeiras de arco-íris e confetes, Reykjavík, Islândia (© Arctic-Images/Getty Images)](https://www.bing.com/th?id=OHR.PrideIceland_PT-BR9247748028_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BanyakIslands_PT-BR9478942704_UHD.jpg&w=1000)Today: [Ilhas Banyak, Sumatra, Indonésia  (© fbxx/Getty Images)](https://www.bing.com/th?id=OHR.BanyakIslands_PT-BR9478942704_UHD.jpg)
 <br><br/>
