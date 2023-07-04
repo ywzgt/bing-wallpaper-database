@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_ZH-CN6530285883_UHD.jpg&w=1000)今日图片: &nbsp;[草原国家公园，萨斯喀彻温省，加拿大 (© Robert Postma/Getty Images)](https://www.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_ZH-CN6530285883_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CorfuBeach_ZH-CN8660068587_UHD.jpg&w=1000)今日图片: &nbsp;[蒂莫尼港海滩，科孚岛，希腊 (© nantonov/Getty Images)](https://www.bing.com/th?id=OHR.CorfuBeach_ZH-CN8660068587_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CoyoteBanff_EN-US9716853560_UHD.jpg&w=1000)Today: [A coyote in Banff, Alberta, Canada (© Harry Collins/Getty Images)](https://www.bing.com/th?id=OHR.CoyoteBanff_EN-US9716853560_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EmpireFourth_EN-US1852348146_UHD.jpg&w=1000)Today: [Empire State Building on the Fourth of July, New York City (© Tetra Images/Getty Images)](https://www.bing.com/th?id=OHR.EmpireFourth_EN-US1852348146_UHD.jpg)
 <br><br/>
