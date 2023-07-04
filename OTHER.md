@@ -3,7 +3,7 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CooperChapel_FR-FR0470140705_UHD.jpg&w=1000)Today: [Mildred B. Cooper Memorial Chapel, Bella Vista, Arkansas (© Eddie Brady/Getty Images)](https://www.bing.com/th?id=OHR.CooperChapel_FR-FR0470140705_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_DE-DE4287828345_UHD.jpg&w=1000)Today: [Grassland-Nationalpark, Saskatchewan, Kanada (© Robert Postma/Getty Images)](https://www.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_DE-DE4287828345_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_DE-DE4287828345_UHD.jpg&w=1000)Today: [Grasslands-Nationalpark, Saskatchewan, Kanada (© Robert Postma/Getty Images)](https://www.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_DE-DE4287828345_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_ES-ES7995297579_UHD.jpg&w=1000)Today: [Parque Nacional de Grasslands, Saskatchewan, Canadá (© Robert Postma/Getty Images)](https://www.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_ES-ES7995297579_UHD.jpg)
 <br><br/>
