@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_UHD.jpg&w=1000)今日图片: &nbsp;[南跳岩企鹅，福克兰群岛 (© Tony Beck/Getty Images)](https://www.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CocoaPods_ZH-CN6192387360_UHD.jpg&w=1000)今日图片: &nbsp;[安班加的可可豆荚，马达加斯加 (© pierivb/Getty Images)](https://www.bing.com/th?id=OHR.CocoaPods_ZH-CN6192387360_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CorfuBeach_EN-US1955770867_UHD.jpg&w=1000)Today: [Porto Timoni beach, Corfu, Greece (© nantonov/Getty Images)](https://www.bing.com/th?id=OHR.CorfuBeach_EN-US1955770867_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KissingPenguins_EN-US9934274722_UHD.jpg&w=1000)Today: [Southern rockhopper penguins, Falkland Islands (© Tony Beck/Getty Images)](https://www.bing.com/th?id=OHR.KissingPenguins_EN-US9934274722_UHD.jpg)
 <br><br/>
