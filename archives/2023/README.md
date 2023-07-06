@@ -1,1 +1,1 @@
-07/06.global.md
+07/07.global.md
