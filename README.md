@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.CocoaPods_ZH-CN6192387360_UHD.jpg&w=1000)今日图片: &nbsp;[安班加的可可豆荚，马达加斯加 (© pierivb/Getty Images)](https://www.bing.com/th?id=OHR.CocoaPods_ZH-CN6192387360_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CooperChapel_ZH-CN1150924688_UHD.jpg&w=1000)今日图片: &nbsp;[米尔德里德-B-库珀纪念教堂，贝拉维斯塔，阿肯色州 (© Eddie Brady/Getty Images)](https://www.bing.com/th?id=OHR.CooperChapel_ZH-CN1150924688_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.KissingPenguins_EN-US9934274722_UHD.jpg&w=1000)Today: [Southern rockhopper penguins, Falkland Islands (© Tony Beck/Getty Images)](https://www.bing.com/th?id=OHR.KissingPenguins_EN-US9934274722_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CocoaPods_EN-US2252740906_UHD.jpg&w=1000)Today: [Cocoa pods from Ambanja, Madagascar (© pierivb/Getty Images)](https://www.bing.com/th?id=OHR.CocoaPods_EN-US2252740906_UHD.jpg)
 <br><br/>
