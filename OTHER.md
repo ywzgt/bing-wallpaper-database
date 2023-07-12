@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.NakupendaBeach_JA-JP7735681361_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ナクペンダビーチ自然保護区, タンザニア (© Lubos Paukeje/Alamy)](https://www.bing.com/th?id=OHR.NakupendaBeach_JA-JP7735681361_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ZhangyeGeopark_JA-JP7668560160_UHD.jpg&w=1000)今日の壁紙: &nbsp;[甘粛張掖国家地質公園, 中国 甘粛省 (© TONNAJA/Getty Images)](https://www.bing.com/th?id=OHR.ZhangyeGeopark_JA-JP7668560160_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.NakupendaBeach_FR-FR4192491040_UHD.jpg&w=1000)Today: [Banc de sable dans la réserve naturelle de Nakupenda Beach, Zanzibar, Tanzanie (© Lubos Paukeje/Alamy)](https://www.bing.com/th?id=OHR.NakupendaBeach_FR-FR4192491040_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.NakupendaBeach_IT-IT0086147539_UHD.jpg&w=1000)Today: [Bar sulla sabbia nella Riserva Naturale di Nakupenda Beach, Zanzibar, Tanzania (© Lubos Paukeje/Alamy)](https://www.bing.com/th?id=OHR.NakupendaBeach_IT-IT0086147539_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WorldPopDay_PT-BR1851252884_UHD.jpg&w=1000)Today: [Região Administrativa Especial de Hong Kong (© leungchopan/Getty Images)](https://www.bing.com/th?id=OHR.WorldPopDay_PT-BR1851252884_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NakupendaBeach_PT-BR2414643344_UHD.jpg&w=1000)Today: [Barra de areia na Reserva Natural da Praia de Nakupenda, Zanzibar, Tanzânia  (© Lubos Paukeje/Alamy)](https://www.bing.com/th?id=OHR.NakupendaBeach_PT-BR2414643344_UHD.jpg)
 <br><br/>
