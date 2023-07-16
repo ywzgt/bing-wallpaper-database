@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BearHoleBrook_JA-JP7059331759_UHD.jpg&w=1000)今日の壁紙: &nbsp;[キャッツキル山地, 米国 ニューヨーク州 (© GummyBone/Getty Images)](https://www.bing.com/th?id=OHR.BearHoleBrook_JA-JP7059331759_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MarineDay2023_JA-JP7484364460_UHD.jpg&w=1000)今日の壁紙: &nbsp;[座間味島のウミガメ, 沖縄 (© petesphotography/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.MarineDay2023_JA-JP7484364460_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BearHoleBrook_FR-FR1214130795_UHD.jpg&w=1000)Today: [Ruisseau Bear Hole, montagnes Catskill, New York, États-Unis (© GummyBone/Getty Images)](https://www.bing.com/th?id=OHR.BearHoleBrook_FR-FR1214130795_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BearHoleBrook_IT-IT6529030811_UHD.jpg&w=1000)Today: [Bear Hole Brook, Monti Catskill, New York, Stati Uniti  (© GummyBone/Getty Images)](https://www.bing.com/th?id=OHR.BearHoleBrook_IT-IT6529030811_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CastelmazzanoSunrise_PT-BR2465797597_UHD.jpg&w=1000)Today: [Castelmezzano, na Itália (© Rudy Balasko/Shutterstock)](https://www.bing.com/th?id=OHR.CastelmazzanoSunrise_PT-BR2465797597_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BearHoleBrook_PT-BR3089984562_UHD.jpg&w=1000)Today: [Bear Hole Brook, Montanhas Catskill, Nova Iorque (© GummyBone/Getty Images)](https://www.bing.com/th?id=OHR.BearHoleBrook_PT-BR3089984562_UHD.jpg)
 <br><br/>
