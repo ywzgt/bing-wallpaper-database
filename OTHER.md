@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MarineDay2023_JA-JP7484364460_UHD.jpg&w=1000)今日の壁紙: &nbsp;[座間味島のウミガメ, 沖縄 (© petesphotography/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.MarineDay2023_JA-JP7484364460_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BucerosBicornis_JA-JP4956922577_UHD.jpg&w=1000)今日の壁紙: &nbsp;[カオヤイ国立公園, タイ (© kajornyot wildlife photography/Shutterstock)](https://www.bing.com/th?id=OHR.BucerosBicornis_JA-JP4956922577_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CavanCastle_FR-FR1987421651_UHD.jpg&w=1000)Today: [Château de Cloughoughter à Lough Oughter, Irlande (© 4H4 PH/Shutterstock)](https://www.bing.com/th?id=OHR.CavanCastle_FR-FR1987421651_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CavanCastle_IT-IT1212756093_UHD.jpg&w=1000)Today: [Castello di Cloughoughter a Lough Oughter, Contea di Cavan, Irlanda (© 4H4 PH/Shutterstock)](https://www.bing.com/th?id=OHR.CavanCastle_IT-IT1212756093_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BearHoleBrook_PT-BR3089984562_UHD.jpg&w=1000)Today: [Bear Hole Brook, Montanhas Catskill, Nova Iorque (© GummyBone/Getty Images)](https://www.bing.com/th?id=OHR.BearHoleBrook_PT-BR3089984562_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CavanCastle_PT-BR3830241244_UHD.jpg&w=1000)Today: [Castelo Cloughoughter em Lough Oughter, Condado de Cavan, Irlanda (© 4H4 PH/Shutterstock)](https://www.bing.com/th?id=OHR.CavanCastle_PT-BR3830241244_UHD.jpg)
 <br><br/>
