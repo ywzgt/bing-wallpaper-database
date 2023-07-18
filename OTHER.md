@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BucerosBicornis_JA-JP4956922577_UHD.jpg&w=1000)今日の壁紙: &nbsp;[カオヤイ国立公園, タイ (© kajornyot wildlife photography/Shutterstock)](https://www.bing.com/th?id=OHR.BucerosBicornis_JA-JP4956922577_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CrescentLake_JA-JP8452869606_UHD.jpg&w=1000)今日の壁紙: &nbsp;[月牙泉, 中国 甘粛省 (© R7 Photo/Shutterstock)](https://www.bing.com/th?id=OHR.CrescentLake_JA-JP8452869606_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BucerosBicornis_FR-FR2890975203_UHD.jpg&w=1000)Today: [Calao bicorne, parc national de Khao Yai, Thaïlande (© kajornyot wildlife photography/Shutterstock)](https://www.bing.com/th?id=OHR.BucerosBicornis_FR-FR2890975203_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BucerosBicornis_IT-IT3646182612_UHD.jpg&w=1000)Today: [Grande bucero, Parco nazionale di Khao Yai, Thailandia (© kajornyot wildlife photography/Shutterstock)](https://www.bing.com/th?id=OHR.BucerosBicornis_IT-IT3646182612_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CavanCastle_PT-BR3830241244_UHD.jpg&w=1000)Today: [Castelo Cloughoughter em Lough Oughter, Condado de Cavan, Irlanda (© 4H4 PH/Shutterstock)](https://www.bing.com/th?id=OHR.CavanCastle_PT-BR3830241244_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BucerosBicornis_PT-BR4126755280_UHD.jpg&w=1000)Today: [Grande calau, Khao Yai National Park, Tailândia (© kajornyot wildlife photography/Shutterstock)](https://www.bing.com/th?id=OHR.BucerosBicornis_PT-BR4126755280_UHD.jpg)
 <br><br/>
