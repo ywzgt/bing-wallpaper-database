@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MoonDayArtemis_JA-JP8694388509_UHD.jpg&w=1000)今日の壁紙: &nbsp;[NASA のオリオン宇宙船から見た月 (© NASA)](https://www.bing.com/th?id=OHR.MoonDayArtemis_JA-JP8694388509_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BridgeNorway_JA-JP8975329344_UHD.jpg&w=1000)今日の壁紙: &nbsp;[大西洋道路のストルセイスンデット橋, ノルウェー ムーレ・オ・ロムスダール県 (© Morten Falch Sortland/Getty Images)](https://www.bing.com/th?id=OHR.BridgeNorway_JA-JP8975329344_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MoonDayArtemis_FR-FR9915827128_UHD.jpg&w=1000)Today: [La lune vue depuis le vaisseau spatial Orion de la mission Artemis de la NASA (© NASA)](https://www.bing.com/th?id=OHR.MoonDayArtemis_FR-FR9915827128_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MoonDayArtemis_IT-IT7012030317_UHD.jpg&w=1000)Today: [La luna vista dalla navicella Orion della missione Artemis della NASA (© NASA)](https://www.bing.com/th?id=OHR.MoonDayArtemis_IT-IT7012030317_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CrescentLake_PT-BR4521081721_UHD.jpg&w=1000)Today: [Lago Crescente em Dunhuang, na China (© R7 Photo/Shutterstock)](https://www.bing.com/th?id=OHR.CrescentLake_PT-BR4521081721_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MoonDayArtemis_PT-BR4775427862_UHD.jpg&w=1000)Today: [A lua vista da espaçonave Orion da missão Artemis da NASA  (© NASA)](https://www.bing.com/th?id=OHR.MoonDayArtemis_PT-BR4775427862_UHD.jpg)
 <br><br/>
