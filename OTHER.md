@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BridgeNorway_JA-JP8975329344_UHD.jpg&w=1000)今日の壁紙: &nbsp;[大西洋道路のストルセイスンデット橋, ノルウェー ムーレ・オ・ロムスダール県 (© Morten Falch Sortland/Getty Images)](https://www.bing.com/th?id=OHR.BridgeNorway_JA-JP8975329344_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CavanCastle_JA-JP9264302240_UHD.jpg&w=1000)今日の壁紙: &nbsp;[クラフオウター城, アイルランド キャバン県 (© 4H4 PH/Shutterstock)](https://www.bing.com/th?id=OHR.CavanCastle_JA-JP9264302240_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BridgeNorway_FR-FR0244724672_UHD.jpg&w=1000)Today: [Pont Storseisundet, route de l'océan Atlantique, Norvège (© Morten Falch Sortland/Getty Images)](https://www.bing.com/th?id=OHR.BridgeNorway_FR-FR0244724672_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BridgeNorway_IT-IT5538215979_UHD.jpg&w=1000)Today: [Ponte di Storseisundet, Strada dell'Oceano Atlantico, Norvegia (© Morten Falch Sortland/Getty Images)](https://www.bing.com/th?id=OHR.BridgeNorway_IT-IT5538215979_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MoonDayArtemis_PT-BR4775427862_UHD.jpg&w=1000)Today: [A lua vista da espaçonave Orion da missão Artemis da NASA  (© NASA)](https://www.bing.com/th?id=OHR.MoonDayArtemis_PT-BR4775427862_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BridgeNorway_PT-BR6731279312_UHD.jpg&w=1000)Today: [Ponte Storseisundet, Atlantic Ocean Road, Noruega (© Morten Falch Sortland/Getty Images)](https://www.bing.com/th?id=OHR.BridgeNorway_PT-BR6731279312_UHD.jpg)
 <br><br/>
