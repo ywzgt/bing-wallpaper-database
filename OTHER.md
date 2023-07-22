@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.CavanCastle_JA-JP9264302240_UHD.jpg&w=1000)今日の壁紙: &nbsp;[クラフオウター城, アイルランド キャバン県 (© 4H4 PH/Shutterstock)](https://www.bing.com/th?id=OHR.CavanCastle_JA-JP9264302240_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TeaEstate_JA-JP9818718902_UHD.jpg&w=1000)今日の壁紙: &nbsp;[エディンバラ茶畑, スリランカ ヌワラ・エリヤ (© Jeremy Woodhouse/Getty Images)](https://www.bing.com/th?id=OHR.TeaEstate_JA-JP9818718902_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.HammockDay_FR-FR0846527389_UHD.jpg&w=1000)Today: [Hamac campé dans un cyprès chauve, Floride, USA (© Mac Stone/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HammockDay_FR-FR0846527389_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PolignanoBari_IT-IT5469069953_UHD.jpg&w=1000)Today: [Polignano a Mare, Puglia (© Sky_Blue/Getty Images)](https://www.bing.com/th?id=OHR.PolignanoBari_IT-IT5469069953_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BridgeNorway_PT-BR6731279312_UHD.jpg&w=1000)Today: [Ponte Storseisundet, Atlantic Ocean Road, Noruega (© Morten Falch Sortland/Getty Images)](https://www.bing.com/th?id=OHR.BridgeNorway_PT-BR6731279312_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HammockDay_PT-BR7138304791_UHD.jpg&w=1000)Today: [Rede de acampamento em um cipreste careca, Flórida, nos EUA (© Mac Stone/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HammockDay_PT-BR7138304791_UHD.jpg)
 <br><br/>
