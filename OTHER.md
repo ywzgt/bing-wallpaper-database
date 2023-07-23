@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TeaEstate_JA-JP9818718902_UHD.jpg&w=1000)今日の壁紙: &nbsp;[エディンバラ茶畑, スリランカ ヌワラ・エリヤ (© Jeremy Woodhouse/Getty Images)](https://www.bing.com/th?id=OHR.TeaEstate_JA-JP9818718902_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ZebraCousins_JA-JP0170219934_UHD.jpg&w=1000)今日の壁紙: &nbsp;[タランギレ国立公園のシマウマたち, タンザニア (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.ZebraCousins_JA-JP0170219934_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TeaEstate_FR-FR1261818275_UHD.jpg&w=1000)Today: [Plantation de thé, Nuwara Eliya, Sri Lanka (© Jeremy Woodhouse/Getty Images)](https://www.bing.com/th?id=OHR.TeaEstate_FR-FR1261818275_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TeaEstate_IT-IT5131350973_UHD.jpg&w=1000)Today: [Tenuta del tè di Edimburgo, Nuwara Eliya, Sri Lanka (© Jeremy Woodhouse/Getty Images)](https://www.bing.com/th?id=OHR.TeaEstate_IT-IT5131350973_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HammockDay_PT-BR7138304791_UHD.jpg&w=1000)Today: [Rede de acampamento em um cipreste careca, Flórida, nos EUA (© Mac Stone/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HammockDay_PT-BR7138304791_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TeaEstate_PT-BR7362336385_UHD.jpg&w=1000)Today: [Propriedade do Chá de Edimburgo, Nuwara Elijah, Sri Lanka  (© Jeremy Woodhouse/Getty Images)](https://www.bing.com/th?id=OHR.TeaEstate_PT-BR7362336385_UHD.jpg)
 <br><br/>
