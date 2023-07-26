@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MangrovePark_ZH-CN0208518370_UHD.jpg&w=1000)今日图片: &nbsp;[朱拜勒红树林公园，阿布扎比，阿拉伯联合酋长国 (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.MangrovePark_ZH-CN0208518370_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ParisLouvre_ZH-CN0341884841_UHD.jpg&w=1000)今日图片: &nbsp;[卡鲁塞尔凯旋门和卢浮宫金字塔，巴黎，法国 (© Jon Hicks/Getty Images)](https://www.bing.com/th?id=OHR.ParisLouvre_ZH-CN0341884841_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LasLagunas_EN-US2134252350_UHD.jpg&w=1000)Today: [Laguna de Torrevieja, Alicante, Spain (© Juan Maria Coy Vergara/Getty Images)](https://www.bing.com/th?id=OHR.LasLagunas_EN-US2134252350_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MangrovePark_EN-US2211111720_UHD.jpg&w=1000)Today: [Jubail Mangrove Park in Abu Dhabi, United Arab Emirates (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.MangrovePark_EN-US2211111720_UHD.jpg)
 <br><br/>
