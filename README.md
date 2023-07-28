@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SanBlasIslands_ZH-CN6320572106_UHD.jpg&w=1000)今日图片: &nbsp;[圣布拉斯群岛，巴拿马 (© bgremler/Shutterstock)](https://www.bing.com/th?id=OHR.SanBlasIslands_ZH-CN6320572106_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TigerIndia_ZH-CN6657629375_UHD.jpg&w=1000)今日图片: &nbsp;[孟加拉虎，兰坦波尔国家公园，印度 (© Andy Rouse/Minden Pictures)](https://www.bing.com/th?id=OHR.TigerIndia_ZH-CN6657629375_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ParisLouvre_EN-US2282259448_UHD.jpg&w=1000)Today: [Arc de Triomphe du Carrousel and Louvre Pyramid, Paris, France (© Jon Hicks/Getty Images)](https://www.bing.com/th?id=OHR.ParisLouvre_EN-US2282259448_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SanBlasIslands_EN-US1442226155_UHD.jpg&w=1000)Today: [San Blas Islands, Panama (© bgremler/Shutterstock)](https://www.bing.com/th?id=OHR.SanBlasIslands_EN-US1442226155_UHD.jpg)
 <br><br/>
