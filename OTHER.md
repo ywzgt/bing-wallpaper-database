@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SanBlasIslands_JA-JP8202998068_UHD.jpg&w=1000)今日の壁紙: &nbsp;[サンブラス諸島, パナマ (© bgremler/Shutterstock)](https://www.bing.com/th?id=OHR.SanBlasIslands_JA-JP8202998068_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TigerIndia_JA-JP8434138959_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ランタンボール国立公園で水浴びするベンガルトラ, インド (© Andy Rouse/Minden Pictures)](https://www.bing.com/th?id=OHR.TigerIndia_JA-JP8434138959_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SanBlasIslands_FR-FR9472873126_UHD.jpg&w=1000)Today: [Îles San Blas, Panama (© bgremler/Shutterstock)](https://www.bing.com/th?id=OHR.SanBlasIslands_FR-FR9472873126_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PandiZucchero_IT-IT1428407618_UHD.jpg&w=1000)Today: [Faraglione Pan di Zucchero, Sardegna, Italia (© DaLiu/Getty Images)](https://www.bing.com/th?id=OHR.PandiZucchero_IT-IT1428407618_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ParisLouvre_PT-BR8482721698_UHD.jpg&w=1000)Today: [Arco do Triunfo do Carrossel e Pirâmide do Louvre, em Paris, na França  (© Jon Hicks/Getty Images)](https://www.bing.com/th?id=OHR.ParisLouvre_PT-BR8482721698_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SanBlasIslands_PT-BR0401979810_UHD.jpg&w=1000)Today: [Ilhas San Blas, Panamá (© bgremler/Shutterstock)](https://www.bing.com/th?id=OHR.SanBlasIslands_PT-BR0401979810_UHD.jpg)
 <br><br/>
