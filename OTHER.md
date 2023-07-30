@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.PalouseHills_JA-JP8664881867_UHD.jpg&w=1000)今日の壁紙: &nbsp;[パルース丘陵, 米国 ワシントン州 (© EJ-J/Getty Images)](https://www.bing.com/th?id=OHR.PalouseHills_JA-JP8664881867_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RockHouse_JA-JP8879635056_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ホッキングヒルズ州立公園にある洞窟, 米国 オハイオ州 (© Kenneth Keifer/Getty Images)](https://www.bing.com/th?id=OHR.RockHouse_JA-JP8879635056_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PalouseHills_FR-FR4301002543_UHD.jpg&w=1000)Today: [Terres agricoles dans la région de Palouse, Washington, États-Unis (© EJ-J/Getty Images)](https://www.bing.com/th?id=OHR.PalouseHills_FR-FR4301002543_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PalouseHills_IT-IT1015358131_UHD.jpg&w=1000)Today: [Terreni agricoli nel Palouse, Washington, Stati Uniti (© EJ-J/Getty Images)](https://www.bing.com/th?id=OHR.PalouseHills_IT-IT1015358131_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TigerIndia_PT-BR0729553270_UHD.jpg&w=1000)Today: [Tigre de Bengala, Parque Nacional de Ranthambore, Índia (© Andy Rouse/Minden Pictures)](https://www.bing.com/th?id=OHR.TigerIndia_PT-BR0729553270_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PalouseHills_PT-BR1134118082_UHD.jpg&w=1000)Today: [Terras agrícolas em Palouse, Washington (© EJ-J/Getty Images)](https://www.bing.com/th?id=OHR.PalouseHills_PT-BR1134118082_UHD.jpg)
 <br><br/>
