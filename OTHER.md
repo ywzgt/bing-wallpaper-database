@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.RockHouse_JA-JP8879635056_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ホッキングヒルズ州立公園にある洞窟, 米国 オハイオ州 (© Kenneth Keifer/Getty Images)](https://www.bing.com/th?id=OHR.RockHouse_JA-JP8879635056_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PalouseHills_FR-FR4301002543_UHD.jpg&w=1000)Today: [Terres agricoles dans la région de Palouse, Washington, États-Unis (© EJ-J/Getty Images)](https://www.bing.com/th?id=OHR.PalouseHills_FR-FR4301002543_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RockHouse_FR-FR0741762840_UHD.jpg&w=1000)Today: [Rock House, Parc d’État de Hocking Hills, Ohio, États-Unis (© Kenneth Keifer/Getty Images)](https://www.bing.com/th?id=OHR.RockHouse_FR-FR0741762840_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.FoxCubs_DE-DE0132480419_UHD.jpg&w=1000)Today: [Zwei Jungfüchse spielen auf einer Wiese, Deutschland (© Reibertb/Getty Images)](https://www.bing.com/th?id=OHR.FoxCubs_DE-DE0132480419_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RockHouse_DE-DE8842375533_UHD.jpg&w=1000)Today: [Felsenhaus, Hocking Hills State Park, Ohio, USA (© Kenneth Keifer/Getty Images)](https://www.bing.com/th?id=OHR.RockHouse_DE-DE8842375533_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ApostolSantiagoGalicia_ES-ES8270984455_UHD.jpg&w=1000)Today: [Allariz, Orense, Galicia, España (© Brais Seara via Getty Images)](https://www.bing.com/th?id=OHR.ApostolSantiagoGalicia_ES-ES8270984455_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RockHouse_ES-ES2728189388_UHD.jpg&w=1000)Today: [Casa Cueva, Parque Estatal de Hocking Hills, Ohio, EE.UU. (© Kenneth Keifer/Getty Images)](https://www.bing.com/th?id=OHR.RockHouse_ES-ES2728189388_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PalouseHills_EN-GB6935137102_UHD.jpg&w=1000)Today: [Farmland in the Palouse, Washington (© EJ-J/Getty Images)](https://www.bing.com/th?id=OHR.PalouseHills_EN-GB6935137102_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RockHouse_EN-GB7594374263_UHD.jpg&w=1000)Today: [Rock House, Hocking Hills State Park, Ohio (© Kenneth Keifer/Getty Images)](https://www.bing.com/th?id=OHR.RockHouse_EN-GB7594374263_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PalouseHills_IT-IT1015358131_UHD.jpg&w=1000)Today: [Terreni agricoli nel Palouse, Washington, Stati Uniti (© EJ-J/Getty Images)](https://www.bing.com/th?id=OHR.PalouseHills_IT-IT1015358131_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RockHouse_IT-IT3726334751_UHD.jpg&w=1000)Today: [Casa nella roccia, Parco nazionale di Hocking Hills, Ohio  (© Kenneth Keifer/Getty Images)](https://www.bing.com/th?id=OHR.RockHouse_IT-IT3726334751_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PalouseHills_PT-BR1134118082_UHD.jpg&w=1000)Today: [Terras agrícolas em Palouse, Washington (© EJ-J/Getty Images)](https://www.bing.com/th?id=OHR.PalouseHills_PT-BR1134118082_UHD.jpg)
 <br><br/>
