@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.DenaliClimber_ZH-CN7548168932_UHD.jpg&w=1000)今日图片: &nbsp;[从德纳里山看福克拉山，德纳里国家公园，美国阿拉斯加州 (© Andrew Peacock/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.DenaliClimber_ZH-CN7548168932_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CapitolButte_ZH-CN7707972988_UHD.jpg&w=1000)今日图片: &nbsp;[圆顶礁国家公园的砂岩山丘，犹他州，美国 (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.CapitolButte_ZH-CN7707972988_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RockHouse_EN-US1852534234_UHD.jpg&w=1000)Today: [Rock House, Hocking Hills State Park, Ohio (© Kenneth Keifer/Getty Images)](https://www.bing.com/th?id=OHR.RockHouse_EN-US1852534234_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DenaliClimber_EN-US1974827525_UHD.jpg&w=1000)Today: [Climber on Denali, Denali National Park, Alaska (© Andrew Peacock/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.DenaliClimber_EN-US1974827525_UHD.jpg)
 <br><br/>
