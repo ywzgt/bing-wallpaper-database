@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_UHD.jpg&w=1000)今日图片: &nbsp;[廷特恩修道院，威尔士 (© matthibcn/Getty Images)](https://www.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_UHD.jpg&w=1000)今日图片: &nbsp;[大西洋海鹦，冰岛 (© Peter Hering/Minden Pictures)](https://www.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ZelenciSprings_EN-US2246293953_UHD.jpg&w=1000)Today: [Zelenci Nature Reserve, Slovenia (© Andrey Danilovich/Getty Images)](https://www.bing.com/th?id=OHR.ZelenciSprings_EN-US2246293953_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GothicRuins_EN-US2341737381_UHD.jpg&w=1000)Today: [Tintern Abbey, Wales (© matthibcn/Getty Images)](https://www.bing.com/th?id=OHR.GothicRuins_EN-US2341737381_UHD.jpg)
 <br><br/>
