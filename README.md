@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.NaganoPond_ZH-CN8794832798_UHD.jpg&w=1000)今日图片: &nbsp;[镜池，长野，日本 (© Shoji Fujita/Getty Images)](https://www.bing.com/th?id=OHR.NaganoPond_ZH-CN8794832798_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_UHD.jpg&w=1000)今日图片: &nbsp;[博迪岛灯塔，马头城，北卡罗来纳州，美国 (© Michael Ver Sprill/Getty Images)](https://www.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AtlanticPuffin_EN-US6337041297_UHD.jpg&w=1000)Today: [Atlantic puffin, Iceland (© Peter Hering/Minden Pictures)](https://www.bing.com/th?id=OHR.AtlanticPuffin_EN-US6337041297_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NaganoPond_EN-US2600828175_UHD.jpg&w=1000)Today: [Kagami-ike (Mirror Pond), Nagano, Japan (© Shoji Fujita/Getty Images)](https://www.bing.com/th?id=OHR.NaganoPond_EN-US2600828175_UHD.jpg)
 <br><br/>
