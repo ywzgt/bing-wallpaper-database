@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.WorldLionDay_JA-JP2089324096_UHD.jpg&w=1000)今日の壁紙: &nbsp;[マサイマラ国立保護区のライオン, ケニア (© Scott Davis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.WorldLionDay_JA-JP2089324096_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MountainDay2023_JA-JP1098960867_UHD.jpg&w=1000)今日の壁紙: &nbsp;[夏の立山, 富山県 (© yasuki/Adobe Stock)](https://www.bing.com/th?id=OHR.MountainDay2023_JA-JP1098960867_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.WorldLionDay_FR-FR2264324589_UHD.jpg&w=1000)Today: [Lion au Masaï Mara, Kenya (© Scott Davis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.WorldLionDay_FR-FR2264324589_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SanLorenzo_IT-IT6813005251_UHD.jpg&w=1000)Today: [Notte di San Lorenzo (© Francesco De Marco/Shutterstock)](https://www.bing.com/th?id=OHR.SanLorenzo_IT-IT6813005251_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BathurstArt_PT-BR5938630917_UHD.jpg&w=1000)Today: [Arte indígena, Centro de Arte Ngaruwanajirri, Wurrumiyanga, Ilha Bathurst, Austrália (© Robert Wyatt/Alamy)](https://www.bing.com/th?id=OHR.BathurstArt_PT-BR5938630917_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WorldLionDay_PT-BR6297113107_UHD.jpg&w=1000)Today: [Um leão no Maasai Mara, no Quênia (© Scott Davis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.WorldLionDay_PT-BR6297113107_UHD.jpg)
 <br><br/>
