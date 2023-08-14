@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.KeyWestBridge_JA-JP1406003340_UHD.jpg&w=1000)今日の壁紙: &nbsp;[セブンマイル・ブリッジ, 米国 フロリダ州 (© Evgeny Vasenev/Cavan Images)](https://www.bing.com/th?id=OHR.KeyWestBridge_JA-JP1406003340_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TaorminaSquare_JA-JP1602272680_UHD.jpg&w=1000)今日の壁紙: &nbsp;[4 月 9 日広場, イタリア シチリア自治州 (© rudi1976/Alamy)](https://www.bing.com/th?id=OHR.TaorminaSquare_JA-JP1602272680_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.VerdonCanyon_FR-FR4159848707_UHD.jpg&w=1000)Today: [Canyon des gorges du Verdon, Provence-Alpes-Côte d’Azur (© luisapuccini/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.VerdonCanyon_FR-FR4159848707_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.GeckoLeaf_IT-IT8317437276_UHD.jpg&w=1000)Today: [Piccolo geco su una foglia  (© Darren Greenwood/Alamy)](https://www.bing.com/th?id=OHR.GeckoLeaf_IT-IT8317437276_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PerseidsOregon_PT-BR3992857450_UHD.jpg&w=1000)Today: [Chuva de meteoros Perseidas, Cottonwood Canyon State Park, Oregon, nos EUA (© Joshua Meador/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.PerseidsOregon_PT-BR3992857450_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GeckoLeaf_PT-BR4941282205_UHD.jpg&w=1000)Today: [Lagartixa minúscula na lança da folha (© Darren Greenwood/Alamy)](https://www.bing.com/th?id=OHR.GeckoLeaf_PT-BR4941282205_UHD.jpg)
 <br><br/>
