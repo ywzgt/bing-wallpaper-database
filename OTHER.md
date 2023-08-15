@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TaorminaSquare_JA-JP1602272680_UHD.jpg&w=1000)今日の壁紙: &nbsp;[4 月 9 日広場, イタリア シチリア自治州 (© rudi1976/Alamy)](https://www.bing.com/th?id=OHR.TaorminaSquare_JA-JP1602272680_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GozanOkuribi2023_JA-JP6571429669_UHD.jpg&w=1000)今日の壁紙: &nbsp;[東山・大文字山の送り火, 京都 (© gyro/Getty Images)](https://www.bing.com/th?id=OHR.GozanOkuribi2023_JA-JP6571429669_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TaorminaSquare_FR-FR4421345533_UHD.jpg&w=1000)Today: [Place du IX Avril, Taormina, Sicile, Italie (© rudi1976/Alamy)](https://www.bing.com/th?id=OHR.TaorminaSquare_FR-FR4421345533_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.LaMaddalena_IT-IT0405976334_UHD.jpg&w=1000)Today: [La Maddalena, Cala Coticcio, Sardegna, Italia (© Getty Images)](https://www.bing.com/th?id=OHR.LaMaddalena_IT-IT0405976334_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GeckoLeaf_PT-BR4941282205_UHD.jpg&w=1000)Today: [Lagartixa minúscula na lança da folha (© Darren Greenwood/Alamy)](https://www.bing.com/th?id=OHR.GeckoLeaf_PT-BR4941282205_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TaorminaSquare_PT-BR4606680461_UHD.jpg&w=1000)Today: [Piazza IX Aprile, Taormina, Sicília, na Itália (© rudi1976/Alamy)](https://www.bing.com/th?id=OHR.TaorminaSquare_PT-BR4606680461_UHD.jpg)
 <br><br/>

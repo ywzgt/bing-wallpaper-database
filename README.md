@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_UHD.jpg&w=1000)今日图片: &nbsp;[四月九日广场，陶尔米纳，西西里岛，意大利 (© rudi1976/Alamy)](https://www.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_UHD.jpg&w=1000)今日图片: &nbsp;[基韦斯特的七英里大桥，佛罗里达州，美国 (© Evgeny Vasenev/Cavan Images)](https://www.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GeckoLeaf_EN-US4138920498_UHD.jpg&w=1000)Today: [Tiny gecko on a leaf (© Darren Greenwood/Alamy)](https://www.bing.com/th?id=OHR.GeckoLeaf_EN-US4138920498_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TaorminaSquare_EN-US9553838481_UHD.jpg&w=1000)Today: [Piazza IX Aprile, Taormina, Sicily, Italy (© rudi1976/Alamy)](https://www.bing.com/th?id=OHR.TaorminaSquare_EN-US9553838481_UHD.jpg)
 <br><br/>
