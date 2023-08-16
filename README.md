@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_UHD.jpg&w=1000)今日图片: &nbsp;[基韦斯特的七英里大桥，佛罗里达州，美国 (© Evgeny Vasenev/Cavan Images)](https://www.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_UHD.jpg&w=1000)今日图片: &nbsp;[罕肯瀑布,威尔斯格雷省立公园, 加拿大不列颠哥伦比亚省 (© Laurens Verhoeven/Getty Images)](https://www.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TaorminaSquare_EN-US9553838481_UHD.jpg&w=1000)Today: [Piazza IX Aprile, Taormina, Sicily, Italy (© rudi1976/Alamy)](https://www.bing.com/th?id=OHR.TaorminaSquare_EN-US9553838481_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KeyWestBridge_EN-US9752501933_UHD.jpg&w=1000)Today: [Overseas Highway in the Florida Keys (© Evgeny Vasenev/Cavan Images)](https://www.bing.com/th?id=OHR.KeyWestBridge_EN-US9752501933_UHD.jpg)
 <br><br/>

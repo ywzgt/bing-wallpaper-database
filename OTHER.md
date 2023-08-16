@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.GozanOkuribi2023_JA-JP6571429669_UHD.jpg&w=1000)今日の壁紙: &nbsp;[東山・大文字山の送り火, 京都 (© gyro/Getty Images)](https://www.bing.com/th?id=OHR.GozanOkuribi2023_JA-JP6571429669_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_JA-JP3274643778_UHD.jpg&w=1000)今日の壁紙: &nbsp;[グラスランズ国立公園, カナダ サスカチュワン州 (© Robert Postma/Getty Images)](https://www.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_JA-JP3274643778_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.KeyWestBridge_FR-FR4621663062_UHD.jpg&w=1000)Today: [Pont Seven Mile à Key West, Floride, États-Unis (© Evgeny Vasenev/Cavan Images)](https://www.bing.com/th?id=OHR.KeyWestBridge_FR-FR4621663062_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.KeyWestBridge_IT-IT1027953700_UHD.jpg&w=1000)Today: [Seven Mile Bridge di Key West, Florida, Stati Uniti (© Evgeny Vasenev/Cavan Images)](https://www.bing.com/th?id=OHR.KeyWestBridge_IT-IT1027953700_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TaorminaSquare_PT-BR4606680461_UHD.jpg&w=1000)Today: [Piazza IX Aprile, Taormina, Sicília, na Itália (© rudi1976/Alamy)](https://www.bing.com/th?id=OHR.TaorminaSquare_PT-BR4606680461_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KeyWestBridge_PT-BR4840240790_UHD.jpg&w=1000)Today: [Seven Mile Bridge em Key West, Flórida, nos EUA (© Evgeny Vasenev/Cavan Images)](https://www.bing.com/th?id=OHR.KeyWestBridge_PT-BR4840240790_UHD.jpg)
 <br><br/>
