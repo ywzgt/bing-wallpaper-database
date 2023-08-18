@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AvatarMountain_JA-JP2526230045_UHD.jpg&w=1000)今日の壁紙: &nbsp;[張家界国家森林公園, 中国 湖南省 (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.AvatarMountain_JA-JP2526230045_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CameraSquirrel_JA-JP2800387213_UHD.jpg&w=1000)今日の壁紙: &nbsp;[カメラを覗き込んでいるリス (© Alfredo Piedrafita/Getty Images)](https://www.bing.com/th?id=OHR.CameraSquirrel_JA-JP2800387213_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AvatarMountain_FR-FR5022202394_UHD.jpg&w=1000)Today: [Montagnes du film “Avatar”, Parc national forestier de Zhangjiajie, Chine (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.AvatarMountain_FR-FR5022202394_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AvatarMountain_IT-IT2135106636_UHD.jpg&w=1000)Today: ['Montagne di Avatar ', Parco forestale nazionale Zhangjiajie, Cina (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.AvatarMountain_IT-IT2135106636_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CamelsAbove_PT-BR2394632603_UHD.jpg&w=1000)Today: [Camelos no deserto, Emirados Árabes Unidos (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.CamelsAbove_PT-BR2394632603_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AvatarMountain_PT-BR6129685721_UHD.jpg&w=1000)Today: ['Montanhas Avatar', Parque Florestal Nacional de Zhangjiajie, China (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.AvatarMountain_PT-BR6129685721_UHD.jpg)
 <br><br/>
