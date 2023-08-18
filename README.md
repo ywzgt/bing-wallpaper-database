@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AvatarMountain_ZH-CN3268610045_UHD.jpg&w=1000)今日图片: &nbsp;[哈利路亚山，张家界国家森林公园，中国 (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.AvatarMountain_ZH-CN3268610045_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_UHD.jpg&w=1000)今日图片: &nbsp;[看着相机镜头的松鼠 (© Alfredo Piedrafita/Getty Images)](https://www.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SequoiaSunlight_EN-US6214316930_UHD.jpg&w=1000)Today: [Giant sequoia trees in Sequoia and Kings Canyon National Parks, California (© lucky-photographer/Getty Images)](https://www.bing.com/th?id=OHR.SequoiaSunlight_EN-US6214316930_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AvatarMountain_EN-US0084042494_UHD.jpg&w=1000)Today: ['Avatar Mountains,' Zhangjiajie National Forest Park, China (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.AvatarMountain_EN-US0084042494_UHD.jpg)
 <br><br/>
