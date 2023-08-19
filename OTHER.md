@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.CameraSquirrel_JA-JP2800387213_UHD.jpg&w=1000)今日の壁紙: &nbsp;[カメラを覗き込んでいるリス (© Alfredo Piedrafita/Getty Images)](https://www.bing.com/th?id=OHR.CameraSquirrel_JA-JP2800387213_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.StartPointLight_JA-JP3029099538_UHD.jpg&w=1000)今日の壁紙: &nbsp;[スタートポイント灯台, イングランド デヴォン州 (© Guy Edwardes/Minden Pictures)](https://www.bing.com/th?id=OHR.StartPointLight_JA-JP3029099538_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.Morbihan_FR-FR5973672727_UHD.jpg&w=1000)Today: [Alignements de Carnac, Golfe du Morbihan, France (© Guy Ozenne/Getty Images)](https://www.bing.com/th?id=OHR.Morbihan_FR-FR5973672727_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CameraSquirrel_IT-IT9208434870_UHD.jpg&w=1000)Today: [Scoiattolo che guarda nell'obiettivo di una macchina fotografica (© Alfredo Piedrafita/Getty Images)](https://www.bing.com/th?id=OHR.CameraSquirrel_IT-IT9208434870_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AvatarMountain_PT-BR6129685721_UHD.jpg&w=1000)Today: ['Montanhas Avatar', Parque Florestal Nacional de Zhangjiajie, China (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.AvatarMountain_PT-BR6129685721_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CameraSquirrel_PT-BR6385198760_UHD.jpg&w=1000)Today: [Esquilo olhando na lente de uma câmera (© Alfredo Piedrafita/Getty Images)](https://www.bing.com/th?id=OHR.CameraSquirrel_PT-BR6385198760_UHD.jpg)
 <br><br/>
