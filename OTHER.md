@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.StartPointLight_JA-JP3029099538_UHD.jpg&w=1000)今日の壁紙: &nbsp;[スタートポイント灯台, イングランド デヴォン州 (© Guy Edwardes/Minden Pictures)](https://www.bing.com/th?id=OHR.StartPointLight_JA-JP3029099538_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EmeraldLakeYukon_JA-JP3388151344_UHD.jpg&w=1000)今日の壁紙: &nbsp;[エメラルド湖, カナダ ユーコン準州 (© artherng/Getty Images)](https://www.bing.com/th?id=OHR.EmeraldLakeYukon_JA-JP3388151344_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.StartPointLight_FR-FR6228676554_UHD.jpg&w=1000)Today: [Phare de Start Point, Devon, Angleterre (© Guy Edwardes/Minden Pictures)](https://www.bing.com/th?id=OHR.StartPointLight_FR-FR6228676554_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.StartPointLight_IT-IT8401220658_UHD.jpg&w=1000)Today: [Faro di Start Point, South Devon, Inghilterra (© Guy Edwardes/Minden Pictures)](https://www.bing.com/th?id=OHR.StartPointLight_IT-IT8401220658_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CameraSquirrel_PT-BR6385198760_UHD.jpg&w=1000)Today: [Esquilo olhando na lente de uma câmera (© Alfredo Piedrafita/Getty Images)](https://www.bing.com/th?id=OHR.CameraSquirrel_PT-BR6385198760_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.StartPointLight_PT-BR6638873206_UHD.jpg&w=1000)Today: [Farol de Start Point, South Devon, na Inglaterra (© Guy Edwardes/Minden Pictures)](https://www.bing.com/th?id=OHR.StartPointLight_PT-BR6638873206_UHD.jpg)
 <br><br/>
