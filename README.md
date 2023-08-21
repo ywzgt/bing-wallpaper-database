@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_UHD.jpg&w=1000)今日图片: &nbsp;[翡翠湖，加拿大育空地区 (© artherng/Getty Images)](https://www.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_UHD.jpg&w=1000)今日图片: &nbsp;[埃尔杰姆露天剧场，突尼斯 (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.StartPointLight_EN-US0323042936_UHD.jpg&w=1000)Today: [Start Point Lighthouse, South Devon, England (© Guy Edwardes/Minden Pictures)](https://www.bing.com/th?id=OHR.StartPointLight_EN-US0323042936_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EmeraldLakeYukon_EN-US0522450551_UHD.jpg&w=1000)Today: [Emerald Lake, South Klondike Highway, Yukon, Canada (© artherng/Getty Images)](https://www.bing.com/th?id=OHR.EmeraldLakeYukon_EN-US0522450551_UHD.jpg)
 <br><br/>
