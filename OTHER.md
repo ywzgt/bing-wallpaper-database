@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TunisiaAmphitheatre_JA-JP3594728371_UHD.jpg&w=1000)今日の壁紙: &nbsp;[エル・ジェムの円形闘技場, チュニジア (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.TunisiaAmphitheatre_JA-JP3594728371_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SkogafossWaterfall_JA-JP3872290062_UHD.jpg&w=1000)今日の壁紙: &nbsp;[スコゥガフォス, アイスランド (© Maridav/Shutterstock)](https://www.bing.com/th?id=OHR.SkogafossWaterfall_JA-JP3872290062_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TunisiaAmphitheatre_FR-FR8757841243_UHD.jpg&w=1000)Today: [Amphithéâtre d'El Jem, Tunisie (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.TunisiaAmphitheatre_FR-FR8757841243_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TunisiaAmphitheatre_IT-IT5133645566_UHD.jpg&w=1000)Today: [Anfiteatro di El Jem, Tunisia (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.TunisiaAmphitheatre_IT-IT5133645566_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.EmeraldLakeYukon_PT-BR6870373450_UHD.jpg&w=1000)Today: [Lago Esmeralda, South Klondike Highway, Yukon, no Canadá (© artherng/Getty Images)](https://www.bing.com/th?id=OHR.EmeraldLakeYukon_PT-BR6870373450_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TunisiaAmphitheatre_PT-BR7158376086_UHD.jpg&w=1000)Today: [Anfiteatro de El Jem, na Tunísia (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.TunisiaAmphitheatre_PT-BR7158376086_UHD.jpg)
 <br><br/>
