@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SkogafossWaterfall_JA-JP3872290062_UHD.jpg&w=1000)今日の壁紙: &nbsp;[スコゥガフォス, アイスランド (© Maridav/Shutterstock)](https://www.bing.com/th?id=OHR.SkogafossWaterfall_JA-JP3872290062_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SharkFinCove_JA-JP4634646966_UHD.jpg&w=1000)今日の壁紙: &nbsp;[シャーク・フィン・コーブ, 米国 カリフォルニア州 (© Jeff Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SharkFinCove_JA-JP4634646966_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SkogafossWaterfall_FR-FR9583984450_UHD.jpg&w=1000)Today: [Chute d'eau de Skógafoss, Islande (© Maridav/Shutterstock)](https://www.bing.com/th?id=OHR.SkogafossWaterfall_FR-FR9583984450_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SkogafossWaterfall_IT-IT4739675900_UHD.jpg&w=1000)Today: [Cascata di Skógafoss, Islanda (© Maridav/Shutterstock)](https://www.bing.com/th?id=OHR.SkogafossWaterfall_IT-IT4739675900_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TunisiaAmphitheatre_PT-BR7158376086_UHD.jpg&w=1000)Today: [Anfiteatro de El Jem, na Tunísia (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.TunisiaAmphitheatre_PT-BR7158376086_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SkogafossWaterfall_PT-BR7394704213_UHD.jpg&w=1000)Today: [Cachoeira Skógafoss, na Islândia (© Maridav/Shutterstock)](https://www.bing.com/th?id=OHR.SkogafossWaterfall_PT-BR7394704213_UHD.jpg)
 <br><br/>
