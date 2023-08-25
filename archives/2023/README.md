@@ -1,1 +1,1 @@
-08/25.global.md
+08/26.global.md
