@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.JejuIsland_JA-JP7046094436_UHD.jpg&w=1000)今日の壁紙: &nbsp;[済州島の城山日出峰, 韓国 (© Quynh Anh Nguyen/Getty Images)](https://www.bing.com/th?id=OHR.JejuIsland_JA-JP7046094436_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DubrovnikHarbor_JA-JP7478363701_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ドゥブロヴニク, クロアチア (© Benny Marty/Shutterstock)](https://www.bing.com/th?id=OHR.DubrovnikHarbor_JA-JP7478363701_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.JejuIsland_FR-FR0042258249_UHD.jpg&w=1000)Today: [Seongsan Ilchulbong, cône de tuf de l’île de Jeju, Corée du Sud (© Quynh Anh Nguyen/Getty Images)](https://www.bing.com/th?id=OHR.JejuIsland_FR-FR0042258249_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.RagusaIbla_IT-IT6191963185_UHD.jpg&w=1000)Today: [Veduta della città di Ragusa Ibla, città patrimonio dell'UNESCO (© DaLiu/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.RagusaIbla_IT-IT6191963185_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MuseumIsland_PT-BR8963448703_UHD.jpg&w=1000)Today: [Catedral de Berlim e Ilha dos Museus, Berlim, Alemanha (© Rudy Balasko/Shutterstock)](https://www.bing.com/th?id=OHR.MuseumIsland_PT-BR8963448703_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JejuIsland_PT-BR9709424448_UHD.jpg&w=1000)Today: [Seongsan Ilchulbong, um cone de tufo na Ilha de Jeju, Coreia do Sul (© Quynh Anh Nguyen/Getty Images)](https://www.bing.com/th?id=OHR.JejuIsland_PT-BR9709424448_UHD.jpg)
 <br><br/>
