@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TetonBison_ZH-CN9384306649_UHD.jpg&w=1000)今日图片: &nbsp;[美洲野牛，大提顿国家公园，怀俄明州 (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.TetonBison_ZH-CN9384306649_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NingalooShark_ZH-CN9014712175_UHD.jpg&w=1000)今日图片: &nbsp;[鲸鲨，宁加洛珊瑚礁，西澳大利亚 (© Jason Edwards/Getty Images)](https://www.bing.com/th?id=OHR.NingalooShark_ZH-CN9014712175_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DubrovnikHarbor_EN-US2498064362_UHD.jpg&w=1000)Today: [Fort Lovrijenac, West Harbor, Dubrovnik, Croatia (© Benny Marty/Shutterstock)](https://www.bing.com/th?id=OHR.DubrovnikHarbor_EN-US2498064362_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TetonBison_EN-US5358590688_UHD.jpg&w=1000)Today: [American bison in Grand Teton National Park, Wyoming (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.TetonBison_EN-US5358590688_UHD.jpg)
 <br><br/>
