@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.NingalooShark_ZH-CN9014712175_UHD.jpg&w=1000)今日图片: &nbsp;[鲸鲨，宁加洛珊瑚礁，西澳大利亚 (© Jason Edwards/Getty Images)](https://www.bing.com/th?id=OHR.NingalooShark_ZH-CN9014712175_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IronwoodCactus_ZH-CN9290037977_UHD.jpg&w=1000)今日图片: &nbsp;[巨人柱，铁木森林国家纪念地，亚利桑那州，美国 (© Jack Dykinga/Minden Pictures)](https://www.bing.com/th?id=OHR.IronwoodCactus_ZH-CN9290037977_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TetonBison_EN-US5358590688_UHD.jpg&w=1000)Today: [American bison in Grand Teton National Park, Wyoming (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.TetonBison_EN-US5358590688_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NingalooShark_EN-US2673625094_UHD.jpg&w=1000)Today: [Whale shark, Ningaloo Reef, Western Australia (© Jason Edwards/Getty Images)](https://www.bing.com/th?id=OHR.NingalooShark_EN-US2673625094_UHD.jpg)
 <br><br/>
