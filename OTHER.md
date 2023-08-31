@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.IronwoodCactus_JA-JP8293481561_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アイアンウッドフォレスト国定公園, 米国 アリゾナ州 (© Jack Dykinga/Minden Pictures)](https://www.bing.com/th?id=OHR.IronwoodCactus_JA-JP8293481561_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.NingalooShark_FR-FR1267107325_UHD.jpg&w=1000)Today: [Requin-baleine, récif de Ningaloo, Australie occidentale (© Jason Edwards/Getty Images)](https://www.bing.com/th?id=OHR.NingalooShark_FR-FR1267107325_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IronwoodCactus_FR-FR2301952997_UHD.jpg&w=1000)Today: [Cactus Saguaro, Ironwood National Monument, Arizona, États-Unis (© Jack Dykinga/Minden Pictures)](https://www.bing.com/th?id=OHR.IronwoodCactus_FR-FR2301952997_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.NingalooShark_DE-DE6573151950_UHD.jpg&w=1000)Today: [Walhai, Ningaloo-Riff, Westaustralien (© Jason Edwards/Getty Images)](https://www.bing.com/th?id=OHR.NingalooShark_DE-DE6573151950_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CassiusFlorentius_DE-DE8060490789_UHD.jpg&w=1000)Today: [Köpfe des Heiligen Cassius und Florentius vor dem Bonner Münster, Bonn (© Peter Unger/Getty images)](https://www.bing.com/th?id=OHR.CassiusFlorentius_DE-DE8060490789_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.NingalooShark_ES-ES4277361949_UHD.jpg&w=1000)Today: [Tiburón ballena, Arrecife Ningaloo, Australia Occidental (© Jason Edwards/Getty Images)](https://www.bing.com/th?id=OHR.NingalooShark_ES-ES4277361949_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IronwoodCactus_ES-ES4399804211_UHD.jpg&w=1000)Today: [Cactus saguaro, Monumento Nacional Ironwood, Arizona, EE.UU. (© Jack Dykinga/Minden Pictures)](https://www.bing.com/th?id=OHR.IronwoodCactus_ES-ES4399804211_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.NingalooShark_EN-GB2488880393_UHD.jpg&w=1000)Today: [Whale shark, Ningaloo Reef, Western Australia (© Jason Edwards/Getty Images)](https://www.bing.com/th?id=OHR.NingalooShark_EN-GB2488880393_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IronwoodCactus_EN-GB2435607805_UHD.jpg&w=1000)Today: [Saguaro cacti, Ironwood National Monument, Arizona (© Jack Dykinga/Minden Pictures)](https://www.bing.com/th?id=OHR.IronwoodCactus_EN-GB2435607805_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.NingalooShark_IT-IT4786204671_UHD.jpg&w=1000)Today: [Squalo balena, Ningaloo Reef, Australia occidentale (© Jason Edwards/Getty Images)](https://www.bing.com/th?id=OHR.NingalooShark_IT-IT4786204671_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IronwoodCactus_IT-IT9614113737_UHD.jpg&w=1000)Today: [Cactus Saguaro, Monumento Nazionale di Ironwood, Arizona (© Jack Dykinga/Minden Pictures)](https://www.bing.com/th?id=OHR.IronwoodCactus_IT-IT9614113737_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.NingalooShark_PT-BR6162667843_UHD.jpg&w=1000)Today: [Tubarão-baleia, Ningaloo Reef, Austrália Ocidental (© Jason Edwards/Getty Images)](https://www.bing.com/th?id=OHR.NingalooShark_PT-BR6162667843_UHD.jpg)
 <br><br/>
