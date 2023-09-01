@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TurkeyTailMush_ZH-CN9683744281_UHD.jpg&w=1000)今日图片: &nbsp;[火鸡尾蘑菇，布里瓦德，北卡罗来纳州，美国 (© Bill Gozansky/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.TurkeyTailMush_ZH-CN9683744281_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TinyHummer_ZH-CN9853929957_UHD.jpg&w=1000)今日图片: &nbsp;[艾氏煌蜂鸟，圣克鲁斯，加利福尼亚州，美国 (© mallardg500/Getty Images)](https://www.bing.com/th?id=OHR.TinyHummer_ZH-CN9853929957_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.IronwoodCactus_EN-US2823371711_UHD.jpg&w=1000)Today: [Saguaro cacti, Ironwood National Monument, Arizona (© Jack Dykinga/Minden Pictures)](https://www.bing.com/th?id=OHR.IronwoodCactus_EN-US2823371711_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TurkeyTailMush_EN-US2958542405_UHD.jpg&w=1000)Today: [Turkey tail mushroom, Brevard, North Carolina (© Bill Gozansky/Alamy)](https://www.bing.com/th?id=OHR.TurkeyTailMush_EN-US2958542405_UHD.jpg)
 <br><br/>
