@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TinyHummer_ZH-CN9853929957_UHD.jpg&w=1000)今日图片: &nbsp;[艾氏煌蜂鸟，圣克鲁斯，加利福尼亚州，美国 (© mallardg500/Getty Images)](https://www.bing.com/th?id=OHR.TinyHummer_ZH-CN9853929957_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ManhattanAerial_ZH-CN0036686873_UHD.jpg&w=1000)今日图片: &nbsp;[曼哈顿鸟瞰图，纽约市，美国 (© Wojtek Zagorski/Getty Images)](https://www.bing.com/th?id=OHR.ManhattanAerial_ZH-CN0036686873_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TurkeyTailMush_EN-US2958542405_UHD.jpg&w=1000)Today: [Turkey tail mushroom, Brevard, North Carolina (© Bill Gozansky/Alamy)](https://www.bing.com/th?id=OHR.TurkeyTailMush_EN-US2958542405_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TinyHummer_EN-US3171586787_UHD.jpg&w=1000)Today: [Allen's hummingbird, Santa Cruz, California (© mallardg500/Getty Images)](https://www.bing.com/th?id=OHR.TinyHummer_EN-US3171586787_UHD.jpg)
 <br><br/>
