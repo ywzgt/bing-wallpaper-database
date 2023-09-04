@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BourgesMarsh_ZH-CN0505354655_UHD.jpg&w=1000)今日图片: &nbsp;[布尔日的沼泽，法国 (© Tuul & Bruno Morandi/Getty Images)](https://www.bing.com/th?id=OHR.BourgesMarsh_ZH-CN0505354655_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MountSegla_ZH-CN0758615745_UHD.jpg&w=1000)今日图片: &nbsp;[塞格拉山，塞尼亚岛，挪威 (© imageBROKER/Moritz Wolf/Getty Images)](https://www.bing.com/th?id=OHR.MountSegla_ZH-CN0758615745_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ManhattanAerial_EN-US3290111355_UHD.jpg&w=1000)Today: [Aerial view of Manhattan, New York City (© Wojtek Zagorski/Getty Images)](https://www.bing.com/th?id=OHR.ManhattanAerial_EN-US3290111355_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LaborDayWorkers_EN-US3448430770_UHD.jpg&w=1000)Today: [Construction workers on scaffolding (© Bits and Splits/Shutterstock)](https://www.bing.com/th?id=OHR.LaborDayWorkers_EN-US3448430770_UHD.jpg)
 <br><br/>
