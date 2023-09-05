@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MountSegla_ZH-CN0758615745_UHD.jpg&w=1000)今日图片: &nbsp;[塞格拉山，塞尼亚岛，挪威 (© imageBROKER/Moritz Wolf/Getty Images)](https://www.bing.com/th?id=OHR.MountSegla_ZH-CN0758615745_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_UHD.jpg&w=1000)今日图片: &nbsp;[威尼斯旧港，克里特岛，希腊 (© Gatsi/Getty Images)](https://www.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LaborDayWorkers_EN-US3448430770_UHD.jpg&w=1000)Today: [Construction workers on scaffolding (© Bits and Splits/Shutterstock)](https://www.bing.com/th?id=OHR.LaborDayWorkers_EN-US3448430770_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MountSegla_EN-US3570750349_UHD.jpg&w=1000)Today: [Mount Segla, Senja Island, Troms og Finnmark, Norway (© imageBROKER/Moritz Wolf/Getty Images)](https://www.bing.com/th?id=OHR.MountSegla_EN-US3570750349_UHD.jpg)
 <br><br/>
