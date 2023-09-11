@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MarathonMedoc_ZH-CN6649798028_UHD.jpg&w=1000)今日图片: &nbsp;[波尔多葡萄园的日出，法国 (© Esperanza33/Getty Images)](https://www.bing.com/th?id=OHR.MarathonMedoc_ZH-CN6649798028_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NorthSeaStairs_ZH-CN7044471948_UHD.jpg&w=1000)今日图片: &nbsp;[北海日落，诺德多夫，德国 (© Frederick Doerschem/Getty Images)](https://www.bing.com/th?id=OHR.NorthSeaStairs_ZH-CN7044471948_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WalrusSvalbard_EN-US1836032120_UHD.jpg&w=1000)Today: [Walrus pair at sea in Svalbard, Norway (© Mark Smith/Getty Images)](https://www.bing.com/th?id=OHR.WalrusSvalbard_EN-US1836032120_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_UHD.jpg&w=1000)Today: [Brooklyn Bridge with the 'Tribute in Light' installation for 9/11, New York (© ANDREY DENISYUK/Getty Images)](https://www.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_UHD.jpg)
 <br><br/>
