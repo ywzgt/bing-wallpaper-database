@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.NorthSeaStairs_ZH-CN7044471948_UHD.jpg&w=1000)今日图片: &nbsp;[北海日落，诺德多夫，德国 (© Frederick Doerschem/Getty Images)](https://www.bing.com/th?id=OHR.NorthSeaStairs_ZH-CN7044471948_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HemakutaHill_ZH-CN7438439036_UHD.jpg&w=1000)今日图片: &nbsp;[赫马库塔山上的神庙，汉皮，卡纳塔克邦，印度 (© Images of india/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HemakutaHill_ZH-CN7438439036_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_UHD.jpg&w=1000)Today: [Brooklyn Bridge with the 'Tribute in Light' installation for 9/11, New York (© ANDREY DENISYUK/Getty Images)](https://www.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NorthSeaStairs_EN-US2097672090_UHD.jpg&w=1000)Today: [North Sea at sunset, Norddorf, Amrum Island, Germany (© Frederick Doerschem/Getty Images)](https://www.bing.com/th?id=OHR.NorthSeaStairs_EN-US2097672090_UHD.jpg)
 <br><br/>
