@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.HemakutaHill_JA-JP9592522804_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ヘーマクータの丘寺院群, インド ハンピ (© Images of india/Alamy)](https://www.bing.com/th?id=OHR.HemakutaHill_JA-JP9592522804_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MongoliaHorses_JA-JP9826935839_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ホスタイ国立公園のモウコノウマ, モンゴル (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.MongoliaHorses_JA-JP9826935839_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.HemakutaHill_FR-FR6222241718_UHD.jpg&w=1000)Today: [Temples sur la colline Hemakuta, Hampi, Karnataka, Inde (© Images of india/Alamy)](https://www.bing.com/th?id=OHR.HemakutaHill_FR-FR6222241718_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.HemakutaHill_IT-IT1160628582_UHD.jpg&w=1000)Today: [Templi sulla collina di Hemakuta, Hampi, Karnataka, India (© Images of india/Alamy)](https://www.bing.com/th?id=OHR.HemakutaHill_IT-IT1160628582_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.NorthSeaStairs_PT-BR3028511993_UHD.jpg&w=1000)Today: [Mar do Norte ao pôr do sol, Norddorf, Ilha Amrum, Alemanha (© Frederick Doerschem/Getty Images)](https://www.bing.com/th?id=OHR.NorthSeaStairs_PT-BR3028511993_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HemakutaHill_PT-BR7948471719_UHD.jpg&w=1000)Today: [Templos em Hemakuta Hill, Hampi, Karnataka, Índia (© Images of india/Alamy)](https://www.bing.com/th?id=OHR.HemakutaHill_PT-BR7948471719_UHD.jpg)
 <br><br/>
