@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.GlenariffForest_ZH-CN7874768337_UHD.jpg&w=1000)今日图片: &nbsp;[格莱纳里夫森林公园的日落，安特里姆郡，爱尔兰 (© Peter Zelei/Getty Images)](https://www.bing.com/th?id=OHR.GlenariffForest_ZH-CN7874768337_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SplugenPass_ZH-CN8347591461_UHD.jpg&w=1000)今日图片: &nbsp;[施布吕根山口，格劳宾登州，瑞士 (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.SplugenPass_ZH-CN8347591461_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MongoliaHorses_EN-US2400199558_UHD.jpg&w=1000)Today: [Przewalski's horses, Hustai National Park, Mongolia (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.MongoliaHorses_EN-US2400199558_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MissionRuins_EN-US2486545022_UHD.jpg&w=1000)Today: [Mission church ruins at Quarai, Salinas Pueblo Missions National Monument, New Mexico (© Thomas Roche/Getty Images)](https://www.bing.com/th?id=OHR.MissionRuins_EN-US2486545022_UHD.jpg)
 <br><br/>
