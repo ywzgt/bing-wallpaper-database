@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SplugenPass_ZH-CN8347591461_UHD.jpg&w=1000)今日图片: &nbsp;[施布吕根山口，格劳宾登州，瑞士 (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.SplugenPass_ZH-CN8347591461_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_UHD.jpg&w=1000)今日图片: &nbsp;[杂色短尾鴗，阿里杰罗德胡波尔德国家公园，古巴 (© Bruno D'Amicis/Minden Pictures)](https://www.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MissionRuins_EN-US2486545022_UHD.jpg&w=1000)Today: [Mission church ruins at Quarai, Salinas Pueblo Missions National Monument, New Mexico (© Thomas Roche/Getty Images)](https://www.bing.com/th?id=OHR.MissionRuins_EN-US2486545022_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OktoberfestWorkers_EN-US5478786117_UHD.jpg&w=1000)Today: [A beer tent at Oktoberfest in Theresienwiese, Munich, Germany (© Peter Kneffel/picture alliance via Getty Images)](https://www.bing.com/th?id=OHR.OktoberfestWorkers_EN-US5478786117_UHD.jpg)
 <br><br/>

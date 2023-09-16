@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SplugenPass_JA-JP0320283828_UHD.jpg&w=1000)今日の壁紙: &nbsp;[シュプリューゲン峠, スイス (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.SplugenPass_JA-JP0320283828_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CubanTody_JA-JP0587764266_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アレハンドロ・デ・フンボルト国立公園のキューバコビトドリ, キューバ (© Bruno D'Amicis/Minden Pictures)](https://www.bing.com/th?id=OHR.CubanTody_JA-JP0587764266_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.OktoberfestWorkers_FR-FR0137764412_UHD.jpg&w=1000)Today: [Toile de fond historique dans une tente lors de l'Oktoberfest à Theresienwiese, Munich, Allemagne (© Peter Kneffel/picture alliance via Getty Images)](https://www.bing.com/th?id=OHR.OktoberfestWorkers_FR-FR0137764412_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SplugenPass_IT-IT3581326681_UHD.jpg&w=1000)Today: [Passo dello Spluga, Svizzera (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.SplugenPass_IT-IT3581326681_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GlenariffForest_PT-BR9967588359_UHD.jpg&w=1000)Today: [Pôr do sol no Glenariff Forest Park, Condado de Antrim, na Irlanda (© Peter Zelei/Getty Images)](https://www.bing.com/th?id=OHR.GlenariffForest_PT-BR9967588359_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SplugenPass_PT-BR0721190806_UHD.jpg&w=1000)Today: [Passo Splügen, Grisões, Suíça (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.SplugenPass_PT-BR0721190806_UHD.jpg)
 <br><br/>
