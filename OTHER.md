@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.AgedDay2023_JA-JP1020086931_UHD.jpg&w=1000)今日の壁紙: &nbsp;[コノハズク, 鳥取県 (© Eric Sohn Joo Tan/Minden)](https://www.bing.com/th?id=OHR.AgedDay2023_JA-JP1020086931_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CubanTody_FR-FR9694698532_UHD.jpg&w=1000)Today: [Todier de Cuba, Parc national Alejandro de Humboldt, Cuba (© Bruno D'Amicis/Minden Pictures)](https://www.bing.com/th?id=OHR.CubanTody_FR-FR9694698532_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MilkyWayPortugal_FR-FR9919070514_UHD.jpg&w=1000)Today: [Voie lactée au-dessus du parc naturel du sud-ouest de l'Alentejo et de la côte vicentine, Portugal (© Daniel Garrido/Getty Images)](https://www.bing.com/th?id=OHR.MilkyWayPortugal_FR-FR9919070514_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CubanTody_DE-DE8542598137_UHD.jpg&w=1000)Today: [Vielfarbentodi, Alexander-von-Humboldt-Nationalpark, Kuba (© Bruno D'Amicis/Minden Pictures)](https://www.bing.com/th?id=OHR.CubanTody_DE-DE8542598137_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MilkyWayPortugal_DE-DE4795035299_UHD.jpg&w=1000)Today: [Milchstraße über dem Naturpark Südwest-Alentejo, Portugal (© Daniel Garrido/Getty Images)](https://www.bing.com/th?id=OHR.MilkyWayPortugal_DE-DE4795035299_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CubanTody_ES-ES8262065568_UHD.jpg&w=1000)Today: [Cartacuba, Parque Nacional Alejandro de Humboldt, Cuba (© Bruno D'Amicis/Minden Pictures)](https://www.bing.com/th?id=OHR.CubanTody_ES-ES8262065568_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MilkyWayPortugal_ES-ES8399966635_UHD.jpg&w=1000)Today: [Vía Láctea sobre el Parque Natural del Sudoeste Alentejano y Costa Vicentina, Portugal (© Daniel Garrido/Getty Images)](https://www.bing.com/th?id=OHR.MilkyWayPortugal_ES-ES8399966635_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CubanTody_EN-GB2696201418_UHD.jpg&w=1000)Today: [Cuban tody, Alejandro de Humboldt National Park, Cuba (© Bruno D'Amicis/Minden Pictures)](https://www.bing.com/th?id=OHR.CubanTody_EN-GB2696201418_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MilkyWayPortugal_EN-GB2637293703_UHD.jpg&w=1000)Today: [Milky Way over Southwest Alentejo and Vicentine Coast Natural Park, Portugal (© Daniel Garrido/Getty Images)](https://www.bing.com/th?id=OHR.MilkyWayPortugal_EN-GB2637293703_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DolomitesParaglider_IT-IT3096263531_UHD.jpg&w=1000)Today: [Parapendio che sorvola le Dolomiti, visto dal Sass Pordoi (© Ilan Shacham/Getty Images)](https://www.bing.com/th?id=OHR.DolomitesParaglider_IT-IT3096263531_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MilkyWayPortugal_IT-IT4456908903_UHD.jpg&w=1000)Today: [Vista della Via Lattea dal Parco Naturale dell'Alentejo, Portogallo (© Daniel Garrido/Getty Images)](https://www.bing.com/th?id=OHR.MilkyWayPortugal_IT-IT4456908903_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PiuvaRosa_PT-BR7653122974_UHD.jpg&w=1000)Today: [Florescimento das árvores de Piuva Rosa no Pantanal Norte, Brasil (© Octavio Campos Salles/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.PiuvaRosa_PT-BR7653122974_UHD.jpg)
 <br><br/>
