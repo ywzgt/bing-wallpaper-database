@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AgedDay2023_JA-JP1020086931_UHD.jpg&w=1000)今日の壁紙: &nbsp;[コノハズク, 鳥取県 (© Eric Sohn Joo Tan/Minden)](https://www.bing.com/th?id=OHR.AgedDay2023_JA-JP1020086931_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OktoberfestWorkers_JA-JP1759437579_UHD.jpg&w=1000)今日の壁紙: &nbsp;[オクトーバーフェストのビールテント, ドイツ ミュンヘン (© Peter Kneffel/picture alliance via Getty Images)](https://www.bing.com/th?id=OHR.OktoberfestWorkers_JA-JP1759437579_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MilkyWayPortugal_FR-FR9919070514_UHD.jpg&w=1000)Today: [Voie lactée au-dessus du parc naturel du sud-ouest de l'Alentejo et de la côte vicentine, Portugal (© Daniel Garrido/Getty Images)](https://www.bing.com/th?id=OHR.MilkyWayPortugal_FR-FR9919070514_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MilkyWayPortugal_IT-IT4456908903_UHD.jpg&w=1000)Today: [Vista della Via Lattea dal Parco Naturale dell'Alentejo, Portogallo (© Daniel Garrido/Getty Images)](https://www.bing.com/th?id=OHR.MilkyWayPortugal_IT-IT4456908903_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PiuvaRosa_PT-BR7653122974_UHD.jpg&w=1000)Today: [Florescimento das árvores de Piuva Rosa no Pantanal Norte, Brasil (© Octavio Campos Salles/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.PiuvaRosa_PT-BR7653122974_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MilkyWayPortugal_PT-BR3876107182_UHD.jpg&w=1000)Today: [Via Láctea sobre o Parque Natural do Sudoeste Alentejano e Costa Vicentina, Portugal (© Daniel Garrido/Getty Images)](https://www.bing.com/th?id=OHR.MilkyWayPortugal_PT-BR3876107182_UHD.jpg)
 <br><br/>
