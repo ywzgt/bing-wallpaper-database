@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.OktoberfestWorkers_JA-JP1759437579_UHD.jpg&w=1000)今日の壁紙: &nbsp;[オクトーバーフェストのビールテント, ドイツ ミュンヘン (© Peter Kneffel/picture alliance via Getty Images)](https://www.bing.com/th?id=OHR.OktoberfestWorkers_JA-JP1759437579_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ArkadiaPark_JA-JP2000756191_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アルカディア公園, ポーランド (© PATSTOCK/Getty Images)](https://www.bing.com/th?id=OHR.ArkadiaPark_JA-JP2000756191_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SplugenPass_FR-FR8357846170_UHD.jpg&w=1000)Today: [Col de Splügen, Grisons, Suisse (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.SplugenPass_FR-FR8357846170_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SanGennaroMulberry_IT-IT4580164437_UHD.jpg&w=1000)Today: [Festa di San Gennaro a Mulberry Street, Little Italy, New York (© Philip Scalia/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.SanGennaroMulberry_IT-IT4580164437_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MilkyWayPortugal_PT-BR3876107182_UHD.jpg&w=1000)Today: [Via Láctea sobre o Parque Natural do Sudoeste Alentejano e Costa Vicentina, Portugal (© Daniel Garrido/Getty Images)](https://www.bing.com/th?id=OHR.MilkyWayPortugal_PT-BR3876107182_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OktoberfestWorkers_PT-BR4293032455_UHD.jpg&w=1000)Today: [Uma barraca de cerveja na Oktoberfest em Theresienwiese, Munique, Alemanha (© Peter Kneffel/picture alliance via Getty Images)](https://www.bing.com/th?id=OHR.OktoberfestWorkers_PT-BR4293032455_UHD.jpg)
 <br><br/>
