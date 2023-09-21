@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.NobelNorway_JA-JP2271090168_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ノーベル平和センター, ノルウェー オスロ (© Ilyas Ayub/Alamy)](https://www.bing.com/th?id=OHR.NobelNorway_JA-JP2271090168_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ShamwariRhino_JA-JP0625327477_UHD.jpg&w=1000)今日の壁紙: &nbsp;[シャムワリ動物保護区, 南アフリカ (© David Silverman/Getty Images)](https://www.bing.com/th?id=OHR.ShamwariRhino_JA-JP0625327477_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.NobelNorway_FR-FR0963742399_UHD.jpg&w=1000)Today: [Centre Nobel de la Paix, Oslo, Norvège (© Ilyas Ayub/Alamy)](https://www.bing.com/th?id=OHR.NobelNorway_FR-FR0963742399_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.NobelNorway_IT-IT6268753930_UHD.jpg&w=1000)Today: [All'interno del Centro Nobel per la Pace, Oslo, Norvegia (© Ilyas Ayub/Alamy)](https://www.bing.com/th?id=OHR.NobelNorway_IT-IT6268753930_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ArkadiaPark_PT-BR4736119356_UHD.jpg&w=1000)Today: [Aqueduto de inspiração romana, Arkadia Park, Polônia (© PATSTOCK/Getty Images)](https://www.bing.com/th?id=OHR.ArkadiaPark_PT-BR4736119356_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BrazilCopaiba_PT-BR7420293329_UHD.jpg&w=1000)Today: [Copaiba - Brazil (© MarcosMartinezSanchez/GettyImages)](https://www.bing.com/th?id=OHR.BrazilCopaiba_PT-BR7420293329_UHD.jpg)
 <br><br/>
