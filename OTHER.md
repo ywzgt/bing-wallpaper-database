@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ShamwariRhino_JA-JP0625327477_UHD.jpg&w=1000)今日の壁紙: &nbsp;[シャムワリ動物保護区, 南アフリカ (© David Silverman/Getty Images)](https://www.bing.com/th?id=OHR.ShamwariRhino_JA-JP0625327477_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Qiufen2023_JA-JP6160561062_UHD.jpg&w=1000)今日の壁紙: &nbsp;[巾着田の彼岸花, 埼玉県 日高市 (© Deseree Joy Villanueva/Getty Images)](https://www.bing.com/th?id=OHR.Qiufen2023_JA-JP6160561062_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ShamwariRhino_FR-FR1116105589_UHD.jpg&w=1000)Today: [Rhinocéros blancs du Sud, réserve de Shamwari, Afrique du Sud  (© David Silverman/Getty Images)](https://www.bing.com/th?id=OHR.ShamwariRhino_FR-FR1116105589_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ShamwariRhino_IT-IT0997464933_UHD.jpg&w=1000)Today: [Maschi di rinoceronte bianco meridionale, Riserva privata di Shamwari, Sudafrica (© David Silverman/Getty Images)](https://www.bing.com/th?id=OHR.ShamwariRhino_IT-IT0997464933_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BrazilCopaiba_PT-BR7420293329_UHD.jpg&w=1000)Today: [Copaiba - Brazil (© MarcosMartinezSanchez/GettyImages)](https://www.bing.com/th?id=OHR.BrazilCopaiba_PT-BR7420293329_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ShamwariRhino_PT-BR2578968454_UHD.jpg&w=1000)Today: [Machos de rinoceronte branco do sul, Shamwari Private Game Reserve, África do Sul (© David Silverman/Getty Images)](https://www.bing.com/th?id=OHR.ShamwariRhino_PT-BR2578968454_UHD.jpg)
 <br><br/>

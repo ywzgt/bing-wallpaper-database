@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MarsalaSalt_ZH-CN4943158328_UHD.jpg&w=1000)今日图片: &nbsp;[马尔萨拉盐田，意大利 (© javarman3/Getty Images)](https://www.bing.com/th?id=OHR.MarsalaSalt_ZH-CN4943158328_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CottonwoodCanyon_ZH-CN5293620973_UHD.jpg&w=1000)今日图片: &nbsp;[郊狼谷的棉白杨和红砂岩，格兰峡谷国家保护区，犹他州 (© Stephen Matera/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CottonwoodCanyon_ZH-CN5293620973_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.NobelNorway_EN-US3740897457_UHD.jpg&w=1000)Today: [Inside the Nobel Peace Center, Oslo, Norway (© Ilyas Ayub/Alamy)](https://www.bing.com/th?id=OHR.NobelNorway_EN-US3740897457_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ShamwariRhino_EN-US1414731584_UHD.jpg&w=1000)Today: [Southern white rhinoceros males, Shamwari Private Game Reserve, South Africa (© David Silverman/Getty Images)](https://www.bing.com/th?id=OHR.ShamwariRhino_EN-US1414731584_UHD.jpg)
 <br><br/>
