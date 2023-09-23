@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Qiufen2023_JA-JP6160561062_UHD.jpg&w=1000)今日の壁紙: &nbsp;[巾着田の彼岸花, 埼玉県 日高市 (© Deseree Joy Villanueva/Getty Images)](https://www.bing.com/th?id=OHR.Qiufen2023_JA-JP6160561062_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FraserRiverBC_JA-JP3101600777_UHD.jpg&w=1000)今日の壁紙: &nbsp;[リアガード滝州立公園を流れるフレーザー川, カナダ ブリティッシュコロンビア州 (© phototropic/Getty Images)](https://www.bing.com/th?id=OHR.FraserRiverBC_JA-JP3101600777_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.GastronomyDay_FR-FR7756533791_UHD.jpg&w=1000)Today: [Parc ostréicole à La Faute-sur-Mer, Pointe d'Arcay France, Vendée (© LEROY Francis/hemis.fr)](https://www.bing.com/th?id=OHR.GastronomyDay_FR-FR7756533791_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CottonwoodCanyon_IT-IT2280037969_UHD.jpg&w=1000)Today: [Pioppo e arenaria rossa nel Coyote Gulch, Glen Canyon National Recreation Area, Utah, Stati Uniti (© Stephen Matera/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CottonwoodCanyon_IT-IT2280037969_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ShamwariRhino_PT-BR2578968454_UHD.jpg&w=1000)Today: [Machos de rinoceronte branco do sul, Shamwari Private Game Reserve, África do Sul (© David Silverman/Getty Images)](https://www.bing.com/th?id=OHR.ShamwariRhino_PT-BR2578968454_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CottonwoodCanyon_PT-BR2979568032_UHD.jpg&w=1000)Today: [Árvores de choupo e arenito vermelho em Coyote Gulch, Glen Canyon National Recreation Area, Utah, EUA (© Stephen Matera/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CottonwoodCanyon_PT-BR2979568032_UHD.jpg)
 <br><br/>
