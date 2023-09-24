@@ -1,1 +1,1 @@
-09/24.global.md
+09/25.global.md
