@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.VeniceSkatePark_ZH-CN6295228801_UHD.jpg&w=1000)今日图片: &nbsp;[日落时的威尼斯海滩滑板公园，洛杉矶，加利福尼亚州 (© EXTREME-PHOTOGRAPHER/Getty Images)](https://www.bing.com/th?id=OHR.VeniceSkatePark_ZH-CN6295228801_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CapriKrupp_ZH-CN6893334288_UHD.jpg&w=1000)今日图片: &nbsp;[克虏伯路，卡普里岛，意大利 (© Mikolaj Niemczewski/Shutterstock)](https://www.bing.com/th?id=OHR.CapriKrupp_ZH-CN6893334288_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GlacierBayOtter_EN-US1818492105_UHD.jpg&w=1000)Today: [Sea otter in Bartlett Cove, Glacier Bay National Park and Preserve, Alaska (© Andrew Peacock/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GlacierBayOtter_EN-US1818492105_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_UHD.jpg&w=1000)Today: [Venice Skatepark at sunset, Los Angeles, California (© EXTREME-PHOTOGRAPHER/Getty Images)](https://www.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_UHD.jpg)
 <br><br/>
