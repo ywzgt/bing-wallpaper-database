@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.CapriKrupp_JA-JP5333872542_UHD.jpg&w=1000)今日の壁紙: &nbsp;[カプリ島のクルップ通り, イタリア (© Mikolaj Niemczewski/Shutterstock)](https://www.bing.com/th?id=OHR.CapriKrupp_JA-JP5333872542_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MaritimeDay_JA-JP6354094674_UHD.jpg&w=1000)今日の壁紙: &nbsp;[カラフルなコンテナ船, タイ (© Suriyapong Thongsawang/Getty Images)](https://www.bing.com/th?id=OHR.MaritimeDay_JA-JP6354094674_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CapriKrupp_FR-FR5234013603_UHD.jpg&w=1000)Today: [Via Krupp sur l’île de Capri, Italie (© Mikolaj Niemczewski/Shutterstock)](https://www.bing.com/th?id=OHR.CapriKrupp_FR-FR5234013603_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ProseccoHills_IT-IT5807916558_UHD.jpg&w=1000)Today: [Colline del Prosecco di Conegliano e Valdobbiadene, Veneto, Italia (© Olimpio Fantuz/Sime/eStock Photo)](https://www.bing.com/th?id=OHR.ProseccoHills_IT-IT5807916558_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LightStationSP_PT-BR9699969670_UHD.jpg&w=1000)Today: [Estação Da Luz, São Paulo, Brasil (© Carlos Alkmin/Getty Images)](https://www.bing.com/th?id=OHR.LightStationSP_PT-BR9699969670_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CapriKrupp_PT-BR6134486389_UHD.jpg&w=1000)Today: [A trilha Via Krupp na ilha de Capri, Itália (© Mikolaj Niemczewski/Shutterstock)](https://www.bing.com/th?id=OHR.CapriKrupp_PT-BR6134486389_UHD.jpg)
 <br><br/>
