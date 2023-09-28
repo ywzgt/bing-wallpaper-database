@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MaritimeDay_JA-JP6354094674_UHD.jpg&w=1000)今日の壁紙: &nbsp;[カラフルなコンテナ船, タイ (© Suriyapong Thongsawang/Getty Images)](https://www.bing.com/th?id=OHR.MaritimeDay_JA-JP6354094674_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HarvestMoon2023_JA-JP6232701669_UHD.jpg&w=1000)今日の壁紙: &nbsp;[横浜ベイブリッジと満月, 神奈川県 横浜市 (© kanzilyou/Getty Images)](https://www.bing.com/th?id=OHR.HarvestMoon2023_JA-JP6232701669_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MaritimeDay_FR-FR6769688761_UHD.jpg&w=1000)Today: [Porte-conteneurs près d'un port commercial en Thaïlande (© Suriyapong Thongsawang/Getty Images)](https://www.bing.com/th?id=OHR.MaritimeDay_FR-FR6769688761_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MaritimeDay_IT-IT6800320885_UHD.jpg&w=1000)Today: [Nave da carico presso un porto commerciale in Thailandia (© Suriyapong Thongsawang/Getty Images)](https://www.bing.com/th?id=OHR.MaritimeDay_IT-IT6800320885_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CapriKrupp_PT-BR6134486389_UHD.jpg&w=1000)Today: [A trilha Via Krupp na ilha de Capri, Itália (© Mikolaj Niemczewski/Shutterstock)](https://www.bing.com/th?id=OHR.CapriKrupp_PT-BR6134486389_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MaritimeDay_PT-BR6479092304_UHD.jpg&w=1000)Today: [Navio porta-contêineres perto de um porto comercial na Tailândia (© Suriyapong Thongsawang/Getty Images)](https://www.bing.com/th?id=OHR.MaritimeDay_PT-BR6479092304_UHD.jpg)
 <br><br/>
