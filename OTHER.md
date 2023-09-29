@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.HarvestMoon2023_JA-JP6232701669_UHD.jpg&w=1000)今日の壁紙: &nbsp;[横浜ベイブリッジと満月, 神奈川県 横浜市 (© kanzilyou/Getty Images)](https://www.bing.com/th?id=OHR.HarvestMoon2023_JA-JP6232701669_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ShenandoahFoliage_JA-JP6899643261_UHD.jpg&w=1000)今日の壁紙: &nbsp;[シェナンドー国立公園, 米国 バージニア州 (© Michael Ver Sprill/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahFoliage_JA-JP6899643261_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.GuiyangMoon_FR-FR7040582752_UHD.jpg&w=1000)Today: [Jiaxiu Tower under a full moon, Guiyang, Guizhou province, China (© Wang Yukun/Getty Images)](https://www.bing.com/th?id=OHR.GuiyangMoon_FR-FR7040582752_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.GuiyangMoon_IT-IT0253411061_UHD.jpg&w=1000)Today: [Torre Jiaxiu sotto la luna piena, Guiyang, provincia di Guizhou, Cina (© Wang Yukun/Getty Images)](https://www.bing.com/th?id=OHR.GuiyangMoon_IT-IT0253411061_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MaritimeDay_PT-BR6479092304_UHD.jpg&w=1000)Today: [Navio porta-contêineres perto de um porto comercial na Tailândia (© Suriyapong Thongsawang/Getty Images)](https://www.bing.com/th?id=OHR.MaritimeDay_PT-BR6479092304_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GuiyangMoon_PT-BR6803105528_UHD.jpg&w=1000)Today: [Torre Jiaxiu sob lua cheia, Guiyang, província de Guizhou, China (© Wang Yukun/Getty Images)](https://www.bing.com/th?id=OHR.GuiyangMoon_PT-BR6803105528_UHD.jpg)
 <br><br/>
