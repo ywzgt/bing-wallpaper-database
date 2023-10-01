@@ -1,15 +1,3 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.LakeBledSunrise_JA-JP6531539874_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ブレッド湖, スロベニア (© Rasica/Getty Images)](https://www.bing.com/th?id=OHR.LakeBledSunrise_JA-JP6531539874_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.LakeBledSunrise_FR-FR7792923061_UHD.jpg&w=1000)Today: [Lac Bled depuis le panorama d'Osojnica au lever du soleil, Slovénie (© Rasica/Getty Images)](https://www.bing.com/th?id=OHR.LakeBledSunrise_FR-FR7792923061_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.LakeBledSunrise_DE-DE0873272145_UHD.jpg&w=1000)Today: [Der Bleder See, von Osojnica aus bei Sonnenaufgang gesehen, Slowenien (© Rasica/Getty Images)](https://www.bing.com/th?id=OHR.LakeBledSunrise_DE-DE0873272145_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.LakeBledSunrise_ES-ES1096593407_UHD.jpg&w=1000)Today: [Lago de Bled al amanecer desde el mirador Mala Osojnica, Eslovenia (© Rasica/Getty Images)](https://www.bing.com/th?id=OHR.LakeBledSunrise_ES-ES1096593407_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.LakeBledSunrise_EN-GB9672401018_UHD.jpg&w=1000)Today: [Lake Bled, Slovenia (© Rasica/Getty Images)](https://www.bing.com/th?id=OHR.LakeBledSunrise_EN-GB9672401018_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.LakeBledSunrise_IT-IT9781591413_UHD.jpg&w=1000)Today: [Il lago di Bled dal belvedere di Osojnica all'alba, Slovenia (© Rasica/Getty Images)](https://www.bing.com/th?id=OHR.LakeBledSunrise_IT-IT9781591413_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.ShenandoahFoliage_PT-BR9012725885_UHD.jpg&w=1000)Today: [Cores do outono no Parque Nacional de Shenandoah, Virgínia, EUA (© Michael Ver Sprill/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahFoliage_PT-BR9012725885_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VuittonFoundation_JA-JP7245155728_UHD.jpg&w=1000)今日の壁紙: &nbsp;[フォンダシオン・ルイ・ヴィトン, フランス パリ (© Atlantide Phototravel/Getty Images)](https://www.bing.com/th?id=OHR.VuittonFoundation_JA-JP7245155728_UHD.jpg)
 <br><br/>

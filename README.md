@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.NationalDay2023_ZH-CN8608297006_UHD.jpg&w=1000)今日图片: &nbsp;[雄伟壮丽的中国长城 (© Jeff_Hu/Getty Images)](https://www.bing.com/th?id=OHR.NationalDay2023_ZH-CN8608297006_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VerdonCanyon_ZH-CN8872507857_UHD.jpg&w=1000)今日图片: &nbsp;[韦尔东峡谷，普罗旺斯-阿尔卑斯-蓝色海岸，法国 (© luisapuccini/Getty Images)](https://www.bing.com/th?id=OHR.VerdonCanyon_ZH-CN8872507857_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ShenandoahFoliage_EN-US9719781431_UHD.jpg&w=1000)Today: [Fall colors in Shenandoah National Park, Virginia (© Michael Ver Sprill/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahFoliage_EN-US9719781431_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LakeBledSunrise_EN-US2708574517_UHD.jpg&w=1000)Today: [Lake Bled at sunrise, Slovenia (© Rasica/Getty Images)](https://www.bing.com/th?id=OHR.LakeBledSunrise_EN-US2708574517_UHD.jpg)
 <br><br/>
