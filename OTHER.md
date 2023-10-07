@@ -1,3 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.GrizzlyFalls_JA-JP3634717781_UHD.jpg&w=1000)今日の壁紙: &nbsp;[カトマイ国立公園, 米国 アラスカ州 (© oksana.perkins/Shutterstock)](https://www.bing.com/th?id=OHR.GrizzlyFalls_JA-JP3634717781_UHD.jpg)
 <br><br/>
+![](https://www.bing.com/th?id=OHR.GrizzlyFalls_FR-FR9827995252_UHD.jpg&w=1000)Today: [Ours grizzly pêchant le saumon dans les chutes de Brooks, parc national de Katmai, Alaska, États-Unis (© oksana.perkins/Shutterstock)](https://www.bing.com/th?id=OHR.GrizzlyFalls_FR-FR9827995252_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.GrizzlyFalls_DE-DE2440984688_UHD.jpg&w=1000)Today: [Grizzlybären beim Lachsfang an den Brooks Falls, Katmai National Park, Alaska, USA (© oksana.perkins/Shutterstock)](https://www.bing.com/th?id=OHR.GrizzlyFalls_DE-DE2440984688_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.PilarFestivities_ES-ES6761605818_UHD.jpg&w=1000)Today: [Basílica de Nuestra Señora del Pilar y el río Ebro, Zaragoza, Aragón, España (© iStock by Getty Images)](https://www.bing.com/th?id=OHR.PilarFestivities_ES-ES6761605818_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.GrizzlyFalls_EN-GB6799572223_UHD.jpg&w=1000)Today: [Grizzly bears fishing for salmon at Brooks Falls, Katmai National Park, Alaska, USA (© oksana.perkins/Shutterstock)](https://www.bing.com/th?id=OHR.GrizzlyFalls_EN-GB6799572223_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.GrizzlyFalls_IT-IT0353576964_UHD.jpg&w=1000)Today: [Orsi bruni che pescano salmoni alle cascate Brooks, Parco nazionale di Katmai, Alaska, Stati Uniti (© oksana.perkins/Shutterstock)](https://www.bing.com/th?id=OHR.GrizzlyFalls_IT-IT0353576964_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.TaughannockFalls_PT-BR3287209591_UHD.jpg&w=1000)Today: [O Parque Estadual Taughannock Falls em Trumansburg, Nova York, EUA. (© Paul Massie Photography/Getty Images)](https://www.bing.com/th?id=OHR.TaughannockFalls_PT-BR3287209591_UHD.jpg)
+<br><br/>
