@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SoprisSunrise_JA-JP4661289505_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ソプリス山, 米国 コロラド州 (© Jason Hatfield/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SoprisSunrise_JA-JP4661289505_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JohnDayFossil_JA-JP4939984855_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ペインテッド・ヒルズ, 米国 オレゴン州 (© Ben Herndon/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.JohnDayFossil_JA-JP4939984855_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MontmartreHarvest_FR-FR1431017113_UHD.jpg&w=1000)Today: [Basilique du Sacré Cœur de Montmartre (© Tuul & Bruno Morandi)](https://www.bing.com/th?id=OHR.MontmartreHarvest_FR-FR1431017113_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SoprisSunrise_IT-IT4925798707_UHD.jpg&w=1000)Today: [Monte Sopris, Colorado, Stati Uniti (© Jason Hatfield/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SoprisSunrise_IT-IT4925798707_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.VeniceSkatePark_PT-BR5979346434_UHD.jpg&w=1000)Today: [Skatepark de Venice Beach ao pôr do sol, Los Angeles, Califórnia, EUA (© EXTREME-PHOTOGRAPHER/Getty Images)](https://www.bing.com/th?id=OHR.VeniceSkatePark_PT-BR5979346434_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SoprisSunrise_PT-BR5575727511_UHD.jpg&w=1000)Today: [Monte Sopris, Colorado, EUA (© Jason Hatfield/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SoprisSunrise_PT-BR5575727511_UHD.jpg)
 <br><br/>
