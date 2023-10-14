@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.RailwayDay2023_JA-JP6915793143_UHD.jpg&w=1000)今日の壁紙: &nbsp;[第三只見川橋梁を渡る列車, 福島県 大沼郡 三島町 (© DoctorEgg/Getty Images)](https://www.bing.com/th?id=OHR.RailwayDay2023_JA-JP6915793143_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RingEclipse_JA-JP9257563062_UHD.jpg&w=1000)今日の壁紙: &nbsp;[金環日食, カタール ドーハ (© Sorin Furcoi/Getty Images)](https://www.bing.com/th?id=OHR.RingEclipse_JA-JP9257563062_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.RingEclipse_FR-FR2817634134_UHD.jpg&w=1000)Today: [Éclipse solaire annulaire "anneau de feu", Doha, Qatar (© Sorin Furcoi/Getty Images)](https://www.bing.com/th?id=OHR.RingEclipse_FR-FR2817634134_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.RingEclipse_IT-IT1853781586_UHD.jpg&w=1000)Today: [Eclissi solare anulare "Ring of Fire", Doha, Qatar (© Sorin Furcoi/Getty Images)](https://www.bing.com/th?id=OHR.RingEclipse_IT-IT1853781586_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ViesteItaly_PT-BR8163447010_UHD.jpg&w=1000)Today: [Vieste na Península de Gargano, Apúlia, Italia. (© Pilat666/Getty Images)](https://www.bing.com/th?id=OHR.ViesteItaly_PT-BR8163447010_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RingEclipse_PT-BR8456160531_UHD.jpg&w=1000)Today: [Eclipse solar anular “Anel de Fogo”, Doha, Catar. (© Sorin Furcoi/Getty Images)](https://www.bing.com/th?id=OHR.RingEclipse_PT-BR8456160531_UHD.jpg)
 <br><br/>
