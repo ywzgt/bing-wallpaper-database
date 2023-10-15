@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.RingEclipse_JA-JP9257563062_UHD.jpg&w=1000)今日の壁紙: &nbsp;[金環日食, カタール ドーハ (© Sorin Furcoi/Getty Images)](https://www.bing.com/th?id=OHR.RingEclipse_JA-JP9257563062_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GoldenEnchantments_JA-JP7939818582_UHD.jpg&w=1000)今日の壁紙: &nbsp;[エンチャントメンツ, 米国 ワシントン州 (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GoldenEnchantments_JA-JP7939818582_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AutumnHedgehog_FR-FR3040407660_UHD.jpg&w=1000)Today: [Hérisson européen se réfugiant dans l'écorce d'un arbre, Sussex, Angleterre (© Jules Cox/Minden Pictures)](https://www.bing.com/th?id=OHR.AutumnHedgehog_FR-FR3040407660_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AutumnHedgehog_IT-IT1498595438_UHD.jpg&w=1000)Today: [Riccio europeo che si ripara nella corteccia degli alberi, Sussex (© Jules Cox/Minden Pictures)](https://www.bing.com/th?id=OHR.AutumnHedgehog_IT-IT1498595438_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RingEclipse_PT-BR8456160531_UHD.jpg&w=1000)Today: [Eclipse solar anular “Anel de Fogo”, Doha, Catar. (© Sorin Furcoi/Getty Images)](https://www.bing.com/th?id=OHR.RingEclipse_PT-BR8456160531_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GentooJump_PT-BR8915637831_UHD.jpg&w=1000)Today: [Pingüins Gentoo, Antártida. (© Art Wolfe/Getty Images)](https://www.bing.com/th?id=OHR.GentooJump_PT-BR8915637831_UHD.jpg)
 <br><br/>
