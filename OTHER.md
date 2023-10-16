@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.GoldenEnchantments_JA-JP7939818582_UHD.jpg&w=1000)今日の壁紙: &nbsp;[エンチャントメンツ, 米国 ワシントン州 (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GoldenEnchantments_JA-JP7939818582_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AutumnHedgehog_FR-FR3040407660_UHD.jpg&w=1000)Today: [Hérisson européen se réfugiant dans l'écorce d'un arbre, Sussex, Angleterre (© Jules Cox/Minden Pictures)](https://www.bing.com/th?id=OHR.AutumnHedgehog_FR-FR3040407660_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GoldenEnchantments_FR-FR3216426805_UHD.jpg&w=1000)Today: [Mélèzes aux couleurs de l’automne et le Mont Prusik, région Lacs Enchantés, Washington, États-Unis (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GoldenEnchantments_FR-FR3216426805_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AutumnHedgehog_DE-DE4330196137_UHD.jpg&w=1000)Today: [Europäischer Igel, der sich in der Baumrinde versteckt, Sussex, England (© Jules Cox/Minden Pictures)](https://www.bing.com/th?id=OHR.AutumnHedgehog_DE-DE4330196137_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GoldenEnchantments_DE-DE4721952081_UHD.jpg&w=1000)Today: [Goldene Lärchen und Prusik Peak, Enchantments, Washington, USA (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GoldenEnchantments_DE-DE4721952081_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AutumnHedgehog_ES-ES5622502612_UHD.jpg&w=1000)Today: [Erizo europeo refugiado en la corteza de un árbol, Sussex, Inglaterra (© Jules Cox/Minden Pictures)](https://www.bing.com/th?id=OHR.AutumnHedgehog_ES-ES5622502612_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GoldenEnchantments_ES-ES6268457404_UHD.jpg&w=1000)Today: [Alerces dorados con el pico Prusik de fondo, Enchantments, Washington, EE.UU. (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GoldenEnchantments_ES-ES6268457404_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AutumnHedgehog_EN-GB3716298220_UHD.jpg&w=1000)Today: [European hedgehog sheltering in tree bark, Sussex (© Jules Cox/Minden Pictures)](https://www.bing.com/th?id=OHR.AutumnHedgehog_EN-GB3716298220_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GoldenEnchantments_EN-GB4003650281_UHD.jpg&w=1000)Today: [Golden larches and Prusik Peak, Enchantments, Washington, USA (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GoldenEnchantments_EN-GB4003650281_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AutumnHedgehog_IT-IT1498595438_UHD.jpg&w=1000)Today: [Riccio europeo che si ripara nella corteccia degli alberi, Sussex (© Jules Cox/Minden Pictures)](https://www.bing.com/th?id=OHR.AutumnHedgehog_IT-IT1498595438_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GoldenEnchantments_IT-IT9162658563_UHD.jpg&w=1000)Today: [Larici dorati e Prusik Peak, Washington (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GoldenEnchantments_IT-IT9162658563_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.GentooJump_PT-BR8915637831_UHD.jpg&w=1000)Today: [Pingüins Gentoo, Antártida. (© Art Wolfe/Getty Images)](https://www.bing.com/th?id=OHR.GentooJump_PT-BR8915637831_UHD.jpg)
 <br><br/>
