@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SpreadsheetDay_JA-JP8161682030_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ペルセポリスの碑文の楔形文字, イラン ファールス州 (© George Hall/Alamy)](https://www.bing.com/th?id=OHR.SpreadsheetDay_JA-JP8161682030_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KodiakAlaska_JA-JP8382026046_UHD.jpg&w=1000)今日の壁紙: &nbsp;[コディアック国立野生生物保護区, 米国 アラスカ州 (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.KodiakAlaska_JA-JP8382026046_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SpreadsheetDay_FR-FR3416887785_UHD.jpg&w=1000)Today: [Textes anciens gravés originaires de Persépolis, Iran (© George Hall/Alamy)](https://www.bing.com/th?id=OHR.SpreadsheetDay_FR-FR3416887785_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SpreadsheetDay_IT-IT8741983462_UHD.jpg&w=1000)Today: [Antichi testi scolpiti da Persepoli, Iran (© George Hall/Alamy)](https://www.bing.com/th?id=OHR.SpreadsheetDay_IT-IT8741983462_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GoldenEnchantments_PT-BR9264199227_UHD.jpg&w=1000)Today: [Lariços dourados e Pico Prusik, Echantments, Washington, EUA. (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GoldenEnchantments_PT-BR9264199227_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpreadsheetDay_PT-BR9592083613_UHD.jpg&w=1000)Today: [Textos entalhados antigos de Persepolis, Irã. (© George Hall/Alamy)](https://www.bing.com/th?id=OHR.SpreadsheetDay_PT-BR9592083613_UHD.jpg)
 <br><br/>

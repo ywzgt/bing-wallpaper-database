@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.GenoeseTower_ZH-CN0086623003_UHD.jpg&w=1000)今日图片: &nbsp;[帕拉塔塔,阿雅克肖,科西嘉岛,法国 (© Jon Ingall/Alamy)](https://www.bing.com/th?id=OHR.GenoeseTower_ZH-CN0086623003_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_UHD.jpg&w=1000)今日图片: &nbsp;[科迪亚克国家野生动物保护区，科迪亚克岛，阿拉斯加州，美国 (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GoldenEnchantments_EN-US1308880623_UHD.jpg&w=1000)Today: [Golden larches and Prusik Peak, the Enchantments, Washington (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GoldenEnchantments_EN-US1308880623_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpreadsheetDay_EN-US1385391820_UHD.jpg&w=1000)Today: [Ancient carved texts from Persepolis, Iran (© George Hall/Alamy)](https://www.bing.com/th?id=OHR.SpreadsheetDay_EN-US1385391820_UHD.jpg)
 <br><br/>
