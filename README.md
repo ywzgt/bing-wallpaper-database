@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_UHD.jpg&w=1000)今日图片: &nbsp;[科迪亚克国家野生动物保护区，科迪亚克岛，阿拉斯加州，美国 (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CastellyGwyntUK_ZH-CN1219668479_UHD.jpg&w=1000)今日图片: &nbsp;[Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔士 (© Alan Novelli/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.CastellyGwyntUK_ZH-CN1219668479_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SpreadsheetDay_EN-US1385391820_UHD.jpg&w=1000)Today: [Ancient carved texts from Persepolis, Iran (© George Hall/Alamy)](https://www.bing.com/th?id=OHR.SpreadsheetDay_EN-US1385391820_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KodiakAlaska_EN-US1478138954_UHD.jpg&w=1000)Today: [Kodiak National Wildlife Refuge, Kodiak Island, Alaska (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.KodiakAlaska_EN-US1478138954_UHD.jpg)
 <br><br/>
