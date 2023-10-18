@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.KodiakAlaska_JA-JP8382026046_UHD.jpg&w=1000)今日の壁紙: &nbsp;[コディアック国立野生生物保護区, 米国 アラスカ州 (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.KodiakAlaska_JA-JP8382026046_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WaterLilyVietnam_JA-JP8591177657_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ロンアンの河川, ベトナム メコンデルタ (© Khanh Phan/Solent News/Shutterstock)](https://www.bing.com/th?id=OHR.WaterLilyVietnam_JA-JP8591177657_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.KodiakAlaska_FR-FR3778236447_UHD.jpg&w=1000)Today: [Refuge faunique national de Kodiak, Alaska, États-Unis (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.KodiakAlaska_FR-FR3778236447_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.KodiakAlaska_IT-IT8488894073_UHD.jpg&w=1000)Today: [Rifugio nazionale della fauna selvatica di Kodiak, Isola di Kodiak, Alaska (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.KodiakAlaska_IT-IT8488894073_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SpreadsheetDay_PT-BR9592083613_UHD.jpg&w=1000)Today: [Textos entalhados antigos de Persepolis, Irã. (© George Hall/Alamy)](https://www.bing.com/th?id=OHR.SpreadsheetDay_PT-BR9592083613_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KodiakAlaska_PT-BR9855101179_UHD.jpg&w=1000)Today: [Refúgio Nacional de Vida Selvagem de Kodiak, Ilha Kodiak, Alasca, EUA. (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.KodiakAlaska_PT-BR9855101179_UHD.jpg)
 <br><br/>
