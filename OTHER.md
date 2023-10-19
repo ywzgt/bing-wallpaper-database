@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.WaterLilyVietnam_JA-JP8591177657_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ロンアンの河川, ベトナム メコンデルタ (© Khanh Phan/Solent News/Shutterstock)](https://www.bing.com/th?id=OHR.WaterLilyVietnam_JA-JP8591177657_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.KodiakAlaska_FR-FR3778236447_UHD.jpg&w=1000)Today: [Refuge faunique national de Kodiak, Alaska, États-Unis (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.KodiakAlaska_FR-FR3778236447_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WaterLilyVietnam_FR-FR4028211230_UHD.jpg&w=1000)Today: [Récolte de nénuphars, delta du Mékong, Long An, Vietnam (© Khanh Phan/Solent News/Shutterstock)](https://www.bing.com/th?id=OHR.WaterLilyVietnam_FR-FR4028211230_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.KodiakAlaska_DE-DE5300220997_UHD.jpg&w=1000)Today: [Kodiak National Wildlife Refuge, Kodiak Island, Alaska, USA (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.KodiakAlaska_DE-DE5300220997_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WaterLilyVietnam_DE-DE7325389830_UHD.jpg&w=1000)Today: [Seerosenernte, Mekong-Flussdelta, Long An, Vietnam (© Khanh Phan/Solent News/Shutterstock)](https://www.bing.com/th?id=OHR.WaterLilyVietnam_DE-DE7325389830_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.KodiakAlaska_ES-ES6523773825_UHD.jpg&w=1000)Today: [Refugio Nacional de Vida Silvestre de Kodiak, Isla Kodiak, Alaska, EE.UU. (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.KodiakAlaska_ES-ES6523773825_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WaterLilyVietnam_ES-ES6623233360_UHD.jpg&w=1000)Today: [Cosecha de nenúfares, delta del río Mekong, Long An, Vietnam (© Khanh Phan/Solent News/Shutterstock)](https://www.bing.com/th?id=OHR.WaterLilyVietnam_ES-ES6623233360_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CanaryWharfStation_EN-GB4531967765_UHD.jpg&w=1000)Today: [Canary Wharf underground station, London (© AWL Images/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.CanaryWharfStation_EN-GB4531967765_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WaterLilyVietnam_EN-GB4801163561_UHD.jpg&w=1000)Today: [Water lily harvest, Mekong River Delta, Long An, Vietnam (© Khanh Phan/Solent News/Shutterstock)](https://www.bing.com/th?id=OHR.WaterLilyVietnam_EN-GB4801163561_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.KodiakAlaska_IT-IT8488894073_UHD.jpg&w=1000)Today: [Rifugio nazionale della fauna selvatica di Kodiak, Isola di Kodiak, Alaska (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.KodiakAlaska_IT-IT8488894073_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WaterLilyVietnam_IT-IT8076028570_UHD.jpg&w=1000)Today: [Raccolta di ninfee, Delta del fiume Mekong, Long An, Vietnam (© Khanh Phan/Solent News/Shutterstock)](https://www.bing.com/th?id=OHR.WaterLilyVietnam_IT-IT8076028570_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.KodiakAlaska_PT-BR9855101179_UHD.jpg&w=1000)Today: [Refúgio Nacional de Vida Selvagem de Kodiak, Ilha Kodiak, Alasca, EUA. (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.KodiakAlaska_PT-BR9855101179_UHD.jpg)
 <br><br/>
