@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.JidaiMatsuri2023_JA-JP2436746215_UHD.jpg&w=1000)今日の壁紙: &nbsp;[平安神宮, 京都府 京都市 (© Arif Iqball Photography-Japan/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.JidaiMatsuri2023_JA-JP2436746215_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PoconosMaze_JA-JP2722442659_UHD.jpg&w=1000)今日の壁紙: &nbsp;[マゼジラ, 米国 ペンシルベニア州 (© Alex Potemkin/Getty Images)](https://www.bing.com/th?id=OHR.PoconosMaze_JA-JP2722442659_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AstoriaBridge_FR-FR4917607488_UHD.jpg&w=1000)Today: [Pont Astoria-Megler sur le fleuve Columbia, Astoria, Oregon, États-Unis (© Dan Mihai/Getty Images)](https://www.bing.com/th?id=OHR.AstoriaBridge_FR-FR4917607488_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AstoriaBridge_IT-IT7575959627_UHD.jpg&w=1000)Today: [Il Ponte di Astoria-Megler sul fiume Columbia, Astoria, Oregon, Stati Uniti (© Dan Mihai/Getty Images)](https://www.bing.com/th?id=OHR.AstoriaBridge_IT-IT7575959627_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PersepolisRelief_PT-BR7243215080_UHD.jpg&w=1000)Today: [Relevos na antiga cidade persa de Persépolis, Irã (© Ozbalci/Getty Images)](https://www.bing.com/th?id=OHR.PersepolisRelief_PT-BR7243215080_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AstoriaBridge_PT-BR7535453124_UHD.jpg&w=1000)Today: [Ponte Astoria-Megler no Rio Columbia, Astoria, Oregon, EUA (© Dan Mihai/Getty Images)](https://www.bing.com/th?id=OHR.AstoriaBridge_PT-BR7535453124_UHD.jpg)
 <br><br/>
