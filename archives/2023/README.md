@@ -1,1 +1,1 @@
-10/25.global.md
+10/26.global.md
