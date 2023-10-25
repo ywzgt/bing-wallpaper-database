@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.GrandStaircase_JA-JP3373019337_UHD.jpg&w=1000)今日の壁紙: &nbsp;[グランド・ステアケース＝エスカランテ国定記念公園, 米国 ユタ州 (© Jeff Foott/Minden Pictures)](https://www.bing.com/th?id=OHR.GrandStaircase_JA-JP3373019337_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ViennaAutumn_JA-JP3547270203_UHD.jpg&w=1000)今日の壁紙: &nbsp;[シェーンブルン宮殿, オーストリア ウィーン (© rusm/Getty Images)](https://www.bing.com/th?id=OHR.ViennaAutumn_JA-JP3547270203_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.GrandStaircase_FR-FR6173079763_UHD.jpg&w=1000)Today: [Les peupliers deltoïdes dans le monument national de Grand Staircase-Escalante, Utah, États-Unis (© Jeff Foott/Minden Pictures)](https://www.bing.com/th?id=OHR.GrandStaircase_FR-FR6173079763_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.GrandStaircase_IT-IT8917709693_UHD.jpg&w=1000)Today: [Parco Grand Staircase-Escalante National Monument, Utah, USA (© Jeff Foott/Minden Pictures)](https://www.bing.com/th?id=OHR.GrandStaircase_IT-IT8917709693_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.FuzerCastle_PT-BR8679646534_UHD.jpg&w=1000)Today: [Castelo de Füzér nas Montanhas Zemplén, Hungria (© ZGPhotography/Alamy)](https://www.bing.com/th?id=OHR.FuzerCastle_PT-BR8679646534_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GrandStaircase_PT-BR9054021787_UHD.jpg&w=1000)Today: [Árvores de algodão no Monumento Nacional Grand Staircase-Escalante, Utah, EUA (© Jeff Foott/Minden Pictures)](https://www.bing.com/th?id=OHR.GrandStaircase_PT-BR9054021787_UHD.jpg)
 <br><br/>
