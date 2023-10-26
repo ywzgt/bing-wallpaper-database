@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ViennaAutumn_JA-JP3547270203_UHD.jpg&w=1000)今日の壁紙: &nbsp;[シェーンブルン宮殿, オーストリア ウィーン (© rusm/Getty Images)](https://www.bing.com/th?id=OHR.ViennaAutumn_JA-JP3547270203_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OldBridgeSkye_JA-JP3696006091_UHD.jpg&w=1000)今日の壁紙: &nbsp;[スカイ島のスリガチャン・オールド・ブリッジ, スコットランド (© Aliaume Chapelle/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.OldBridgeSkye_JA-JP3696006091_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ViennaAutumn_FR-FR6349704805_UHD.jpg&w=1000)Today: [Feuillage d'automne dans le parc du château de Schönbrunn, Vienne, Autriche (© rusm/Getty Images)](https://www.bing.com/th?id=OHR.ViennaAutumn_FR-FR6349704805_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ViennaAutumn_IT-IT9164239542_UHD.jpg&w=1000)Today: [Fogliame autunnale nel parco del Castello di Schönbrunn (© rusm/Getty Images)](https://www.bing.com/th?id=OHR.ViennaAutumn_IT-IT9164239542_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GrandStaircase_PT-BR9054021787_UHD.jpg&w=1000)Today: [Árvores de algodão no Monumento Nacional Grand Staircase-Escalante, Utah, EUA (© Jeff Foott/Minden Pictures)](https://www.bing.com/th?id=OHR.GrandStaircase_PT-BR9054021787_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ViennaAutumn_PT-BR1572205142_UHD.jpg&w=1000)Today: [Folhagem de outono no Parque do Palácio de Schönbrunn, Viena, Áustria (© rusm/Getty Images)](https://www.bing.com/th?id=OHR.ViennaAutumn_PT-BR1572205142_UHD.jpg)
 <br><br/>
