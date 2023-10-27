@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.OldBridgeSkye_ZH-CN7228411986_UHD.jpg&w=1000)今日图片: &nbsp;[斯利加坎老桥，苏格兰斯凯岛 (© Aliaume Chapelle/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.OldBridgeSkye_ZH-CN7228411986_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_UHD.jpg&w=1000)今日图片: &nbsp;[卡斯蒂利亚-拉曼恰的风车，西班牙 (© Getty Images)](https://www.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ViennaAutumn_EN-US0101367282_UHD.jpg&w=1000)Today: [Autumn foliage in Schönbrunn Palace Park, Vienna, Austria (© rusm/Getty Images)](https://www.bing.com/th?id=OHR.ViennaAutumn_EN-US0101367282_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OldBridgeSkye_EN-US0196189617_UHD.jpg&w=1000)Today: [Sligachan Old Bridge, Isle of Skye, Scotland (© Aliaume Chapelle/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.OldBridgeSkye_EN-US0196189617_UHD.jpg)
 <br><br/>

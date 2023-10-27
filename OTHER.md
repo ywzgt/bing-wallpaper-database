@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.OldBridgeSkye_JA-JP3696006091_UHD.jpg&w=1000)今日の壁紙: &nbsp;[スカイ島のスリガチャン・オールド・ブリッジ, スコットランド (© Aliaume Chapelle/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.OldBridgeSkye_JA-JP3696006091_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FiveWinds_JA-JP4074287650_UHD.jpg&w=1000)今日の壁紙: &nbsp;[コンスエグラ, スペイン カスティーリャ＝ラ・マンチャ州 (© Getty Images)](https://www.bing.com/th?id=OHR.FiveWinds_JA-JP4074287650_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.OldBridgeSkye_FR-FR6630740489_UHD.jpg&w=1000)Today: [Pont de sligachan, île de Skye, Écosse (© Aliaume Chapelle/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.OldBridgeSkye_FR-FR6630740489_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.OldBridgeSkye_IT-IT3352647362_UHD.jpg&w=1000)Today: [Il vecchio ponte di Sligachan, Isola di Skye, Scozia (© Aliaume Chapelle/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.OldBridgeSkye_IT-IT3352647362_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ViennaAutumn_PT-BR1572205142_UHD.jpg&w=1000)Today: [Folhagem de outono no Parque do Palácio de Schönbrunn, Viena, Áustria (© rusm/Getty Images)](https://www.bing.com/th?id=OHR.ViennaAutumn_PT-BR1572205142_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OldBridgeSkye_PT-BR9531632711_UHD.jpg&w=1000)Today: [Ponte Antiga de Sligachan, Ilha de Skye, Escócia (© Aliaume Chapelle/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.OldBridgeSkye_PT-BR9531632711_UHD.jpg)
 <br><br/>
