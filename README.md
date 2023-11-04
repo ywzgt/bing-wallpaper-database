@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BisonSnow_ZH-CN2483472629_UHD.jpg&w=1000)今日图片: &nbsp;[美洲野牛，黄石国家公园，怀俄明州，美国 (© Gary Gray/Getty Images)](https://www.bing.com/th?id=OHR.BisonSnow_ZH-CN2483472629_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SilencioSpain_ZH-CN2955614478_UHD.jpg&w=1000)今日图片: &nbsp;[石英岩地层，普拉亚德尔锡伦西奥，西班牙 (© Jean-Philippe Delobelle/Minden Pictures)](https://www.bing.com/th?id=OHR.SilencioSpain_ZH-CN2955614478_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SeaNettles_EN-US6654060294_UHD.jpg&w=1000)Today: [Pacific sea nettles off the coast of Carmel, California (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SeaNettles_EN-US6654060294_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg&w=1000)Today: [American bison, Yellowstone National Park, Wyoming (© Gary Gray/Getty Images)](https://www.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg)
 <br><br/>
