@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SilencioSpain_ZH-CN2955614478_UHD.jpg&w=1000)今日图片: &nbsp;[石英岩地层，普拉亚德尔锡伦西奥，西班牙 (© Jean-Philippe Delobelle/Minden Pictures)](https://www.bing.com/th?id=OHR.SilencioSpain_ZH-CN2955614478_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LagoPehoe_ZH-CN3367356273_UHD.jpg&w=1000)今日图片: &nbsp;[佩霍湖，百内国家公园，智利南部 (© OST/Getty Images)](https://www.bing.com/th?id=OHR.LagoPehoe_ZH-CN3367356273_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg&w=1000)Today: [American bison, Yellowstone National Park, Wyoming (© Gary Gray/Getty Images)](https://www.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SilencioSpain_EN-US6874925537_UHD.jpg&w=1000)Today: [Quartzite formation, Playa del Silencio, Asturias, Spain (© Jean-Philippe Delobelle/Minden Pictures)](https://www.bing.com/th?id=OHR.SilencioSpain_EN-US6874925537_UHD.jpg)
 <br><br/>
