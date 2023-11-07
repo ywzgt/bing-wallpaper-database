@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_UHD.jpg&w=1000)今日图片: &nbsp;[Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛 (© MNStudio/Shutterstock)](https://www.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LiDong2023_ZH-CN5089092069_UHD.jpg&w=1000)今日图片: &nbsp;[黄山的日落，安徽省，中国 (© Nantapon Pattamakijsakul/Getty Images)](https://www.bing.com/th?id=OHR.LiDong2023_ZH-CN5089092069_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_UHD.jpg&w=1000)Today: [Lake Pehoé, Torres del Paine National Park, Chile (© OST/Getty Images)](https://www.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KirkilaiTower_EN-US7178436226_UHD.jpg&w=1000)Today: [Kirkilai lakes and lookout tower, Biržai Regional Park, Lithuania (© MNStudio/Shutterstock)](https://www.bing.com/th?id=OHR.KirkilaiTower_EN-US7178436226_UHD.jpg)
 <br><br/>
