@@ -1,3 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.Lidong2023_JA-JP3829424254_UHD.jpg&w=1000)今日の壁紙: &nbsp;[干し柿, 山梨県 南都留郡 富士河口湖町 (© STEPHEN FLEMING/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.Lidong2023_JA-JP3829424254_UHD.jpg)
 <br><br/>
+![](https://www.bing.com/th?id=OHR.ManateeMama_FR-FR2612350348_UHD.jpg&w=1000)Today: [Lamantins des Caraïbes, femelle avec son bébé, Crystal River, Three Sisters Spring, Floride, États-Unis (© Karine Aigner/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.ManateeMama_FR-FR2612350348_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.ManateeMama_DE-DE9487097081_UHD.jpg&w=1000)Today: [Seekuh-Mutter mit Baby, Crystal River, Three Sisters Spring, Florida, USA (© Karine Aigner/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.ManateeMama_DE-DE9487097081_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.ManateeMama_ES-ES5502378274_UHD.jpg&w=1000)Today: [Madre y cría de manatí antillano, Crystal River, Three Sisters Spring, Florida, EE.UU. (© Karine Aigner/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.ManateeMama_ES-ES5502378274_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.KirkilaiTower_EN-GB0394335960_UHD.jpg&w=1000)Today: [Kirkilai lakes and lookout tower, Biržai Regional Park, Lithuania (© MNStudio/Shutterstock)](https://www.bing.com/th?id=OHR.KirkilaiTower_EN-GB0394335960_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.ManateeMama_IT-IT1827292679_UHD.jpg&w=1000)Today: [Madre e figlio di lamantino delle Indie Occidentali, Crystal River, Florida (© Karine Aigner/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.ManateeMama_IT-IT1827292679_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.KirkilaiTower_PT-BR7621232090_UHD.jpg&w=1000)Today: [Lagos Kirkilai e torre de observação, Parque Regional de Biržai, Lituânia (© MNStudio/Shutterstock)​](https://www.bing.com/th?id=OHR.KirkilaiTower_PT-BR7621232090_UHD.jpg)
+<br><br/>
