@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.OliveOrchard_JA-JP4824162139_UHD.jpg&w=1000)今日の壁紙: &nbsp;[マヨルカ島のトラムンタナ山脈, スペイン (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.OliveOrchard_JA-JP4824162139_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RussellLupines_JA-JP1047682065_UHD.jpg&w=1000)今日の壁紙: &nbsp;[テカポ湖, ニュージーランド (© Jeffrey Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.RussellLupines_JA-JP1047682065_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.OliveOrchard_FR-FR6246633206_UHD.jpg&w=1000)Today: [Vieille oliveraie dans la Serra de Tramuntana, Majorque, Espagne (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.OliveOrchard_FR-FR6246633206_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.OliveOrchard_ES-ES6327790918_UHD.jpg&w=1000)Today: [Antiguo olivar en la Sierra de Tramontana, Mallorca, España (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.OliveOrchard_ES-ES6327790918_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DiwaliAyodhya_EN-GB6661092478_UHD.jpg&w=1000)Today: [Lamps on the banks of the Sarayu River on Diwali, Ayodhya, India (© SANJAY KANOJIA/AFP/Getty Images)](https://www.bing.com/th?id=OHR.DiwaliAyodhya_EN-GB6661092478_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OliveOrchard_EN-GB6907892639_UHD.jpg&w=1000)Today: [Old olive grove in the Serra Tramuntana range, Majorca, Spain (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.OliveOrchard_EN-GB6907892639_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.OliveOrchard_IT-IT1918983389_UHD.jpg&w=1000)Today: [Antico uliveto nella Serra Tramuntana, Maiorca, Spagna  (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.OliveOrchard_IT-IT1918983389_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DiwaliAyodhya_PT-BR8972451551_UHD.jpg&w=1000)Today: [Lâmpadas nas margens do rio Sarayu no Diwali, Ayodhya, Índia (© SANJAY KANOJIA/AFP/Getty Images)](https://www.bing.com/th?id=OHR.DiwaliAyodhya_PT-BR8972451551_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OliveOrchard_PT-BR9235175980_UHD.jpg&w=1000)Today: [Velho olival na cordilheira Serra de Tramuntana, , Espanha (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.OliveOrchard_PT-BR9235175980_UHD.jpg)
 <br><br/>
