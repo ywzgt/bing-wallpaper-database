@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.RussellLupines_ZH-CN8552113285_UHD.jpg&w=1000)今日图片: &nbsp;[特卡波湖沿岸的鲁冰花，南岛，新西兰 (© Jeffrey Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.RussellLupines_ZH-CN8552113285_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SarekSweden_ZH-CN9728518595_UHD.jpg&w=1000)今日图片: &nbsp;[萨雷克国家公园的拉帕谷，瑞典 (© Hans Strand/Getty Images)](https://www.bing.com/th?id=OHR.SarekSweden_ZH-CN9728518595_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.OliveOrchard_EN-US7903927729_UHD.jpg&w=1000)Today: [Old olive grove in the Serra Tramuntana range, Majorca, Spain (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.OliveOrchard_EN-US7903927729_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_UHD.jpg&w=1000)Today: [Russell lupines along Lake Tekapo, South Island, New Zealand (© Jeffrey Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_UHD.jpg)
 <br><br/>
