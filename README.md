@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SarekSweden_ZH-CN9728518595_UHD.jpg&w=1000)今日图片: &nbsp;[萨雷克国家公园的拉帕谷，瑞典 (© Hans Strand/Getty Images)](https://www.bing.com/th?id=OHR.SarekSweden_ZH-CN9728518595_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AthensAcropolis_ZH-CN9942357439_UHD.jpg&w=1000)今日图片: &nbsp;[雅典和卫城，希腊 (© Mlenny/Getty Images)](https://www.bing.com/th?id=OHR.AthensAcropolis_ZH-CN9942357439_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_UHD.jpg&w=1000)Today: [Russell lupines along Lake Tekapo, South Island, New Zealand (© Jeffrey Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SarekSweden_EN-US8292531624_UHD.jpg&w=1000)Today: [Rapa Valley in Sarek National Park, Sweden (© Hans Strand/Getty Images)](https://www.bing.com/th?id=OHR.SarekSweden_EN-US8292531624_UHD.jpg)
 <br><br/>
