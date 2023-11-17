@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BadRiver_ZH-CN0416550169_UHD.jpg&w=1000)今日图片: &nbsp;[铜瀑布州立公园的巴德河，威斯康星州，美国 (© Big Joe/Getty Images)](https://www.bing.com/th?id=OHR.BadRiver_ZH-CN0416550169_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MilsePolarBear_ZH-CN0567475122_UHD.jpg&w=1000)今日图片: &nbsp;[北极熊妈妈和幼崽，丘吉尔城，曼尼托巴省，加拿大 (© Thorsten Milse/Getty Images)](https://www.bing.com/th?id=OHR.MilsePolarBear_ZH-CN0567475122_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AthensAcropolis_EN-US8385195396_UHD.jpg&w=1000)Today: [View over Athens and the Acropolis, Greece (© Mlenny/Getty Images)](https://www.bing.com/th?id=OHR.AthensAcropolis_EN-US8385195396_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BadRiver_EN-US1270508214_UHD.jpg&w=1000)Today: [Bad River in Copper Falls State Park, Wisconsin (© Big Joe/Getty Images)](https://www.bing.com/th?id=OHR.BadRiver_EN-US1270508214_UHD.jpg)
 <br><br/>
