@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MilsePolarBear_ZH-CN0567475122_UHD.jpg&w=1000)今日图片: &nbsp;[北极熊妈妈和幼崽，丘吉尔城，曼尼托巴省，加拿大 (© Thorsten Milse/Getty Images)](https://www.bing.com/th?id=OHR.MilsePolarBear_ZH-CN0567475122_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FrozenBog_ZH-CN0712859386_UHD.jpg&w=1000)今日图片: &nbsp;[Alam-Pedja自然保护区，爱沙尼亚 (© Sven Zacek/Minden Pictures)](https://www.bing.com/th?id=OHR.FrozenBog_ZH-CN0712859386_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BadRiver_EN-US1270508214_UHD.jpg&w=1000)Today: [Bad River in Copper Falls State Park, Wisconsin (© Big Joe/Getty Images)](https://www.bing.com/th?id=OHR.BadRiver_EN-US1270508214_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MilsePolarBear_EN-US1615028560_UHD.jpg&w=1000)Today: [Polar bear mother and cubs, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)](https://www.bing.com/th?id=OHR.MilsePolarBear_EN-US1615028560_UHD.jpg)
 <br><br/>
