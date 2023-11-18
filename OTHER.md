@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MilsePolarBear_JA-JP2676664686_UHD.jpg&w=1000)今日の壁紙: &nbsp;[チャーチルの雪景色, カナダ マニトバ州  (© Thorsten Milse/Getty Images)](https://www.bing.com/th?id=OHR.MilsePolarBear_JA-JP2676664686_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FrozenBog_JA-JP3036034875_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アラムペジャ自然保護区, エストニア (© Sven Zacek/Minden Pictures)](https://www.bing.com/th?id=OHR.FrozenBog_JA-JP3036034875_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MilsePolarBear_FR-FR1430987110_UHD.jpg&w=1000)Today: [Mère et oursons polaires, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)](https://www.bing.com/th?id=OHR.MilsePolarBear_FR-FR1430987110_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MilsePolarBear_ES-ES4207753290_UHD.jpg&w=1000)Today: [Madre y crías de oso polar, Churchill, Manitoba, Canadá (© Thorsten Milse/Getty Images)](https://www.bing.com/th?id=OHR.MilsePolarBear_ES-ES4207753290_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MeonHillViewUK_EN-GB5301951758_UHD.jpg&w=1000)Today: [Meon Hill, Gloucestershire, England (© Stuart Black/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.MeonHillViewUK_EN-GB5301951758_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MilsePolarBear_EN-GB6443152470_UHD.jpg&w=1000)Today: [Polar bear mother and cubs, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)](https://www.bing.com/th?id=OHR.MilsePolarBear_EN-GB6443152470_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MilsePolarBear_IT-IT6547276065_UHD.jpg&w=1000)Today: [Madre e cuccioli di orso polare, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)](https://www.bing.com/th?id=OHR.MilsePolarBear_IT-IT6547276065_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BadRiver_PT-BR2573221301_UHD.jpg&w=1000)Today: [Bad River in Copper Falls State Park, Wisconsin (© Big Joe/Getty Images)](https://www.bing.com/th?id=OHR.BadRiver_PT-BR2573221301_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MilsePolarBear_PT-BR2847800646_UHD.jpg&w=1000)Today: [Polar bear mother and cubs, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)](https://www.bing.com/th?id=OHR.MilsePolarBear_PT-BR2847800646_UHD.jpg)
 <br><br/>
