@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Xiaoxue2023_JA-JP4270732262_UHD.jpg&w=1000)今日の壁紙: &nbsp;[初冬の阿寒湖周辺, 北海道 釧路市 (© vladimir zakharov/Getty Images)](https://www.bing.com/th?id=OHR.Xiaoxue2023_JA-JP4270732262_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BradgateFallow_JA-JP4632580137_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ブラッドゲート・パーク, イギリス イングランド (© Chris Bainbridge/Alamy)](https://www.bing.com/th?id=OHR.BradgateFallow_JA-JP4632580137_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SnakeRiverTeton_FR-FR7464068281_UHD.jpg&w=1000)Today: [Parc national de Grand Teton, Wyoming, États-Unis (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.SnakeRiverTeton_FR-FR7464068281_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SnakeRiverTeton_ES-ES4974142352_UHD.jpg&w=1000)Today: [Parque Nacional Grand Teton, Wyoming, EE.UU. (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.SnakeRiverTeton_ES-ES4974142352_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HelloSeal_EN-GB8313432120_UHD.jpg&w=1000)Today: [Grey seal pup on the beach of Norfolk, England (© Vince Burton/Minden Pictures)](https://www.bing.com/th?id=OHR.HelloSeal_EN-GB8313432120_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SnakeRiverTeton_EN-GB8620836496_UHD.jpg&w=1000)Today: [Grand Teton National Park, Wyoming, USA (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.SnakeRiverTeton_EN-GB8620836496_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ValdiNon_IT-IT6962165513_UHD.jpg&w=1000)Today: [Val di Non, Trentino-Alto Adige (© Stefano Springhetti/Sime/eStock Photo)](https://www.bing.com/th?id=OHR.ValdiNon_IT-IT6962165513_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HelloSeal_PT-BR4000213831_UHD.jpg&w=1000)Today: [Gray seal pup on the beach of Norfolk, England (© Vince Burton/Minden Pictures)](https://www.bing.com/th?id=OHR.HelloSeal_PT-BR4000213831_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PepalantusPlants_PT-BR5920810931_UHD.jpg&w=1000)Today: [Plantas Pepalantus  Parque Nacional da Chapada dos Veadeiros, Goias, Brasil (© Cavan Images/Getty Images)](https://www.bing.com/th?id=OHR.PepalantusPlants_PT-BR5920810931_UHD.jpg)
 <br><br/>
