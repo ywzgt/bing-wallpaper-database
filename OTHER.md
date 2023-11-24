@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.HallofMosses_JA-JP4877057961_UHD.jpg&w=1000)今日の壁紙: &nbsp;[オリンピック国立公園の温帯雨林, 米国 ワシントン州 (© James Randklev/Getty Images)](https://www.bing.com/th?id=OHR.HallofMosses_JA-JP4877057961_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.FlamingosSaintesMaries_FR-FR7852991785_UHD.jpg&w=1000)Today: [Flamants roses au lever du soleil, Saintes-Maries-de-la-Mer, Parc Naturel Régional de Camargue, France (© Image via Shutterstock)](https://www.bing.com/th?id=OHR.FlamingosSaintesMaries_FR-FR7852991785_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HallofMosses_FR-FR8097338401_UHD.jpg&w=1000)Today: [Sentier "Hall of Mosses" dans la forêt pluviale de Hoh, Parc national olympique, Washington, États-Unis (© James Randklev/Getty Images)](https://www.bing.com/th?id=OHR.HallofMosses_FR-FR8097338401_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TeideNational_DE-DE1766890549_UHD.jpg&w=1000)Today: [Sonnenuntergang im Nationalpark El Teide, Teneriffa, Kanarische Inseln, Spanien (© Javier Martínez Morán/Alamy)](https://www.bing.com/th?id=OHR.TeideNational_DE-DE1766890549_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HallofMosses_DE-DE2487418746_UHD.jpg&w=1000)Today: [Hall of Mosses-Pfad im Hoh-Regenwald, Olympic National Park, Washington, USA (© James Randklev/Getty Images)](https://www.bing.com/th?id=OHR.HallofMosses_DE-DE2487418746_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TeideNational_ES-ES5257401293_UHD.jpg&w=1000)Today: [Parque Nacional del Teide, Santa Cruz de Tenerife, España (© Javier Martínez Morán/Alamy)](https://www.bing.com/th?id=OHR.TeideNational_ES-ES5257401293_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SemanaReduccionResiduos_ES-ES5790884875_UHD.jpg&w=1000)Today: [Lago de Puigcerdá, Gerona, Cataluña, España (© Eloi Omella/Getty Images)](https://www.bing.com/th?id=OHR.SemanaReduccionResiduos_ES-ES5790884875_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TeideNational_EN-GB3659708002_UHD.jpg&w=1000)Today: [Teide National Park, Tenerife, Canary Islands, Spain (© Javier Martínez Morán/Alamy)](https://www.bing.com/th?id=OHR.TeideNational_EN-GB3659708002_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TeideNational_IT-IT6647681954_UHD.jpg&w=1000)Today: [Tramonto al Parco Nazionale del Teide, Tenerife, Isole Canarie, Spagna (© Javier Martínez Morán/Alamy)](https://www.bing.com/th?id=OHR.TeideNational_IT-IT6647681954_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HallofMosses_IT-IT8394280522_UHD.jpg&w=1000)Today: [Sentiero Hall of Mosses nella foresta pluviale di Hoh, Parco Nazionale Olimpico, Washington (© James Randklev/Getty Images)](https://www.bing.com/th?id=OHR.HallofMosses_IT-IT8394280522_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TeideNational_PT-BR6138267568_UHD.jpg&w=1000)Today: [Sunset at Teide National Park, Tenerife, Canary Islands, Spain (© Javier Martínez Morán/Alamy)](https://www.bing.com/th?id=OHR.TeideNational_PT-BR6138267568_UHD.jpg)
 <br><br/>
