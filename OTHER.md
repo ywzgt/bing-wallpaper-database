@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.RioNegro_JA-JP6030654959_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ネグロ川, ブラジル  (© Timothy Allen/Getty Images)](https://www.bing.com/th?id=OHR.RioNegro_JA-JP6030654959_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HumanKindness_JA-JP6290539891_UHD.jpg&w=1000)今日の壁紙: &nbsp;[手と手をつなぐ巨大な地上絵, トルコ イスタンブール (© Chris McGrath/Getty Images)](https://www.bing.com/th?id=OHR.HumanKindness_JA-JP6290539891_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.RioNegro_FR-FR6146672717_UHD.jpg&w=1000)Today: [Rio Negro, bassin amazonien, Brésil (© Timothy Allen/Getty Images)](https://www.bing.com/th?id=OHR.RioNegro_FR-FR6146672717_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.RioNegro_ES-ES6222339808_UHD.jpg&w=1000)Today: [Río Negro, cuenca del Amazonas, Brasil (© Timothy Allen/Getty Images)](https://www.bing.com/th?id=OHR.RioNegro_ES-ES6222339808_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BradgateFallow_EN-GB0976305371_UHD.jpg&w=1000)Today: [Fallow deer in Bradgate Park, Leicestershire, England (© Chris Bainbridge/Alamy)](https://www.bing.com/th?id=OHR.BradgateFallow_EN-GB0976305371_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RioNegro_EN-GB2228319376_UHD.jpg&w=1000)Today: [Rio Negro, Brazil (© Timothy Allen/Getty Images)](https://www.bing.com/th?id=OHR.RioNegro_EN-GB2228319376_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.RioNegro_IT-IT8563541659_UHD.jpg&w=1000)Today: [Río Negro, Bacino amazzonico, Brasile (© Timothy Allen/Getty Images)](https://www.bing.com/th?id=OHR.RioNegro_IT-IT8563541659_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BradgateFallow_PT-BR7068932204_UHD.jpg&w=1000)Today: [Fallow deer in Bradgate Park, Leicestershire, England (© Chris Bainbridge/Alamy)](https://www.bing.com/th?id=OHR.BradgateFallow_PT-BR7068932204_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RioNegro_PT-BR7317950663_UHD.jpg&w=1000)Today: [Río Negro, Amazon basin, Brazil (© Timothy Allen/Getty Images)](https://www.bing.com/th?id=OHR.RioNegro_PT-BR7317950663_UHD.jpg)
 <br><br/>
