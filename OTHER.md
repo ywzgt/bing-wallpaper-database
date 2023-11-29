@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TreeLighting_JA-JP6880977842_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ロックフェラーセンター,  米国 ニューヨーク州 (© Jonathan Orenstein/Getty Images)](https://www.bing.com/th?id=OHR.TreeLighting_JA-JP6880977842_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TrotternishStorr_JA-JP7531639858_UHD.jpg&w=1000)今日の壁紙: &nbsp;[スカイ島の奇岩, イギリス スコットランド (© Juan Maria Coy Vergara/Getty Images)](https://www.bing.com/th?id=OHR.TrotternishStorr_JA-JP7531639858_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TreeLighting_FR-FR6609307471_UHD.jpg&w=1000)Today: [Arbre de Noël du Rockefeller Center, New York, États-Unis (© Jonathan Orenstein/Getty Images)](https://www.bing.com/th?id=OHR.TreeLighting_FR-FR6609307471_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TreeLighting_ES-ES6521457922_UHD.jpg&w=1000)Today: [Árbol de Navidad del Rockefeller Center, Nueva York, EE.UU. (© Jonathan Orenstein/Getty Images)](https://www.bing.com/th?id=OHR.TreeLighting_ES-ES6521457922_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HumanKindness_EN-GB2526768223_UHD.jpg&w=1000)Today: [Giant land art fresco by artist Saype, Istanbul, Turkey (© Chris McGrath/Getty Images)](https://www.bing.com/th?id=OHR.HumanKindness_EN-GB2526768223_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TreeLighting_EN-GB2794136797_UHD.jpg&w=1000)Today: [Rockefeller Centre Christmas Tree, New York City, USA (© Jonathan Orenstein/Getty Images)](https://www.bing.com/th?id=OHR.TreeLighting_EN-GB2794136797_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TreeLighting_IT-IT9195386541_UHD.jpg&w=1000)Today: [Albero di Natale del Rockefeller Center, New York, USA (© Jonathan Orenstein/Getty Images)](https://www.bing.com/th?id=OHR.TreeLighting_IT-IT9195386541_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HumanKindness_PT-BR7560592724_UHD.jpg&w=1000)Today: [Giant land art fresco by artist Saype in Istanbul, Türkiye (© Chris McGrath/Getty Images)](https://www.bing.com/th?id=OHR.HumanKindness_PT-BR7560592724_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TreeLighting_PT-BR7736994809_UHD.jpg&w=1000)Today: [Rockefeller Center Christmas tree, New York City (© Jonathan Orenstein/Getty Images)](https://www.bing.com/th?id=OHR.TreeLighting_PT-BR7736994809_UHD.jpg)
 <br><br/>
