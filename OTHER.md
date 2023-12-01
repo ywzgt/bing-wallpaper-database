@@ -1,3 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.IcebergAntarctica_JA-JP7499377944_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ロス海の氷山, 南極 (© Michel Roggo/Minden Pictures)](https://www.bing.com/th?id=OHR.IcebergAntarctica_JA-JP7499377944_UHD.jpg)
 <br><br/>
+![](https://www.bing.com/th?id=OHR.IcebergAntarctica_FR-FR1355397777_UHD.jpg&w=1000)Today: [Iceberg, mer de Ross, Antarctique (© Michel Roggo/Minden Pictures)](https://www.bing.com/th?id=OHR.IcebergAntarctica_FR-FR1355397777_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.IcebergAntarctica_DE-DE5154867444_UHD.jpg&w=1000)Today: [Eisberg, Rossmeer, Antarktis (© Michel Roggo/Minden Pictures)](https://www.bing.com/th?id=OHR.IcebergAntarctica_DE-DE5154867444_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.SierraNevadaGranada_ES-ES5604012292_UHD.jpg&w=1000)Today: [Pradollano, Parque Nacional de Sierra Nevada, Granada, Andalucía, España (© iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.SierraNevadaGranada_ES-ES5604012292_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.LeadenhallUK_EN-GB3042111411_UHD.jpg&w=1000)Today: [Leadenhall Market, London (© Vittorio Caramazza/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.LeadenhallUK_EN-GB3042111411_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.IcebergAntarctica_IT-IT9598451046_UHD.jpg&w=1000)Today: [Iceberg, Mare di Ross, Antartide (© Michel Roggo/Minden Pictures)](https://www.bing.com/th?id=OHR.IcebergAntarctica_IT-IT9598451046_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.TrotternishStorr_PT-BR8013628330_UHD.jpg&w=1000)Today: [The Storr, a rock outcrop on the Isle of Skye, Scotland (© Juan Maria Coy Vergara/Getty Images)](https://www.bing.com/th?id=OHR.TrotternishStorr_PT-BR8013628330_UHD.jpg)
+<br><br/>
