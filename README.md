@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.VermilionCliffs_ZH-CN3945784250_UHD.jpg&w=1000)今日图片: &nbsp;[砂岩岩层，红悬崖国家保护区，亚利桑那州，美国 (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://www.bing.com/th?id=OHR.VermilionCliffs_ZH-CN3945784250_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CheetahDay_ZH-CN5114530695_UHD.jpg&w=1000)今日图片: &nbsp;[一只猎豹妈妈和她的幼崽，马赛马拉国家保护区，肯尼亚 (© Scott Davis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CheetahDay_ZH-CN5114530695_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AngkorPark_EN-US8869976296_UHD.jpg&w=1000)Today: [North Gate of Angkor Thom, Angkor Archaeological Park, Cambodia (© Amazing Travel Lifestyle/Shutterstock)](https://www.bing.com/th?id=OHR.AngkorPark_EN-US8869976296_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VermilionCliffs_EN-US9543863428_UHD.jpg&w=1000)Today: [Sandstone rock formations, Vermilion Cliffs National Monument, Arizona (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://www.bing.com/th?id=OHR.VermilionCliffs_EN-US9543863428_UHD.jpg)
 <br><br/>

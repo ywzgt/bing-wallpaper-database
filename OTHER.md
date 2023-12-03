@@ -1,15 +1,3 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ChichibuNightFestival2023_JA-JP7273209766_UHD.jpg&w=1000)今日の壁紙: &nbsp;[豪華絢爛な山車と花火, 埼玉県 秩父市 (© ASSOCIATED PRESS/AP)](https://www.bing.com/th?id=OHR.ChichibuNightFestival2023_JA-JP7273209766_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.VermilionCliffs_FR-FR2444985797_UHD.jpg&w=1000)Today: [Sandstone rock formations, Vermilion Cliffs National Monument, Arizona (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://www.bing.com/th?id=OHR.VermilionCliffs_FR-FR2444985797_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.AdventCandles_DE-DE5745252681_UHD.jpg&w=1000)Today: [Die Adventszeit beginnt (© Muenz/Getty Images)](https://www.bing.com/th?id=OHR.AdventCandles_DE-DE5745252681_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.VermilionCliffs_ES-ES7943692512_UHD.jpg&w=1000)Today: [Formaciones rocosas de arenisca, Monumento Nacional Vermilion Cliffs, Arizona, EE.UU. (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://www.bing.com/th?id=OHR.VermilionCliffs_ES-ES7943692512_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.AngkorPark_EN-GB6520244831_UHD.jpg&w=1000)Today: [North Gate of Angkor Thom, Angkor Archaeological Park, Cambodia (© Amazing Travel Lifestyle/Shutterstock)](https://www.bing.com/th?id=OHR.AngkorPark_EN-GB6520244831_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.VermilionCliffs_IT-IT1624216981_UHD.jpg&w=1000)Today: [Formazioni rocciose di arenaria, Monumento naturale di Vermilion Cliffs, Arizona, Stati Uniti (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://www.bing.com/th?id=OHR.VermilionCliffs_IT-IT1624216981_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.AngkorPark_PT-BR8878071421_UHD.jpg&w=1000)Today: [North Gate of Angkor Thom, Angkor Archaeological Park, Cambodia (© Amazing Travel Lifestyle/Shutterstock)](https://www.bing.com/th?id=OHR.AngkorPark_PT-BR8878071421_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CheetahDay_JA-JP9363476313_UHD.jpg&w=1000)今日の壁紙: &nbsp;[マサイマラ国立保護区のチーター親子, ケニア (© Scott Davis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CheetahDay_JA-JP9363476313_UHD.jpg)
 <br><br/>
