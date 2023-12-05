@@ -1,1 +1,1 @@
-12/05.global.md
+12/06.global.md

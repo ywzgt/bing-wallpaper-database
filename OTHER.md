@@ -1,3 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.AlpsCastles_JA-JP8376783369_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ノイシュヴァンシュタイン城とホーエンシュヴァンガウ城, ドイツ (© Harald Nachtmann/Getty Images)](https://www.bing.com/th?id=OHR.AlpsCastles_JA-JP8376783369_UHD.jpg)
 <br><br/>
+![](https://www.bing.com/th?id=OHR.AlpsCastles_FR-FR2910854727_UHD.jpg&w=1000)Today: [Châteaux de Neuschwanstein et de Hohenschwangau, Alpes bavaroises, Allemagne (© Harald Nachtmann/Getty Images)](https://www.bing.com/th?id=OHR.AlpsCastles_FR-FR2910854727_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.AlpsCastles_DE-DE6522289575_UHD.jpg&w=1000)Today: [Schloss Neuschwanstein und Schloss Hohenschwangau, Bayerische Alpen (© Harald Nachtmann/Getty Images)](https://www.bing.com/th?id=OHR.AlpsCastles_DE-DE6522289575_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.AlpsCastles_ES-ES0525825978_UHD.jpg&w=1000)Today: [Castillos de Neuschwanstein y Hohenschwangau, Alpes bávaros, Alemania (© Harald Nachtmann/Getty Images)](https://www.bing.com/th?id=OHR.AlpsCastles_ES-ES0525825978_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.CheetahDay_EN-GB8942362755_UHD.jpg&w=1000)Today: [A mother cheetah and her cubs in the Masai Mara National Reserve, Kenya (© Scott Davis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CheetahDay_EN-GB8942362755_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.ValdiFassa_IT-IT6575730533_UHD.jpg&w=1000)Today: [Passo Pordoi, Sellaronda, vista dal Belvedere verso la Marmolada, Italia (© Johanna Huber/Sime/eStock Photo)](https://www.bing.com/th?id=OHR.ValdiFassa_IT-IT6575730533_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.CheetahDay_PT-BR9341375783_UHD.jpg&w=1000)Today: [A mother cheetah and her cubs in the Masai Mara National Reserve, Kenya (© Scott Davis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CheetahDay_PT-BR9341375783_UHD.jpg)
+<br><br/>
