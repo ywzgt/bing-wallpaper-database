@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.DardagnaWaterfalls_ZH-CN5613123621_UHD.jpg&w=1000)今日图片: &nbsp;[达尔达尼亚瀑布，博洛尼亚，意大利 (© Alberto Ghizzi Panizza/Minden)](https://www.bing.com/th?id=OHR.DardagnaWaterfalls_ZH-CN5613123621_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GrandCanyonVerdon_ZH-CN6025902720_UHD.jpg&w=1000)今日图片: &nbsp;[韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国 (© Hemis/Alamy)](https://www.bing.com/th?id=OHR.GrandCanyonVerdon_ZH-CN6025902720_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AlpsCastles_EN-US9735484506_UHD.jpg&w=1000)Today: [Neuschwanstein and Hohenschwangau castles, Bavarian Alps, Germany (© Harald Nachtmann/Getty Images)](https://www.bing.com/th?id=OHR.AlpsCastles_EN-US9735484506_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CERNCenter_EN-US9854867489_UHD.jpg&w=1000)Today: [The Globe of Science and Innovation building, Meyrin, Switzerland (© Deyan Baric/Alamy)](https://www.bing.com/th?id=OHR.CERNCenter_EN-US9854867489_UHD.jpg)
 <br><br/>
