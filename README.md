@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.JerseyIsland_ZH-CN6224973235_UHD.jpg&w=1000)今日图片: &nbsp;[拉罗克港，圣克莱门特，泽西岛 (© Reinhard Schmid/Huber/eStock Photo)](https://www.bing.com/th?id=OHR.JerseyIsland_ZH-CN6224973235_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PatagoniaGuanaco_ZH-CN6438038982_UHD.jpg&w=1000)今日图片: &nbsp;[原驼，冰川国家公园，阿根廷 (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://www.bing.com/th?id=OHR.PatagoniaGuanaco_ZH-CN6438038982_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PearlHarborArizona_EN-US9996821390_UHD.jpg&w=1000)Today: [USS Arizona Memorial, Pearl Harbor, Oahu, Hawaii (© Douglas Peebles Photography/Alamy)](https://www.bing.com/th?id=OHR.PearlHarborArizona_EN-US9996821390_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JerseyIsland_EN-US0109101063_UHD.jpg&w=1000)Today: [La Rocque Harbour, St. Clement, Island of Jersey (© Reinhard Schmid/Huber/eStock Photo)](https://www.bing.com/th?id=OHR.JerseyIsland_EN-US0109101063_UHD.jpg)
 <br><br/>
