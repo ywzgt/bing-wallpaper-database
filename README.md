@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MountainDayChina_ZH-CN6894169616_UHD.jpg&w=1000)今日图片: &nbsp;[黄山的冬天，中国 (© Hung Chung Chih/Shutterstock)](https://www.bing.com/th?id=OHR.MountainDayChina_ZH-CN6894169616_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Poinsettia_ZH-CN7255902344_UHD.jpg&w=1000)今日图片: &nbsp;[一品红 (© Yarygin/Getty Images)](https://www.bing.com/th?id=OHR.Poinsettia_ZH-CN7255902344_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SaharaDunes_EN-US0324387398_UHD.jpg&w=1000)Today: [Last rays of sun on a group of dunes, Sahara, Algeria (© AWL Images/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.SaharaDunes_EN-US0324387398_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MountainDayChina_EN-US0394775210_UHD.jpg&w=1000)Today: [Winter at Huangshan, China (© Hung Chung Chih/Shutterstock)](https://www.bing.com/th?id=OHR.MountainDayChina_EN-US0394775210_UHD.jpg)
 <br><br/>

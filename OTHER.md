@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MountainDayChina_JA-JP0160517596_UHD.jpg&w=1000)今日の壁紙: &nbsp;[冬の黄山, 中国 安徽省 (© Hung Chung Chih/Shutterstock)](https://www.bing.com/th?id=OHR.MountainDayChina_JA-JP0160517596_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Poinsettia_JA-JP0391640145_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ポインセチア (© Yarygin/Getty Images)](https://www.bing.com/th?id=OHR.Poinsettia_JA-JP0391640145_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MountainDayChina_FR-FR7601164917_UHD.jpg&w=1000)Today: [Hiver dans les montagnes de Huangshan, Chine (© Hung Chung Chih/Shutterstock)](https://www.bing.com/th?id=OHR.MountainDayChina_FR-FR7601164917_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MountainDayChina_ES-ES0104105727_UHD.jpg&w=1000)Today: [Invierno en las montañas de Huangshan, China (© Hung Chung Chih/Shutterstock)](https://www.bing.com/th?id=OHR.MountainDayChina_ES-ES0104105727_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SaharaDunes_EN-GB4602416366_UHD.jpg&w=1000)Today: [Sand dunes in the Sahara, Algeria (© AWL Images/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.SaharaDunes_EN-GB4602416366_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MountainDayChina_EN-GB5354424852_UHD.jpg&w=1000)Today: [Winter in Huangshan Mountains, China (© Hung Chung Chih/Shutterstock)](https://www.bing.com/th?id=OHR.MountainDayChina_EN-GB5354424852_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MountainDayChina_IT-IT9771013774_UHD.jpg&w=1000)Today: [L'inverno sui monti Huangshan, in Cina (© Hung Chung Chih/Shutterstock)](https://www.bing.com/th?id=OHR.MountainDayChina_IT-IT9771013774_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SaharaDunes_PT-BR0559111753_UHD.jpg&w=1000)Today: [Last rays of sun on a group of dunes, Sahara, Algeria (© AWL Images/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.SaharaDunes_PT-BR0559111753_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MountainDayChina_PT-BR0775570847_UHD.jpg&w=1000)Today: [Winter in Huangshan Mountains, China (© Hung Chung Chih/Shutterstock)](https://www.bing.com/th?id=OHR.MountainDayChina_PT-BR0775570847_UHD.jpg)
 <br><br/>
