@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.CapitolReefSnow_JA-JP1048193516_UHD.jpg&w=1000)今日の壁紙: &nbsp;[キャピトル・リーフ国立公園 , 米国 ユタ州 (© Jeff Clay/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CapitolReefSnow_JA-JP1048193516_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WarsawChristmas_JA-JP1330837754_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ワルシャワの旧市街, ポーランド (© Panther Media GmbH/Alamy)](https://www.bing.com/th?id=OHR.WarsawChristmas_JA-JP1330837754_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.Beaufortain_FR-FR7561012950_UHD.jpg&w=1000)Today: [Station de ski du col des Saisies à l'aube, Beaufortain, Savoie, France (© SPANI Arnaud/hemis.fr/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.Beaufortain_FR-FR7561012950_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CapitolReefSnow_ES-ES2636355852_UHD.jpg&w=1000)Today: [Parque Nacional de Capitol Reef, Utah, EE.UU. (© Jeff Clay/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CapitolReefSnow_ES-ES2636355852_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WinterWaxwings_EN-GB4953491733_UHD.jpg&w=1000)Today: [Bohemian waxwings perched on a branch, Canada (© Jim Cumming/Shutterstock)](https://www.bing.com/th?id=OHR.WinterWaxwings_EN-GB4953491733_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CapitolReefSnow_EN-GB5319402491_UHD.jpg&w=1000)Today: [Capitol Reef National Park, Utah, USA (© Jeff Clay/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CapitolReefSnow_EN-GB5319402491_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.KingAlps_IT-IT9812724645_UHD.jpg&w=1000)Today: [Stambecco sotto una forte nevicata, Alpi, Italia (© Paolino Massimiliano Manuel/Getty Images)](https://www.bing.com/th?id=OHR.KingAlps_IT-IT9812724645_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WinterWaxwings_PT-BR7478795667_UHD.jpg&w=1000)Today: [Asas de cera da Boêmia empoleiradas em um galho, Canadá (© Jim Cumming/Shutterstock)](https://www.bing.com/th?id=OHR.WinterWaxwings_PT-BR7478795667_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CapitolReefSnow_PT-BR7723404626_UHD.jpg&w=1000)Today: [Parque Nacional Capitol Reef, Utah, EUA (© Jeff Clay/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CapitolReefSnow_PT-BR7723404626_UHD.jpg)
 <br><br/>
