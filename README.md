@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.FestivusPenguins_ZH-CN5191348531_UHD.jpg&w=1000)今日图片: &nbsp;[帽带企鹅，南桑威奇群岛，南大西洋 (© Jan Vermeer/Minden Pictures)](https://www.bing.com/th?id=OHR.FestivusPenguins_ZH-CN5191348531_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EstoniaXmasEve_ZH-CN5870799404_UHD.jpg&w=1000)今日图片: &nbsp;[市政厅广场，塔尔图，爱沙尼亚 (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.EstoniaXmasEve_ZH-CN5870799404_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LjubljanaLights_EN-US9215683814_UHD.jpg&w=1000)Today: [Ljubljana, Slovenia (© kasto80/Getty images)](https://www.bing.com/th?id=OHR.LjubljanaLights_EN-US9215683814_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FestivusPenguins_EN-US9322662873_UHD.jpg&w=1000)Today: [Chinstrap penguins, South Sandwich Islands, South Atlantic Ocean (© Jan Vermeer/Minden Pictures)](https://www.bing.com/th?id=OHR.FestivusPenguins_EN-US9322662873_UHD.jpg)
 <br><br/>
