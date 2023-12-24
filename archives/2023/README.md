@@ -1,1 +1,1 @@
-12/24.global.md
+12/25.global.md
