@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BoxingDaySunrise_ZH-CN7431512686_UHD.jpg&w=1000)今日图片: &nbsp;[冬季日出，戴德姆，科尔切斯特，英格兰 (© George W Johnson/Getty Images)](https://www.bing.com/th?id=OHR.BoxingDaySunrise_ZH-CN7431512686_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KirkjufellAurora_ZH-CN7878752057_UHD.jpg&w=1000)今日图片: &nbsp;[教堂山，斯奈山半岛，冰岛 (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.KirkjufellAurora_ZH-CN7878752057_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CaribouChristmas_EN-US9744655068_UHD.jpg&w=1000)Today: [Caribou running in snow, Alaska (© Michael Quinton/Minden Pictures)](https://www.bing.com/th?id=OHR.CaribouChristmas_EN-US9744655068_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BoxingDaySunrise_EN-US9951041123_UHD.jpg&w=1000)Today: [Winter sunrise in Dedham, Colchester, England (© George W Johnson/Getty Images)](https://www.bing.com/th?id=OHR.BoxingDaySunrise_EN-US9951041123_UHD.jpg)
 <br><br/>
