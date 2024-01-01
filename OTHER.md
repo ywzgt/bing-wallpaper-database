@@ -1,15 +1,3 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Sunrise2024_JA-JP1927003758_UHD.jpg&w=1000)今日の壁紙: &nbsp;[本栖湖から見る富士山の日の出, 山梨県 (© Sakarin Sawasdinaka/Shutterstock)](https://www.bing.com/th?id=OHR.Sunrise2024_JA-JP1927003758_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.SleepingFox_FR-FR9573665261_UHD.jpg&w=1000)Today: [Renard roux dormant dans la neige, Abruzzes, Italie (© marco vancini/500px/Getty Images)](https://www.bing.com/th?id=OHR.SleepingFox_FR-FR9573665261_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.SleepingFox_DE-DE0284095330_UHD.jpg&w=1000)Today: [Schlafender Rotfuchs im Schnee, Abruzzen, Italien (© marco vancini/500px/Getty Images)](https://www.bing.com/th?id=OHR.SleepingFox_DE-DE0284095330_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.SleepingFox_ES-ES8416762367_UHD.jpg&w=1000)Today: [Zorro rojo durmiendo en la nieve, Abruzzo, Italia (© marco vancini/500px/Getty Images)](https://www.bing.com/th?id=OHR.SleepingFox_ES-ES8416762367_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.ThailandNewYears_EN-GB2689906608_UHD.jpg&w=1000)Today: [Fireworks over Phra Nakhon Khiri, Phetchaburi, Thailand (© noomcpk/Shutterstock)](https://www.bing.com/th?id=OHR.ThailandNewYears_EN-GB2689906608_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.SleepingFox_IT-IT1479703607_UHD.jpg&w=1000)Today: [Volpe che sonnecchia nella neve, Abruzzo, Italia (© Marco Vancini/500px/Getty Images)](https://www.bing.com/th?id=OHR.SleepingFox_IT-IT1479703607_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.ReveillonBrazil_PT-BR9820187694_UHD.jpg&w=1000)Today: [Fogos de artifício na festa de Ano Novo na praia de Copacabana (© Pulsar Imagens/Alamy)](https://www.bing.com/th?id=OHR.ReveillonBrazil_PT-BR9820187694_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BhutanSolstice_JA-JP1805849873_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ポブジカ渓谷, ブータン (© John Warburton-Lee/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.BhutanSolstice_JA-JP1805849873_UHD.jpg)
 <br><br/>
