@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MinnewankaLake_ZH-CN3020982568_UHD.jpg&w=1000)今日图片: &nbsp;[明尼汪卡湖，阿尔伯塔省，加拿大 (© Ken Phung/500px/Getty Images)](https://www.bing.com/th?id=OHR.MinnewankaLake_ZH-CN3020982568_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GoldenGateLight_ZH-CN3874822904_UHD.jpg&w=1000)今日图片: &nbsp;[金门大桥，旧金山，加利福尼亚州，美国 (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GoldenGateLight_ZH-CN3874822904_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BhutanSolstice_EN-US7410762908_UHD.jpg&w=1000)Today: [Prayer flags in Phobjikha Valley, Bhutan (© John Warburton-Lee/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.BhutanSolstice_EN-US7410762908_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BodleianCeiling_EN-US7552379941_UHD.jpg&w=1000)Today: [Bodleian Library, University of Oxford, England (© Andrew Holt/Getty Images)](https://www.bing.com/th?id=OHR.BodleianCeiling_EN-US7552379941_UHD.jpg)
 <br><br/>
