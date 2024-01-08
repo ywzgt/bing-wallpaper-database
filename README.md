@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BerninaPass_ZH-CN5776010452_UHD.jpg&w=1000)今日图片: &nbsp;[贝尔尼纳山口的滑雪场，格劳宾登州，瑞士 (© Francesco Bergamaschi/Getty Images)](https://www.bing.com/th?id=OHR.BerninaPass_ZH-CN5776010452_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BalloonDay_ZH-CN7571792218_UHD.jpg&w=1000)今日图片: &nbsp;[格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国 (© Jennifer MacCornack/Shutterstock)](https://www.bing.com/th?id=OHR.BalloonDay_ZH-CN7571792218_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DevilsMarbles_EN-US8559239074_UHD.jpg&w=1000)Today: [Karlu Karlu/Devils Marbles Conservation Reserve, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://www.bing.com/th?id=OHR.DevilsMarbles_EN-US8559239074_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BerninaPass_EN-US8788589226_UHD.jpg&w=1000)Today: [Skier at Bernina Pass, Graubünden, Switzerland (© Francesco Bergamaschi/Getty Images)](https://www.bing.com/th?id=OHR.BerninaPass_EN-US8788589226_UHD.jpg)
 <br><br/>
