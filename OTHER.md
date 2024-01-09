@@ -1,15 +1,3 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BalloonDay_JA-JP2573832501_UHD.jpg&w=1000)今日の壁紙: &nbsp;[リオ・グランデ川上空に舞い上がる気球, 米国 コロラド州 (© Jennifer MacCornack/Shutterstock)](https://www.bing.com/th?id=OHR.BalloonDay_JA-JP2573832501_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.BalloonDay_FR-FR1975351459_UHD.jpg&w=1000)Today: [Montgolfières au-dessus du Rio Grande, Albuquerque, Nouveau Mexique, États-Unis (© Jennifer MacCornack/Shutterstock)](https://www.bing.com/th?id=OHR.BalloonDay_FR-FR1975351459_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.BalloonDay_DE-DE2164566346_UHD.jpg&w=1000)Today: [Heißluftballons über dem Rio Grande, Albuquerque, New Mexico, USA (© Jennifer MacCornack/Shutterstock)](https://www.bing.com/th?id=OHR.BalloonDay_DE-DE2164566346_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.BalloonDay_ES-ES6385510449_UHD.jpg&w=1000)Today: [Globos aerostáticos sobre el Río Grande, Albuquerque, Nuevo México, EE.UU. (© Jennifer MacCornack/Shutterstock)](https://www.bing.com/th?id=OHR.BalloonDay_ES-ES6385510449_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.BerninaPass_EN-GB1258077580_UHD.jpg&w=1000)Today: [Skier at Bernina Pass, Graubünden, Switzerland (© Francesco Bergamaschi/Getty Images)](https://www.bing.com/th?id=OHR.BerninaPass_EN-GB1258077580_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.BalloonDay_IT-IT9345867684_UHD.jpg&w=1000)Today: [Mongolfiere sopra il Rio Grande, Albuquerque, Nuovo Messico, USA (© Jennifer MacCornack/Shutterstock)](https://www.bing.com/th?id=OHR.BalloonDay_IT-IT9345867684_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.BerninaPass_PT-BR1871424589_UHD.jpg&w=1000)Today: [Esquiador no Passo Bernina, Grisões, Suíça (© Francesco Bergamaschi/Getty Images)](https://www.bing.com/th?id=OHR.BerninaPass_PT-BR1871424589_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MilopotamosStairs_JA-JP2627387814_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ミロポタモスの海岸にある階段, ギリシャ (© Orestis Zoumpos/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.MilopotamosStairs_JA-JP2627387814_UHD.jpg)
 <br><br/>

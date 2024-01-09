@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BalloonDay_ZH-CN7571792218_UHD.jpg&w=1000)今日图片: &nbsp;[格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国 (© Jennifer MacCornack/Shutterstock)](https://www.bing.com/th?id=OHR.BalloonDay_ZH-CN7571792218_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MilopotamosStairs_ZH-CN8013521384_UHD.jpg&w=1000)今日图片: &nbsp;[米罗伯塔莫斯海岸线上的楼梯，色萨利，希腊 (© Orestis Zoumpos/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.MilopotamosStairs_ZH-CN8013521384_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BerninaPass_EN-US8788589226_UHD.jpg&w=1000)Today: [Skier at Bernina Pass, Graubünden, Switzerland (© Francesco Bergamaschi/Getty Images)](https://www.bing.com/th?id=OHR.BerninaPass_EN-US8788589226_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BalloonDay_EN-US9019911805_UHD.jpg&w=1000)Today: [Hot air balloons over the Rio Grande, Albuquerque, New Mexico (© Jennifer MacCornack/Shutterstock)](https://www.bing.com/th?id=OHR.BalloonDay_EN-US9019911805_UHD.jpg)
 <br><br/>
