@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Daruma2024_JA-JP9897104150_UHD.jpg&w=1000)今日の壁紙: &nbsp;[勝尾寺の勝ちダルマ, 大阪府 箕面市 (© feathercollector/Adobe Stock)](https://www.bing.com/th?id=OHR.Daruma2024_JA-JP9897104150_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HokkaidoSwans_JA-JP3605792409_UHD.jpg&w=1000)今日の壁紙: &nbsp;[屈斜路湖, 北海道 (© Darrell Gulin/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.HokkaidoSwans_JA-JP3605792409_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.HanaHighway_FR-FR2322911528_UHD.jpg&w=1000)Today: [Route d’Hana, Maui, Hawaï, États-Unis (© Matteo Colombo/Getty Images)](https://www.bing.com/th?id=OHR.HanaHighway_FR-FR2322911528_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.HanaHighway_ES-ES1267688219_UHD.jpg&w=1000)Today: [Carretera a Hana, Maui, Hawai, EE.UU. (© Matteo Colombo/Getty Images)](https://www.bing.com/th?id=OHR.HanaHighway_ES-ES1267688219_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BukhansanSeoul_EN-GB0341063799_UHD.jpg&w=1000)Today: [Bukhansan National Park, South Korea (© TRAVEL TAKE PHOTOS/Shutterstock)](https://www.bing.com/th?id=OHR.BukhansanSeoul_EN-GB0341063799_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HanaHighway_EN-GB1532378824_UHD.jpg&w=1000)Today: [Road to Hana, Maui, Hawaii (© Matteo Colombo/Getty Images)](https://www.bing.com/th?id=OHR.HanaHighway_EN-GB1532378824_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SanLucanoValley_IT-IT3035454153_UHD.jpg&w=1000)Today: [Taibor Agordino, Belluno (© Moreno Geremetta/Alamy)](https://www.bing.com/th?id=OHR.SanLucanoValley_IT-IT3035454153_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BukhansanSeoul_PT-BR9378454130_UHD.jpg&w=1000)Today: [Parque Nacional de Bukhansan, Coreia do Sul (© TRAVEL TAKE PHOTOS/Shutterstock)](https://www.bing.com/th?id=OHR.BukhansanSeoul_PT-BR9378454130_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HanaHighway_PT-BR9575647146_UHD.jpg&w=1000)Today: [Estrada para Hana, Maui, Havai, EUA (© Matteo Colombo/Getty Images)](https://www.bing.com/th?id=OHR.HanaHighway_PT-BR9575647146_UHD.jpg)
 <br><br/>
