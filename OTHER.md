@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SleepyWolf_JA-JP7170122030_UHD.jpg&w=1000)今日の壁紙: &nbsp;[バイエルンの森国立公園, ドイツ (© Raimund Linke/Getty Images)](https://www.bing.com/th?id=OHR.SleepyWolf_JA-JP7170122030_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ParisBridge_JA-JP7502194315_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アレクサンドル 3 世橋, フランス パリ (© Sizun Eye/Getty Images)](https://www.bing.com/th?id=OHR.ParisBridge_JA-JP7502194315_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SleepyWolf_FR-FR3759485122_UHD.jpg&w=1000)Today: [Loup endormi dans le parc national de la forêt bavaroise, Allemagne (© Raimund Linke/Getty Images)](https://www.bing.com/th?id=OHR.SleepyWolf_FR-FR3759485122_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SleepyWolf_ES-ES1847599512_UHD.jpg&w=1000)Today: [Lobo dormido en el Parque Nacional del Bosque Bávaro, Alemania (© Raimund Linke/Getty Images)](https://www.bing.com/th?id=OHR.SleepyWolf_ES-ES1847599512_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LakeLouise_EN-GB2053286596_UHD.jpg&w=1000)Today: [Lake Louise, Banff National Park, Alberta, Canada (© Mr. Simon Paul/Shutterstock)](https://www.bing.com/th?id=OHR.LakeLouise_EN-GB2053286596_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SleepyWolf_EN-GB2239080031_UHD.jpg&w=1000)Today: [Sleeping wolf in Bavarian Forest National Park, Germany (© Raimund Linke/Getty Images)](https://www.bing.com/th?id=OHR.SleepyWolf_EN-GB2239080031_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SleepyWolf_IT-IT5699370388_UHD.jpg&w=1000)Today: [Lupo durante un pisolino nel Parco nazionale della foresta bavarese, Germania (© Raimund Linke/Getty Images)](https://www.bing.com/th?id=OHR.SleepyWolf_IT-IT5699370388_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LakeLouise_PT-BR0201889430_UHD.jpg&w=1000)Today: [Lago Louise, Parque Nacional de Banff, Alberta, Canadá (© Mr. Simon Paul/Shutterstock)](https://www.bing.com/th?id=OHR.LakeLouise_PT-BR0201889430_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GiantAnteaterBR_PT-BR0815796970_UHD.jpg&w=1000)Today: [Um tamanduá passeando pelo Pantanal brasileiro (© Pedro Ferreira do Amaral/Getty Images)](https://www.bing.com/th?id=OHR.GiantAnteaterBR_PT-BR0815796970_UHD.jpg)
 <br><br/>
