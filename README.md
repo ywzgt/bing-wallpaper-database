@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ParisBridge_ZH-CN0173421630_UHD.jpg&w=1000)今日图片: &nbsp;[黄昏时分的亚历山大三世桥，巴黎，法国 (© Sizun Eye/Getty Images)](https://www.bing.com/th?id=OHR.ParisBridge_ZH-CN0173421630_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PlitviceWinter_ZH-CN0407572344_UHD.jpg&w=1000)今日图片: &nbsp;[十六湖国家公园，克罗地亚 (© Massimo_S8/Getty Images)](https://www.bing.com/th?id=OHR.PlitviceWinter_ZH-CN0407572344_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SleepyWolf_EN-US1667992900_UHD.jpg&w=1000)Today: [Sleeping wolf in Bavarian Forest National Park, Germany (© Raimund Linke/Getty Images)](https://www.bing.com/th?id=OHR.SleepyWolf_EN-US1667992900_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ParisBridge_EN-US1771484789_UHD.jpg&w=1000)Today: [Pont Alexandre III at twilight, Paris, France (© Sizun Eye/Getty Images)](https://www.bing.com/th?id=OHR.ParisBridge_EN-US1771484789_UHD.jpg)
 <br><br/>

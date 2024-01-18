@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ParisBridge_JA-JP7502194315_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アレクサンドル 3 世橋, フランス パリ (© Sizun Eye/Getty Images)](https://www.bing.com/th?id=OHR.ParisBridge_JA-JP7502194315_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PlitviceWinter_JA-JP1926981970_UHD.jpg&w=1000)今日の壁紙: &nbsp;[プリトヴィツェ湖群国立公園, クロアチア (© Massimo_S8/Getty Images)](https://www.bing.com/th?id=OHR.PlitviceWinter_JA-JP1926981970_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ParisBridge_FR-FR4526044555_UHD.jpg&w=1000)Today: [Pont Alexandre III au crépuscule, Paris, France  (© Sizun Eye/Getty Images)](https://www.bing.com/th?id=OHR.ParisBridge_FR-FR4526044555_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.EstanyColomina_ES-ES2289553231_UHD.jpg&w=1000)Today: [Exploradores en un lago helado, Estany de Colomina, Lérida, Cataluña, España (© Manu Prats/Stocksy)](https://www.bing.com/th?id=OHR.EstanyColomina_ES-ES2289553231_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SleepyWolf_EN-GB2239080031_UHD.jpg&w=1000)Today: [Sleeping wolf in Bavarian Forest National Park, Germany (© Raimund Linke/Getty Images)](https://www.bing.com/th?id=OHR.SleepyWolf_EN-GB2239080031_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WinnieDaySussex_EN-GB2530368112_UHD.jpg&w=1000)Today: [Ashdown Forest Landscape, East Sussex, UK (© Chris Mole/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.WinnieDaySussex_EN-GB2530368112_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ParisBridge_IT-IT8868576406_UHD.jpg&w=1000)Today: [Ponte Alessandro III, Parigi, Francia (© Sizun Eye/Getty Images)](https://www.bing.com/th?id=OHR.ParisBridge_IT-IT8868576406_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GiantAnteaterBR_PT-BR0815796970_UHD.jpg&w=1000)Today: [Um tamanduá passeando pelo Pantanal brasileiro (© Pedro Ferreira do Amaral/Getty Images)](https://www.bing.com/th?id=OHR.GiantAnteaterBR_PT-BR0815796970_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ParisBridge_PT-BR5007932654_UHD.jpg&w=1000)Today: [A Ponte Alexandre III ao crepúsculo, Paris, França (© Sizun Eye/Getty Images)](https://www.bing.com/th?id=OHR.ParisBridge_PT-BR5007932654_UHD.jpg)
 <br><br/>
