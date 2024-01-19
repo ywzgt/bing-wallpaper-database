@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.PlitviceWinter_ZH-CN0407572344_UHD.jpg&w=1000)今日图片: &nbsp;[十六湖国家公园，克罗地亚 (© Massimo_S8/Getty Images)](https://www.bing.com/th?id=OHR.PlitviceWinter_ZH-CN0407572344_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MacaroniPenguins_ZH-CN0600867997_UHD.jpg&w=1000)今日图片: &nbsp;[马可罗尼企鹅，德雷克海峡，智利 (© Paul Souders/Getty Images)](https://www.bing.com/th?id=OHR.MacaroniPenguins_ZH-CN0600867997_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ParisBridge_EN-US1771484789_UHD.jpg&w=1000)Today: [Pont Alexandre III at twilight, Paris, France (© Sizun Eye/Getty Images)](https://www.bing.com/th?id=OHR.ParisBridge_EN-US1771484789_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PlitviceWinter_EN-US1870468945_UHD.jpg&w=1000)Today: [Frozen waterfalls in Plitvice Lakes National Park, Croatia (© Massimo_S8/Getty Images)](https://www.bing.com/th?id=OHR.PlitviceWinter_EN-US1870468945_UHD.jpg)
 <br><br/>
