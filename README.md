@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SquirrelNetherlands_ZH-CN0757138587_UHD.jpg&w=1000)今日图片: &nbsp;[欧亚红松鼠，荷兰 (© Ernst Dirksen/Minden Pictures)](https://www.bing.com/th?id=OHR.SquirrelNetherlands_ZH-CN0757138587_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SantaCruzSunrise_ZH-CN3074203377_UHD.jpg&w=1000)今日图片: &nbsp;[冬季日出，沃尔顿灯塔，圣克鲁斯, 加利福尼亚州, 美国 (© Jeff Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SantaCruzSunrise_ZH-CN3074203377_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MacaroniPenguins_EN-US2046934125_UHD.jpg&w=1000)Today: [Macaroni penguins, Drake Passage, Chile (© Paul Souders/Getty Images)](https://www.bing.com/th?id=OHR.MacaroniPenguins_EN-US2046934125_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SquirrelNetherlands_EN-US2174319616_UHD.jpg&w=1000)Today: [Eurasian red squirrel, Netherlands (© Ernst Dirksen/Minden Pictures)](https://www.bing.com/th?id=OHR.SquirrelNetherlands_EN-US2174319616_UHD.jpg)
 <br><br/>
