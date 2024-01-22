@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SantaCruzSunrise_JA-JP5594322328_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ウォルトン灯台, 米国 カリフォルニア州 (© Jeff Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SantaCruzSunrise_JA-JP5594322328_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MaldivesAtolls_JA-JP0994970307_UHD.jpg&w=1000)今日の壁紙: &nbsp;[インド洋の環礁, モルディブ (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.MaldivesAtolls_JA-JP0994970307_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SantaCruzSunrise_FR-FR1541398588_UHD.jpg&w=1000)Today: [Lever du soleil hivernal, phare de Santa Cruz, Californie, États-Unis (© Jeff Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SantaCruzSunrise_FR-FR1541398588_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SantaCruzSunrise_ES-ES1191004799_UHD.jpg&w=1000)Today: [Amanecer de invierno, Faro Walton, Santa Cruz, California, EE.UU. (© Jeff Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SantaCruzSunrise_ES-ES1191004799_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SquirrelNetherlands_EN-GB3144776010_UHD.jpg&w=1000)Today: [Eurasian red squirrel, Netherlands (© Ernst Dirksen/Minden Pictures)](https://www.bing.com/th?id=OHR.SquirrelNetherlands_EN-GB3144776010_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SantaCruzSunrise_EN-GB0952968899_UHD.jpg&w=1000)Today: [Walton Lighthouse, Santa Cruz, California, USA (© Jeff Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SantaCruzSunrise_EN-GB0952968899_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SantaCruzSunrise_IT-IT2418215934_UHD.jpg&w=1000)Today: [Alba invernale, Faro di Walton, Santa Cruz, California, USA (© Jeff Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SantaCruzSunrise_IT-IT2418215934_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SquirrelNetherlands_PT-BR1648489881_UHD.jpg&w=1000)Today: [Esquilo vermelho da Eurásia, Países Baixos (© Ernst Dirksen/Minden Pictures)](https://www.bing.com/th?id=OHR.SquirrelNetherlands_PT-BR1648489881_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SantaCruzSunrise_PT-BR7110866378_UHD.jpg&w=1000)Today: [Amanhecer de inverno, Farol de Walton, Santa Cruz, Califórnia, EUA (© Jeff Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SantaCruzSunrise_PT-BR7110866378_UHD.jpg)
 <br><br/>
