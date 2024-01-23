@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MaldivesAtolls_JA-JP0994970307_UHD.jpg&w=1000)今日の壁紙: &nbsp;[インド洋の環礁, モルディブ (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.MaldivesAtolls_JA-JP0994970307_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IcelandBeach_JA-JP1317464051_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ダイヤモンドビーチ, アイスランド (© Rachid Dahnoun/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.IcelandBeach_JA-JP1317464051_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MaldivesAtolls_FR-FR6343636525_UHD.jpg&w=1000)Today: [Atolls de l'océan Indien, Maldives (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.MaldivesAtolls_FR-FR6343636525_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MaldivesAtolls_ES-ES2469932499_UHD.jpg&w=1000)Today: [Atolones del océano Índico, Maldivas (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.MaldivesAtolls_ES-ES2469932499_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SantaCruzSunrise_EN-GB0952968899_UHD.jpg&w=1000)Today: [Walton Lighthouse, Santa Cruz, California, USA (© Jeff Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SantaCruzSunrise_EN-GB0952968899_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MaldivesAtolls_EN-GB3594196029_UHD.jpg&w=1000)Today: [Atolls in Indian Ocean, Maldives (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.MaldivesAtolls_EN-GB3594196029_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MaldivesAtolls_IT-IT6509796728_UHD.jpg&w=1000)Today: [Atolli nell'Oceano Indiano, Maldive (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.MaldivesAtolls_IT-IT6509796728_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SantaCruzSunrise_PT-BR7110866378_UHD.jpg&w=1000)Today: [Amanhecer de inverno, Farol de Walton, Santa Cruz, Califórnia, EUA (© Jeff Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SantaCruzSunrise_PT-BR7110866378_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MaldivesAtolls_PT-BR2284826864_UHD.jpg&w=1000)Today: [Atóis no Oceano Índico, Maldivas (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.MaldivesAtolls_PT-BR2284826864_UHD.jpg)
 <br><br/>
