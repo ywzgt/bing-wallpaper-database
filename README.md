@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.HawkOwl_ZH-CN3401920167_UHD.jpg&w=1000)今日图片: &nbsp;[北鹰鸮 (© Remo Savisaar/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HawkOwl_ZH-CN3401920167_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ToucanetEmpoleirado_ZH-CN8520861326_UHD.jpg&w=1000)今日图片: &nbsp;[点嘴小巨嘴鸟，大西洋森林，巴西 (© aaprophoto/Getty Images)](https://www.bing.com/th?id=OHR.ToucanetEmpoleirado_ZH-CN8520861326_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DwynwensDay_EN-US2844762878_UHD.jpg&w=1000)Today: [Ruins of St. Dwynwen's Church, Ynys Llanddwyn, Wales (© Photos by R A Kearton/Getty Images)](https://www.bing.com/th?id=OHR.DwynwensDay_EN-US2844762878_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HawkOwl_EN-US6646901652_UHD.jpg&w=1000)Today: [Northern hawk-owl (© Remo Savisaar/Alamy)](https://www.bing.com/th?id=OHR.HawkOwl_EN-US6646901652_UHD.jpg)
 <br><br/>
