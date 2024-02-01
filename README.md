@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.HalbinselJasmund_ZH-CN2110869056_UHD.jpg&w=1000)今日图片: &nbsp;[吕根岛的萨斯尼茨灯塔，德国 (© Christian Back/eStock)](https://www.bing.com/th?id=OHR.HalbinselJasmund_ZH-CN2110869056_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AlpineMarmot_ZH-CN3818584615_UHD.jpg&w=1000)今日图片: &nbsp;[从洞穴中探出头的土拨鼠 (© Scacciamosche/Getty Images)](https://www.bing.com/th?id=OHR.AlpineMarmot_ZH-CN3818584615_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ZebraMother_EN-US7544209908_UHD.jpg&w=1000)Today: [Burchell's zebra mother and foal, Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)](https://www.bing.com/th?id=OHR.ZebraMother_EN-US7544209908_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DizzyGillespie_EN-US7637800342_UHD.jpg&w=1000)Today: [Dizzy Gillespie in 1990 at the 32nd Monterey Jazz Festival, California (© Craig Lovell/Eagle Visions Photography/Alamy)](https://www.bing.com/th?id=OHR.DizzyGillespie_EN-US7637800342_UHD.jpg)
 <br><br/>
