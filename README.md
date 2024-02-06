@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.LakeTahoeRock_ZH-CN5770740919_UHD.jpg&w=1000)今日图片: &nbsp;[盆景岩，太浩湖，内华达州，美国 (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LakeTahoeRock_ZH-CN5770740919_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.StJamesPool_ZH-CN5930624359_UHD.jpg&w=1000)今日图片: &nbsp;[圣詹姆斯潮汐池，开普敦，南非 (© AmazingAerialAgency/Adobe)](https://www.bing.com/th?id=OHR.StJamesPool_ZH-CN5930624359_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WesternMonarchs_EN-US8386035297_UHD.jpg&w=1000)Today: [Monarch butterflies, Goleta, California (© Craig Rademacher/500px/Getty Images)](https://www.bing.com/th?id=OHR.WesternMonarchs_EN-US8386035297_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LakeTahoeRock_EN-US8513392756_UHD.jpg&w=1000)Today: [Bonsai Rock, Lake Tahoe, Nevada (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LakeTahoeRock_EN-US8513392756_UHD.jpg)
 <br><br/>
