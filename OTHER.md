@@ -1,3 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.LakeTahoeRock_JA-JP1426233885_UHD.jpg&w=1000)今日の壁紙: &nbsp;[タホ湖, 米国 (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LakeTahoeRock_JA-JP1426233885_UHD.jpg)
 <br><br/>
+![](https://www.bing.com/th?id=OHR.LakeTahoeRock_FR-FR6130128094_UHD.jpg&w=1000)Today: [Bonsai Rock, lac Tahoe, États-Unis (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LakeTahoeRock_FR-FR6130128094_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.LakeTahoeRock_DE-DE1626232597_UHD.jpg&w=1000)Today: [Bonsai Rock, Lake Tahoe, USA (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LakeTahoeRock_DE-DE1626232597_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.LakeTahoeRock_ES-ES8162819510_UHD.jpg&w=1000)Today: [Bonsai Rock, Lago Tahoe, EE.UU. (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LakeTahoeRock_ES-ES8162819510_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.HawkOwl_EN-GB0033020646_UHD.jpg&w=1000)Today: [Northern hawk-owl (© Remo Savisaar/Alamy)](https://www.bing.com/th?id=OHR.HawkOwl_EN-GB0033020646_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.SanremoFestival_IT-IT4644793189_UHD.jpg&w=1000)Today: [Città di Sanremo di notte (© Surkov Dimitri/Getty Images)](https://www.bing.com/th?id=OHR.SanremoFestival_IT-IT4644793189_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.WesternMonarchs_PT-BR3062491558_UHD.jpg&w=1000)Today: [Borboletas-monarca, Goleta, Califórnia, EUA (© Craig Rademacher/500px/Getty Images)](https://www.bing.com/th?id=OHR.WesternMonarchs_PT-BR3062491558_UHD.jpg)
+<br><br/>
