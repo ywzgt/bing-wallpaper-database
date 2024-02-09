@@ -1,3 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.SapporoSnowFest2024_JA-JP5845958327_UHD.jpg&w=1000)今日の壁紙: &nbsp;[お城の雪像, 北海道 札幌市 (© Terry Donnelly/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.SapporoSnowFest2024_JA-JP5845958327_UHD.jpg)
 <br><br/>
+![](https://www.bing.com/th?id=OHR.PegadungRocks_FR-FR0984354515_UHD.jpg&w=1000)Today: [Rocher de Pegadung, Lampung, Sumatra, Indonésie (© CK NG/500px/Getty Images)](https://www.bing.com/th?id=OHR.PegadungRocks_FR-FR0984354515_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.PegadungRocks_DE-DE2295980114_UHD.jpg&w=1000)Today: [Pegadung-Felsen, Lampung, Sumatra, Indonesien (© CK NG/500px/Getty Images)](https://www.bing.com/th?id=OHR.PegadungRocks_DE-DE2295980114_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.Ribadeo_ES-ES6070191561_UHD.jpg&w=1000)Today: [Vista del faro de Ribadeo, Galicia, España (© Stas Moroz/Shutterstock)](https://www.bing.com/th?id=OHR.Ribadeo_ES-ES6070191561_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.MtHoodOregon_EN-GB3166689282_UHD.jpg&w=1000)Today: [Mount Hood, Oregon, USA (© Inigo Cia/Getty Images)](https://www.bing.com/th?id=OHR.MtHoodOregon_EN-GB3166689282_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.PegadungRocks_IT-IT3929820367_UHD.jpg&w=1000)Today: [Pegadung Rock, Provincia di Lampung, Isola di Sumatra, Indonesia (© CK NG/500px/Getty Images)](https://www.bing.com/th?id=OHR.PegadungRocks_IT-IT3929820367_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.MtHoodOregon_PT-BR4355402757_UHD.jpg&w=1000)Today: [Monte Hood, Oregon, EUA (© Inigo Cia/Getty Images)](https://www.bing.com/th?id=OHR.MtHoodOregon_PT-BR4355402757_UHD.jpg)
+<br><br/>
