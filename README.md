@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SpringFestival2024_ZH-CN7514007541_UHD.jpg&w=1000)今日图片: &nbsp;[中国舞狮，大年初一 (© SENEZ/Getty Images)](https://www.bing.com/th?id=OHR.SpringFestival2024_ZH-CN7514007541_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FolegandrosGreece_ZH-CN7803666477_UHD.jpg&w=1000)今日图片: &nbsp;[乔拉岛，福莱甘兹罗斯岛，基克拉泽斯群岛, 希腊 (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.FolegandrosGreece_ZH-CN7803666477_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PegadungRocks_EN-US6654823877_UHD.jpg&w=1000)Today: [Pegadung Rock, Lampung, Sumatra, Indonesia (© CK NG/500px/Getty Images)](https://www.bing.com/th?id=OHR.PegadungRocks_EN-US6654823877_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChinaDragon_EN-US6781838142_UHD.jpg&w=1000)Today: [Artists performing the dragon dance for Chinese New Year, Luzhou, China (© Liu Guoxing/VCG via Getty Images)](https://www.bing.com/th?id=OHR.ChinaDragon_EN-US6781838142_UHD.jpg)
 <br><br/>
