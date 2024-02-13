@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_UHD.jpg&w=1000)今日图片: &nbsp;[马里尼的狂欢节彩珠，新奥尔良，美国 (© Erik Pronske Photography/Getty Images)](https://www.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BowingCrane_ZH-CN0143761293_UHD.jpg&w=1000)今日图片: &nbsp;[丹顶鹤向伴侣鞠躬，北海道，日本 (© Steve Bloom Images/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BowingCrane_ZH-CN0143761293_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GiantTortoise_EN-US7034846255_UHD.jpg&w=1000)Today: [Volcán Alcedo giant tortoises, Isabela Island, Galápagos, Ecuador (© Tui De Roy/Minden Pictures)](https://www.bing.com/th?id=OHR.GiantTortoise_EN-US7034846255_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MarignyBeads_EN-US7464992774_UHD.jpg&w=1000)Today: [Mardi Gras beads in the Marigny, New Orleans (© Erik Pronske Photography/Getty Images)](https://www.bing.com/th?id=OHR.MarignyBeads_EN-US7464992774_UHD.jpg)
 <br><br/>
