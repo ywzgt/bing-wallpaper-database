@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.YosemiteFirefall_JA-JP8953953821_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ホーステール滝, 米国 カリフォルニア州 (© Gregory B Cuvelier/Shutterstock)](https://www.bing.com/th?id=OHR.YosemiteFirefall_JA-JP8953953821_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PeakDistrictNP_FR-FR7006243116_UHD.jpg&w=1000)Today: [Sommet de Kinder Scout, Parc national du Peak District, Royaume-Uni (© john finney photography/Getty Images)](https://www.bing.com/th?id=OHR.PeakDistrictNP_FR-FR7006243116_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YosemiteFirefall_FR-FR7214097906_UHD.jpg&w=1000)Today: [Cascade de feu Horsetail Fall, parc national de Yosemite, Californie, États-Unis (© Gregory B Cuvelier/Shutterstock)](https://www.bing.com/th?id=OHR.YosemiteFirefall_FR-FR7214097906_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PeakDistrictNP_DE-DE4372136028_UHD.jpg&w=1000)Today: [Kinder Scout bei Sonnenaufgang, Peak-District-Nationalpark, UK (© john finney photography/Getty Images)](https://www.bing.com/th?id=OHR.PeakDistrictNP_DE-DE4372136028_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YosemiteFirefall_DE-DE4800433927_UHD.jpg&w=1000)Today: [Horsetail-Wasserfall, Yosemite-Nationalpark, Kalifornien, USA (© Gregory B Cuvelier/Shutterstock)](https://www.bing.com/th?id=OHR.YosemiteFirefall_DE-DE4800433927_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PeakDistrictNP_ES-ES1714203483_UHD.jpg&w=1000)Today: [Kinder Scout al amanecer, Parque Nacional de Peak District, Reino Unido (© john finney photography/Getty Images)](https://www.bing.com/th?id=OHR.PeakDistrictNP_ES-ES1714203483_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YosemiteFirefall_ES-ES1887496607_UHD.jpg&w=1000)Today: [Cascada de fuego en Horsetail Fall, Parque Nacional de Yosemite, California, EE.UU. (© Gregory B Cuvelier/Shutterstock)](https://www.bing.com/th?id=OHR.YosemiteFirefall_ES-ES1887496607_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PeakDistrictNP_EN-GB0353580996_UHD.jpg&w=1000)Today: [Kinder Scout, Peak District National Park, England (© john finney photography/Getty Images)](https://www.bing.com/th?id=OHR.PeakDistrictNP_EN-GB0353580996_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PeakDistrictNP_IT-IT5172127370_UHD.jpg&w=1000)Today: [Kinder Scout all'alba, Parco Nazionale del Peak District, Regno Unito (© john finney photography/Getty Images)](https://www.bing.com/th?id=OHR.PeakDistrictNP_IT-IT5172127370_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YosemiteFirefall_IT-IT1880342554_UHD.jpg&w=1000)Today: [Cascata di fuoco a Horsetail Fall, Parco Nazionale dello Yosemite, California, USA (© Gregory B Cuvelier/Shutterstock)](https://www.bing.com/th?id=OHR.YosemiteFirefall_IT-IT1880342554_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PeakDistrictNP_PT-BR5424756118_UHD.jpg&w=1000)Today: [Kinder Scout at sunrise, Peak District National Park, England (© john finney photography/Getty Images)](https://www.bing.com/th?id=OHR.PeakDistrictNP_PT-BR5424756118_UHD.jpg)
 <br><br/>
