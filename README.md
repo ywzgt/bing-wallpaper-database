@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.WahclellaFalls_ZH-CN4932852217_UHD.jpg&w=1000)今日图片: &nbsp;[Wahclella Falls，哥伦比亚河峡谷，俄勒冈州，美国 (© Eric Vogt/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.WahclellaFalls_ZH-CN4932852217_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TarragonaSpain_ZH-CN5488361711_UHD.jpg&w=1000)今日图片: &nbsp;[Roques de Benet，埃尔斯港自然公园，加泰罗尼亚，西班牙 (© Sergi Boixader/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.TarragonaSpain_ZH-CN5488361711_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BangkokCircle_EN-US4243452532_UHD.jpg&w=1000)Today: [Traffic circle and highway in Bangkok, Thailand (© Avigator Fortuner/Shutterstock)](https://www.bing.com/th?id=OHR.BangkokCircle_EN-US4243452532_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WahclellaFalls_EN-US4371863309_UHD.jpg&w=1000)Today: [Wahclella Falls in the Columbia River Gorge, Oregon (© Eric Vogt/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.WahclellaFalls_EN-US4371863309_UHD.jpg)
 <br><br/>
