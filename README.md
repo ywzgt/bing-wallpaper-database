@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.IguazuFalls_ZH-CN4749837052_UHD.jpg&w=1000)今日图片: &nbsp;[伊瓜苏大瀑布鸟瞰图，巴西 (© Nido Huebl/Shutterstock)](https://www.bing.com/th?id=OHR.IguazuFalls_ZH-CN4749837052_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BistiBlue_ZH-CN4991705833_UHD.jpg&w=1000)今日图片: &nbsp;[比斯第恶土，新墨西哥州，美国 (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BistiBlue_ZH-CN4991705833_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TarragonaSpain_EN-US4664908149_UHD.jpg&w=1000)Today: [Roques de Benet, Els Ports Natural Park, Catalonia, Spain (© Sergi Boixader/Alamy)](https://www.bing.com/th?id=OHR.TarragonaSpain_EN-US4664908149_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TateLightUp_EN-US0656439011_UHD.jpg&w=1000)Today: [Tate Modern lit up for International Women's Day, London, England (© Stephen Chung/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.TateLightUp_EN-US0656439011_UHD.jpg)
 <br><br/>
