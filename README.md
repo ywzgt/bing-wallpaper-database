@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BistiBlue_ZH-CN4991705833_UHD.jpg&w=1000)今日图片: &nbsp;[比斯第恶土，新墨西哥州，美国 (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BistiBlue_ZH-CN4991705833_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BeaumontClock_ZH-CN5288086713_UHD.jpg&w=1000)今日图片: &nbsp;[圣哈辛托大厦的机械钟，博蒙特，美国德克萨斯州 (© Richard T. Nowitz/Getty Images)](https://www.bing.com/th?id=OHR.BeaumontClock_ZH-CN5288086713_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TateLightUp_EN-US0656439011_UHD.jpg&w=1000)Today: [Tate Modern lit up for International Women's Day, London, England (© Stephen Chung/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.TateLightUp_EN-US0656439011_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BistiBlue_EN-US1090853434_UHD.jpg&w=1000)Today: [Bisti/De-Na-Zin Wilderness Area, New Mexico (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BistiBlue_EN-US1090853434_UHD.jpg)
 <br><br/>
