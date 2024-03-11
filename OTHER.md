@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Earthquake2024_JA-JP2825640638_UHD.jpg&w=1000)今日の壁紙: &nbsp;[追悼イベントの灯籠, 宮城県 名取市 (© Satoshi Takahashi/Getty Images)](https://www.bing.com/th?id=OHR.Earthquake2024_JA-JP2825640638_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OmizutoriNew_JA-JP3433655435_UHD.jpg&w=1000)今日の壁紙: &nbsp;[東大寺, 奈良県 奈良市 (© Buddhika Weerasinghe/Getty Images)](https://www.bing.com/th?id=OHR.OmizutoriNew_JA-JP3433655435_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SleepyKoala_FR-FR0968348231_UHD.jpg&w=1000)Today: [Un koala dormant sur un Eucalyptus, Australie (© Anton Rogozin/Getty Images)](https://www.bing.com/th?id=OHR.SleepyKoala_FR-FR0968348231_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SleepyKoala_ES-ES6859106237_UHD.jpg&w=1000)Today: [Un koala durmiendo en un eucalipto, Australia (© Anton Rogozin/Getty Images)](https://www.bing.com/th?id=OHR.SleepyKoala_ES-ES6859106237_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MotheringSundayMuteSwan_EN-GB7947590349_UHD.jpg&w=1000)Today: [Mute swan mother and cygnet, Stanpit Marsh, England (© LecartPhotos/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.MotheringSundayMuteSwan_EN-GB7947590349_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SleepyKoala_EN-GB8056580586_UHD.jpg&w=1000)Today: [A sleeping koala, Australia (© Anton Rogozin/Getty Images)](https://www.bing.com/th?id=OHR.SleepyKoala_EN-GB8056580586_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MotheringSundayMuteSwan_EN-GB7947590349_UHD.jpg&w=1000)Today: [Mute swan mother and cygnet, Stanpit Marsh, England (© LecartPhotos/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.MotheringSundayMuteSwan_EN-GB7947590349_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SleepyKoala_EN-GB8056580586_UHD.jpg&w=1000)Today: [A sleeping koala, Australia (© Anton Rogozin/Getty Images)](https://www.bing.com/th?id=OHR.SleepyKoala_EN-GB8056580586_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BistiBlue_PT-BR3525071051_UHD.jpg&w=1000)Today: [Bisti/De-Na-Zin Wilderness Area, New Mexico (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BistiBlue_PT-BR3525071051_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SleepyKoala_PT-BR9818387982_UHD.jpg&w=1000)Today: [Um coala dormindo em uma árvore de eucalipto, Austrália (© Anton Rogozin/Getty Images)](https://www.bing.com/th?id=OHR.SleepyKoala_PT-BR9818387982_UHD.jpg)
 <br><br/>
