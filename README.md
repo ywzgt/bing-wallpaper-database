@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BryceSnow_ZH-CN7489999663_UHD.jpg&w=1000)今日图片: &nbsp;[布莱斯峡谷国家公园，犹他州，美国 (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BryceSnow_ZH-CN7489999663_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MagadiFlamingos_ZH-CN7888437841_UHD.jpg&w=1000)今日图片: &nbsp;[小红鹳飞越马加迪湖,肯尼亚 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.MagadiFlamingos_ZH-CN7888437841_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SleepyKoala_EN-US1399776436_UHD.jpg&w=1000)Today: [A koala sleeping in a eucalyptus tree, Australia (© Anton Rogozin/Getty Images)](https://www.bing.com/th?id=OHR.SleepyKoala_EN-US1399776436_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BryceSnow_EN-US1471442313_UHD.jpg&w=1000)Today: [Bryce Canyon National Park, Utah (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BryceSnow_EN-US1471442313_UHD.jpg)
 <br><br/>
