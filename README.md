@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AyutthayaTree_ZH-CN8075870220_UHD.jpg&w=1000)今日图片: &nbsp;[Wat Phra Ngam，大城府历史公园，泰国 (© boonchai wedmakawand/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.AyutthayaTree_ZH-CN8075870220_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AnzaBorregoBloom_ZH-CN8284458835_UHD.jpg&w=1000)今日图片: &nbsp;[安沙波利哥沙漠州立公园，美国加利福尼亚州 (© Stephen Matera/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AnzaBorregoBloom_ZH-CN8284458835_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MagadiFlamingos_EN-US1720896379_UHD.jpg&w=1000)Today: [Lesser flamingos flying over Lake Magadi, Kenya (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.MagadiFlamingos_EN-US1720896379_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AyutthayaTree_EN-US1871119120_UHD.jpg&w=1000)Today: [Wat Phra Ngam, Ayutthaya Historical Park, Thailand (© boonchai wedmakawand/Alamy)](https://www.bing.com/th?id=OHR.AyutthayaTree_EN-US1871119120_UHD.jpg)
 <br><br/>
