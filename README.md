@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BambooPanda_ZH-CN8455481760_UHD.jpg&w=1000)今日图片: &nbsp;[正在吃竹子的大熊猫，中国成都 (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.BambooPanda_ZH-CN8455481760_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.StFiniansBay_ZH-CN8655586052_UHD.jpg&w=1000)今日图片: &nbsp;[圣菲尼安湾，凯里郡，爱尔兰 (© Atlantide Phototravel/Getty Images)](https://www.bing.com/th?id=OHR.StFiniansBay_ZH-CN8655586052_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AnzaBorregoBloom_EN-US1951730180_UHD.jpg&w=1000)Today: [Anza-Borrego Desert State Park, California (© Stephen Matera/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AnzaBorregoBloom_EN-US1951730180_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BambooPanda_EN-US2038899729_UHD.jpg&w=1000)Today: [Giant panda eating bamboo, Chengdu, China (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.BambooPanda_EN-US2038899729_UHD.jpg)
 <br><br/>
