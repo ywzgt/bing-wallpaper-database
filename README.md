@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_UHD.jpg&w=1000)今日图片: &nbsp;[盛开的扁桃树, 加利福尼亚州，美国 (© Jeffrey Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Springequinox2024_ZH-CN5647214924_UHD.jpg&w=1000)今日图片: &nbsp;[鸟瞰春日盛开的樱花，中国 (© outcast85/Getty images)](https://www.bing.com/th?id=OHR.Springequinox2024_ZH-CN5647214924_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ElephantRock_EN-US2340789308_UHD.jpg&w=1000)Today: [Elephant Rock, Al-Ula, Saudi Arabia (© Lubo Ivanko/Shutterstock)](https://www.bing.com/th?id=OHR.ElephantRock_EN-US2340789308_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpringFrog_EN-US7109699294_UHD.jpg&w=1000)Today: [Tree frog on leaf (© Tetsuya Tanooka/DEEPOL by plainpicture)](https://www.bing.com/th?id=OHR.SpringFrog_EN-US7109699294_UHD.jpg)
 <br><br/>
