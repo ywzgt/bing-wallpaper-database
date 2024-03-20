@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Springequinox2024_ZH-CN5647214924_UHD.jpg&w=1000)今日图片: &nbsp;[鸟瞰春日盛开的樱花，中国 (© outcast85/Getty images)](https://www.bing.com/th?id=OHR.Springequinox2024_ZH-CN5647214924_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BwindiNationalForest_ZH-CN0436137473_UHD.jpg&w=1000)今日图片: &nbsp;[布恩迪国家公园，乌干达 (© Art Wolfe/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.BwindiNationalForest_ZH-CN0436137473_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SpringFrog_EN-US7109699294_UHD.jpg&w=1000)Today: [Tree frog on leaf (© Tetsuya Tanooka/DEEPOL by plainpicture)](https://www.bing.com/th?id=OHR.SpringFrog_EN-US7109699294_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CherryBlossomsDC_EN-US3285783737_UHD.jpg&w=1000)Today: [The Jefferson Memorial during the Cherry Blossom Festival, Washington, DC (© f11photo/Shutterstock)](https://www.bing.com/th?id=OHR.CherryBlossomsDC_EN-US3285783737_UHD.jpg)
 <br><br/>
