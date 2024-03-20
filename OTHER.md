@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MtPrevostDuncan_JA-JP5482628998_UHD.jpg&w=1000)今日の壁紙: &nbsp;[カウチンバレー, カナダ ブリティッシュコロンビア州 (© Kevin Oke/Alamy)](https://www.bing.com/th?id=OHR.MtPrevostDuncan_JA-JP5482628998_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BwindiNationalForest_JA-JP5771338834_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ブウィンディ原生国立公園, ウガンダ (© Art Wolfe/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.BwindiNationalForest_JA-JP5771338834_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ChateauIf_FR-FR4699337887_UHD.jpg&w=1000)Today: [Château d'If, Calanques, Marseille, Bouches du Rhône (© MOIRENC Camille/Hemis/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.ChateauIf_FR-FR4699337887_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SpringFrog_ES-ES8842639194_UHD.jpg&w=1000)Today: [Rana de árbol sobre hoja (© Tetsuya Tanooka/DEEPOL by plainpicture)](https://www.bing.com/th?id=OHR.SpringFrog_ES-ES8842639194_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SpringCaveDale_EN-GB2092563802_UHD.jpg&w=1000)Today: [Cave Dale and Peveril Castle in Castleton, Peak District National Park, Derbyshire, England (© James Osmond/Alamy)](https://www.bing.com/th?id=OHR.SpringCaveDale_EN-GB2092563802_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpringFrog_EN-GB9074192994_UHD.jpg&w=1000)Today: [Tree frog on leaf (© Tetsuya Tanooka/DEEPOL by plainpicture)](https://www.bing.com/th?id=OHR.SpringFrog_EN-GB9074192994_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SpringCaveDale_IT-IT3874246493_UHD.jpg&w=1000)Today: [Cave Dale e Peveril Castle a Castleton, Derbyshire Peak District, Inghilterra (© James Osmond/Alamy)](https://www.bing.com/th?id=OHR.SpringCaveDale_IT-IT3874246493_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SpringFrog_PT-BR2957338911_UHD.jpg&w=1000)Today: [Cave Dale e Castelo de Peveril em Castleton, Parque Nacional de Peak District, Derbyshire, Inglaterra (© James Osmond/Alamy)](https://www.bing.com/th?id=OHR.SpringFrog_PT-BR2957338911_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpringCaveDale_PT-BR3177593018_UHD.jpg&w=1000)Today: [Rã arborícola (© Tetsuya Tanooka/DEEPOL by plainpicture)](https://www.bing.com/th?id=OHR.SpringCaveDale_PT-BR3177593018_UHD.jpg)
 <br><br/>
