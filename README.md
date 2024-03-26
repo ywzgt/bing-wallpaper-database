@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.HangRaiVietnam_ZH-CN1601428109_UHD.jpg&w=1000)今日图片: &nbsp;[海水从古老的珊瑚礁上倾泻而下，杭莱，越南 (© Thang Tat Nguyen/Getty Images)](https://www.bing.com/th?id=OHR.HangRaiVietnam_ZH-CN1601428109_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TeatroColon_ZH-CN5378730986_UHD.jpg&w=1000)今日图片: &nbsp;[布宜诺斯艾利斯哥伦布剧院，阿根廷 (© Wei Hao Ho/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.TeatroColon_ZH-CN5378730986_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ColorfulHoli_EN-US2354988297_UHD.jpg&w=1000)Today: [Celebrating Holi in Mathura, Uttar Pradesh, India (© Avishek Das/SOPA Images/LightRocket via Getty Images)](https://www.bing.com/th?id=OHR.ColorfulHoli_EN-US2354988297_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HangRaiVietnam_EN-US2418713642_UHD.jpg&w=1000)Today: [Seawater cascades over an ancient coral reef, Hang Rai, Vietnam (© Thang Tat Nguyen/Getty Images)](https://www.bing.com/th?id=OHR.HangRaiVietnam_EN-US2418713642_UHD.jpg)
 <br><br/>
