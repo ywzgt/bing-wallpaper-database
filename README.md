@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TeatroColon_ZH-CN5378730986_UHD.jpg&w=1000)今日图片: &nbsp;[布宜诺斯艾利斯哥伦布剧院，阿根廷 (© Wei Hao Ho/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.TeatroColon_ZH-CN5378730986_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ShanghaiBlossoms_ZH-CN5594677517_UHD.jpg&w=1000)今日图片: &nbsp;[上海的樱花，中国 (© Yaorusheng/Getty Images)](https://www.bing.com/th?id=OHR.ShanghaiBlossoms_ZH-CN5594677517_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HangRaiVietnam_EN-US2418713642_UHD.jpg&w=1000)Today: [Seawater cascades over an ancient coral reef, Hang Rai, Vietnam (© Thang Tat Nguyen/Getty Images)](https://www.bing.com/th?id=OHR.HangRaiVietnam_EN-US2418713642_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TeatroColon_EN-US2518867279_UHD.jpg&w=1000)Today: [Teatro Colón in Buenos Aires, Argentina (© Wei Hao Ho/Alamy)](https://www.bing.com/th?id=OHR.TeatroColon_EN-US2518867279_UHD.jpg)
 <br><br/>
