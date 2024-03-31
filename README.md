@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ArdeAlba_ZH-CN6807697569_UHD.jpg&w=1000)今日图片: &nbsp;[潘塔纳尔湿地的大白鹭，巴西 (© Geraldi Corsi/Getty Images)](https://www.bing.com/th?id=OHR.ArdeAlba_ZH-CN6807697569_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MontBlancGlacier_ZH-CN2918240023_UHD.jpg&w=1000)今日图片: &nbsp;[勃朗峰上的冰海，夏慕尼，法国 (© Hagenmuller Jean-François/Hemis/Alamy)](https://www.bing.com/th?id=OHR.MontBlancGlacier_ZH-CN2918240023_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SleepySloth_EN-US2834457510_UHD.jpg&w=1000)Today: [Brown-throated three-toed sloth sleeping in cecropia tree, Costa Rica (© Juan Carlos Vindas/Getty Images)](https://www.bing.com/th?id=OHR.SleepySloth_EN-US2834457510_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HungarianEggs_EN-US3026213374_UHD.jpg&w=1000)Today: [Easter eggs painted by Tünde Csuhaj, Szekszárd, Hungary (© ATTILA KISBENEDEK/AFP/Getty Images)](https://www.bing.com/th?id=OHR.HungarianEggs_EN-US3026213374_UHD.jpg)
 <br><br/>
