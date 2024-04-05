@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BahamasSpace_ZH-CN8053657656_UHD.jpg&w=1000)今日图片: &nbsp;[从国际空间站拍摄的巴哈马群岛 (© NASA)](https://www.bing.com/th?id=OHR.BahamasSpace_ZH-CN8053657656_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JapanHimeji_ZH-CN8344654166_UHD.jpg&w=1000)今日图片: &nbsp;[姬路城，姫路，兵库县，日本 (© Julian Elliott Photography/Getty Images)](https://www.bing.com/th?id=OHR.JapanHimeji_ZH-CN8344654166_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AntelopeBotswana_EN-US3335739405_UHD.jpg&w=1000)Today: [Red lechwe herd crossing marshy plain of Okavango Delta, Botswana (© Ibrahim Suha Derbent/Getty Images)](https://www.bing.com/th?id=OHR.AntelopeBotswana_EN-US3335739405_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BahamasSpace_EN-US1544254149_UHD.jpg&w=1000)Today: [The Bahamas photographed from the International Space Station (© NASA)](https://www.bing.com/th?id=OHR.BahamasSpace_EN-US1544254149_UHD.jpg)
 <br><br/>
