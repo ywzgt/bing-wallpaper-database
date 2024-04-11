@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.DragonWaterfall_JA-JP4588588498_UHD.jpg&w=1000)今日の壁紙: &nbsp;[チュルン・メルー滝, ベネズエラ (© AirPano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DragonWaterfall_JA-JP4588588498_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SunsetArchesNP_JA-JP4875080007_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アーチーズ国立公園, 米国 ユタ州 (© Anthony Heflin/Shutterstock)](https://www.bing.com/th?id=OHR.SunsetArchesNP_JA-JP4875080007_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.DragonWaterfall_FR-FR6498141179_UHD.jpg&w=1000)Today: [Vue aérienne de la cascade de Churun-Meru, Venezuela (© AirPano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DragonWaterfall_FR-FR6498141179_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.DragonWaterfall_IT-IT3577761002_UHD.jpg&w=1000)Today: [Vista aerea della cascata Churun-Meru (Dragon), Venezuela (© AirPano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DragonWaterfall_IT-IT3577761002_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.OwlSiblings_PT-BR5674103316_UHD.jpg&w=1000)Today: [Filhotes de coruja-buraqueira perto de uma toca, Wyoming, EUA (© Danita Delimont/Getty Images)](https://www.bing.com/th?id=OHR.OwlSiblings_PT-BR5674103316_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DragonWaterfall_PT-BR5875441012_UHD.jpg&w=1000)Today: [Vista aérea da catarata Churun-Meru (Dragão), Venezuela (© AirPano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DragonWaterfall_PT-BR5875441012_UHD.jpg)
 <br><br/>
