@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.OwlSiblings_ZH-CN9441687518_UHD.jpg&w=1000)今日图片: &nbsp;[洞穴附近的穴小鸮雏鸟，怀俄明州，美国 (© Danita Delimont/Getty Images)](https://www.bing.com/th?id=OHR.OwlSiblings_ZH-CN9441687518_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DragonWaterfall_ZH-CN9580105565_UHD.jpg&w=1000)今日图片: &nbsp;[丘伦梅鲁瀑布鸟瞰图，委内瑞拉 (© AirPano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DragonWaterfall_ZH-CN9580105565_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SkagitValleyTulips_EN-US2489408645_UHD.jpg&w=1000)Today: [Tulip fields in spring, Skagit Valley, Washington (© Claudia Cooper/Getty Images)](https://www.bing.com/th?id=OHR.SkagitValleyTulips_EN-US2489408645_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OwlSiblings_EN-US2594321387_UHD.jpg&w=1000)Today: [Burrowing owl chicks near a burrow, Wyoming (© Danita Delimont/Getty Images)](https://www.bing.com/th?id=OHR.OwlSiblings_EN-US2594321387_UHD.jpg)
 <br><br/>
