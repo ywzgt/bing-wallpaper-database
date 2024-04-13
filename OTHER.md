@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ShibaZakura2024_JA-JP5037441018_UHD.jpg&w=1000)今日の壁紙: &nbsp;[富士本栖湖リゾート, 山梨県 (© Torsakarin/Getty Images)](https://www.bing.com/th?id=OHR.ShibaZakura2024_JA-JP5037441018_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BowlingBallCali_JA-JP1174732417_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ボーリングボール・ビーチ, 米国 カリフォルニア州 (© Melo Qiao/Getty Images)](https://www.bing.com/th?id=OHR.BowlingBallCali_JA-JP1174732417_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.LyonGastronomy_FR-FR6987706290_UHD.jpg&w=1000)Today: [Vue nocturne depuis le Rhône sur la ville de Lyon avec le Grand Hôtel-Dieu et la cathédrale de Fourvière, France (© Frédéric Prochasson/Getty Images)](https://www.bing.com/th?id=OHR.LyonGastronomy_FR-FR6987706290_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SpringApple_IT-IT3617593822_UHD.jpg&w=1000)Today: [Alberi di mele in primavera, Germania (© Smileus/Getty Images)](https://www.bing.com/th?id=OHR.SpringApple_IT-IT3617593822_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Curitiba_PT-BR8811404397_UHD.jpg&w=1000)Today: [Jardim botânico de Curitiba, Paraná (© Marcelo Araujo/Getty Images)](https://www.bing.com/th?id=OHR.Curitiba_PT-BR8811404397_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SunsetArchesNP_PT-BR6301905431_UHD.jpg&w=1000)Today: [Luz noturna sobre a North Window com o Arco Turret à distância, Parque Nacional dos Arcos, Utah, EUA (© Anthony Heflin/Shutterstock)](https://www.bing.com/th?id=OHR.SunsetArchesNP_PT-BR6301905431_UHD.jpg)
 <br><br/>
