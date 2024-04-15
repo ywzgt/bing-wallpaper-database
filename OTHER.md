@@ -7,7 +7,7 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.RedBallBelgium_ES-ES8883654006_UHD.jpg&w=1000)Today: [Instalación artística Proyecto RedBall, Estación Central, Amberes, Bélgica (© Brit Worgan/Getty Images)](https://www.bing.com/th?id=OHR.RedBallBelgium_ES-ES8883654006_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BowlingBallCali_EN-GB8164059079_UHD.jpg&w=1000)Today: [Bowling Ball Beach, Mendocino County, California, USA (© Melo Qiao/Getty Images)](https://www.bing.com/th?id=OHR.BowlingBallCali_EN-GB8164059079_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RedBallBelgium_EN-GB2394850317_UHD.jpg&w=1000)Today: [The RedBall Project art installation, Centraal Station, Antwerp, Belgium (© Brit Worgan/Getty Images)](https://www.bing.com/th?id=OHR.RedBallBelgium_EN-GB2394850317_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.RedBallBelgium_IT-IT3409084305_UHD.jpg&w=1000)Today: [Installazione artistica del RedBall Project, Stazione Centrale di Anversa, Belgio (© Brit Worgan/Getty Images)](https://www.bing.com/th?id=OHR.RedBallBelgium_IT-IT3409084305_UHD.jpg)
 <br><br/>
