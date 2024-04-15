@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.RedBallBelgium_JA-JP5377417723_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アントワープ中央駅, ベルギー (© Brit Worgan/Getty Images)](https://www.bing.com/th?id=OHR.RedBallBelgium_JA-JP5377417723_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.UnionSquareNYC_JA-JP5528212006_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ユニオンスクエア, 米国 ニューヨーク (© Sean Pavone/Getty Images)](https://www.bing.com/th?id=OHR.UnionSquareNYC_JA-JP5528212006_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.RedBallBelgium_FR-FR7736092564_UHD.jpg&w=1000)Today: [Le RedBall Project, œuvre d’art itinérante, Gare centrale, Anvers, Belgique (© Brit Worgan/Getty Images)](https://www.bing.com/th?id=OHR.RedBallBelgium_FR-FR7736092564_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.RedBallBelgium_IT-IT3409084305_UHD.jpg&w=1000)Today: [Installazione artistica del RedBall Project, Stazione Centrale di Anversa, Belgio (© Brit Worgan/Getty Images)](https://www.bing.com/th?id=OHR.RedBallBelgium_IT-IT3409084305_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BowlingBallCali_PT-BR6942653750_UHD.jpg&w=1000)Today: [Pôr do sol em Praia das Bolas de Boliche, Condado de Mendocino, Califórnia, EUA (© Melo Qiao/Getty Images)](https://www.bing.com/th?id=OHR.BowlingBallCali_PT-BR6942653750_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RedBallBelgium_PT-BR7344009835_UHD.jpg&w=1000)Today: [Instalação artística do 'RedBall Project', Estação Central, Antuérpia, Bélgica (© Brit Worgan/Getty Images)](https://www.bing.com/th?id=OHR.RedBallBelgium_PT-BR7344009835_UHD.jpg)
 <br><br/>
