@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SpringCub_ZH-CN1643833378_UHD.jpg&w=1000)今日图片: &nbsp;[春天的美洲黑熊幼崽，仙纳度国家公园，弗吉尼亚州，美国 (© Scott Suriano/Getty Images)](https://www.bing.com/th?id=OHR.SpringCub_ZH-CN1643833378_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_UHD.jpg&w=1000)今日图片: &nbsp;[中世纪城墙，阿维拉，西班牙 (© Scott Suriano/Getty Images)](https://www.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.UnionSquareNYC_EN-US3633149979_UHD.jpg&w=1000)Today: [Union Square in lower Manhattan at twilight, New York (© Sean Pavone/Getty Images)](https://www.bing.com/th?id=OHR.UnionSquareNYC_EN-US3633149979_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpringCub_EN-US3818124104_UHD.jpg&w=1000)Today: [American black bear cub in spring, Shenandoah National Park, Virginia (© Scott Suriano/Getty Images)](https://www.bing.com/th?id=OHR.SpringCub_EN-US3818124104_UHD.jpg)
 <br><br/>
