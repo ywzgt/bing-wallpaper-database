@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_UHD.jpg&w=1000)今日图片: &nbsp;[布罗德加环，奥克尼岛，苏格兰 (© Paul Williams - FunkyStock/Getty Images)](https://www.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_UHD.jpg&w=1000)今日图片: &nbsp;[日出时分的大棱镜泉，美国怀俄明州黄石国家公园 (© XIN WANG/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AvilaSpain_EN-US3559491003_UHD.jpg&w=1000)Today: [Medieval city walls, Ávila, Spain (© Alberto Loyo/Getty Images)](https://www.bing.com/th?id=OHR.AvilaSpain_EN-US3559491003_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OrkneyStones_EN-US3355508244_UHD.jpg&w=1000)Today: [The Ring of Brodgar, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)](https://www.bing.com/th?id=OHR.OrkneyStones_EN-US3355508244_UHD.jpg)
 <br><br/>
