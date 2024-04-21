@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.CadesCove_ZH-CN3950297181_UHD.jpg&w=1000)今日图片: &nbsp;[Cades Cove ，大雾山国家公园，田纳西州，美国 (© Richard Bernabe/Shutterstock)](https://www.bing.com/th?id=OHR.CadesCove_ZH-CN3950297181_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EarthDayTurtle_ZH-CN4642042701_UHD.jpg&w=1000)今日图片: &nbsp;[绿海龟，圣地亚哥，加利福尼亚，美国 (© Ralph Pace/Minden Pictures)](https://www.bing.com/th?id=OHR.EarthDayTurtle_ZH-CN4642042701_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.YellowstoneGeyser_EN-US3470127711_UHD.jpg&w=1000)Today: [Grand Prismatic Spring at sunrise, Yellowstone National Park, Wyoming (© XIN WANG/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneGeyser_EN-US3470127711_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CadesCove_EN-US4359486356_UHD.jpg&w=1000)Today: [Sparks Lane in Cades Cove, Great Smoky Mountains National Park, Tennessee (© Richard Bernabe/Shutterstock)](https://www.bing.com/th?id=OHR.CadesCove_EN-US4359486356_UHD.jpg)
 <br><br/>

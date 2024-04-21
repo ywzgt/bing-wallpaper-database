@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.CadesCove_JA-JP4163759564_UHD.jpg&w=1000)今日の壁紙: &nbsp;[グレート・スモーキー山脈国立公園, 米国 テネシー州 (© Richard Bernabe/Shutterstock)](https://www.bing.com/th?id=OHR.CadesCove_JA-JP4163759564_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EarthDayTurtle_JA-JP4280227627_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アオウミガメ, 米国 カリフォルニア州 サンディエゴ (© Ralph Pace/Minden Pictures)](https://www.bing.com/th?id=OHR.EarthDayTurtle_JA-JP4280227627_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ChauseyIslands_FR-FR2335923449_UHD.jpg&w=1000)Today: [Îles Chausey, Normandie, France (© Tuul & Bruno Morandi/Getty Images)](https://www.bing.com/th?id=OHR.ChauseyIslands_FR-FR2335923449_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CadesCove_IT-IT3109778366_UHD.jpg&w=1000)Today: [Vicolo delle scintille a Cades Cove, Parco Nazionale delle montagne Great Smoky,Tennessee, Stati Uniti (© Richard Bernabe/Shutterstock)](https://www.bing.com/th?id=OHR.CadesCove_IT-IT3109778366_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.YellowstoneGeyser_PT-BR2303534903_UHD.jpg&w=1000)Today: [Grande Fonte Prismática ao amanhecer, Parque Nacional de Yellowstone, Wyoming (EUA) (© XIN WANG/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneGeyser_PT-BR2303534903_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CadesCove_PT-BR2584359483_UHD.jpg&w=1000)Today: [Sparks Lane em Cades Cove, Parque Nacional das Grandes Montanhas Fumegantes, Tennessee, EUA (© Richard Bernabe/Shutterstock)](https://www.bing.com/th?id=OHR.CadesCove_PT-BR2584359483_UHD.jpg)
 <br><br/>
