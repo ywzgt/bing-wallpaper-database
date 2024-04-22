@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.EarthDayTurtle_JA-JP4280227627_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アオウミガメ, 米国 カリフォルニア州 サンディエゴ (© Ralph Pace/Minden Pictures)](https://www.bing.com/th?id=OHR.EarthDayTurtle_JA-JP4280227627_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TrinityDublin_JA-JP4414218998_UHD.jpg&w=1000)今日の壁紙: &nbsp;[トリニティ・カレッジ図書館, アイルランド (© Lukas Bischoff/Getty Images)](https://www.bing.com/th?id=OHR.TrinityDublin_JA-JP4414218998_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.EarthDayTurtle_FR-FR6121121892_UHD.jpg&w=1000)Today: [Tortue verte, San Diego, Californie, États-Unis (© Ralph Pace/Minden Pictures)](https://www.bing.com/th?id=OHR.EarthDayTurtle_FR-FR6121121892_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.EarthDayTurtle_IT-IT4132854501_UHD.jpg&w=1000)Today: [Un esemplare di tartaruga verde, San Diego, California, Stati Uniti (© Ralph Pace/Minden Pictures)](https://www.bing.com/th?id=OHR.EarthDayTurtle_IT-IT4132854501_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CadesCove_PT-BR2584359483_UHD.jpg&w=1000)Today: [Sparks Lane em Cades Cove, Parque Nacional das Grandes Montanhas Fumegantes, Tennessee, EUA (© Richard Bernabe/Shutterstock)](https://www.bing.com/th?id=OHR.CadesCove_PT-BR2584359483_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EarthDayTurtle_PT-BR2849722316_UHD.jpg&w=1000)Today: [Tartaruga-verde, San Diego, Califórnia, EUA (© Ralph Pace/Minden Pictures)](https://www.bing.com/th?id=OHR.EarthDayTurtle_PT-BR2849722316_UHD.jpg)
 <br><br/>
