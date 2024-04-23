@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TrinityDublin_JA-JP4414218998_UHD.jpg&w=1000)今日の壁紙: &nbsp;[トリニティ・カレッジ図書館, アイルランド (© Lukas Bischoff/Getty Images)](https://www.bing.com/th?id=OHR.TrinityDublin_JA-JP4414218998_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TrilliumOntario_JA-JP4524267784_UHD.jpg&w=1000)今日の壁紙: &nbsp;[北米のエンレイソウ, カナダ オンタリオ州 (© Jun Zhang/Getty Images)](https://www.bing.com/th?id=OHR.TrilliumOntario_JA-JP4524267784_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TrinityDublin_FR-FR6932470359_UHD.jpg&w=1000)Today: [Bibliothèque du Trinity College de Dublin, Irlande (© Lukas Bischoff/Getty Images)](https://www.bing.com/th?id=OHR.TrinityDublin_FR-FR6932470359_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TrinityDublin_IT-IT5100279268_UHD.jpg&w=1000)Today: [Biblioteca Trinity College di Dublino, Irlanda (© Lukas Bischoff/Getty Images)](https://www.bing.com/th?id=OHR.TrinityDublin_IT-IT5100279268_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.EarthDayTurtle_PT-BR2849722316_UHD.jpg&w=1000)Today: [Tartaruga-verde, San Diego, Califórnia, EUA (© Ralph Pace/Minden Pictures)](https://www.bing.com/th?id=OHR.EarthDayTurtle_PT-BR2849722316_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TrinityDublin_PT-BR3116849937_UHD.jpg&w=1000)Today: [Biblioteca da Universidade Trinity, Dublin, Irlanda (© Lukas Bischoff/Getty Images)](https://www.bing.com/th?id=OHR.TrinityDublin_PT-BR3116849937_UHD.jpg)
 <br><br/>
