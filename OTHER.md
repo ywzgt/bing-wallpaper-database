@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.KalalochTree_JA-JP4733041534_UHD.jpg&w=1000)今日の壁紙: &nbsp;[オリンピック国立公園にある不思議な木, 米国 ワシントン州 (© Abbie Warnock-Matthews/Shutterstock)](https://www.bing.com/th?id=OHR.KalalochTree_JA-JP4733041534_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LeucisticHummingbird_JA-JP4843663786_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アンナハチドリの白変種, 米国 カリフォルニア州 (© yhelfman/Getty Images)](https://www.bing.com/th?id=OHR.LeucisticHummingbird_JA-JP4843663786_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.KalalochTree_FR-FR8329014212_UHD.jpg&w=1000)Today: [Arbre de Kalaloch, alias l'arbre de vie, plage de Kalaloch, parc national olympique, Washington, États-Unis (© Abbie Warnock-Matthews/Shutterstock)](https://www.bing.com/th?id=OHR.KalalochTree_FR-FR8329014212_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.KalalochTree_IT-IT7011475645_UHD.jpg&w=1000)Today: [Albero di Kalaloch, alias l'albero della vita, Kalaloch Beach, Parco Nazionale di Olympic, Washington, Stati Uniti (© Abbie Warnock-Matthews/Shutterstock)](https://www.bing.com/th?id=OHR.KalalochTree_IT-IT7011475645_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PenguinDirections_PT-BR3690073340_UHD.jpg&w=1000)Today: [Pinguins-de-Adélia em um iceberg, Antártica (© Patrick J. Endres/Getty Images)](https://www.bing.com/th?id=OHR.PenguinDirections_PT-BR3690073340_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KalalochTree_PT-BR4023725758_UHD.jpg&w=1000)Today: [Árvore de Kalaloch, conhecida como a árvore da vida, Praia de Kalaloch, Parque Nacional Olímpico, Washington, EUA (© Abbie Warnock-Matthews/Shutterstock)](https://www.bing.com/th?id=OHR.KalalochTree_PT-BR4023725758_UHD.jpg)
 <br><br/>
