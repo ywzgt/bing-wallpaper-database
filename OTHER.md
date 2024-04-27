@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.LeucisticHummingbird_JA-JP4843663786_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アンナハチドリの白変種, 米国 カリフォルニア州 (© yhelfman/Getty Images)](https://www.bing.com/th?id=OHR.LeucisticHummingbird_JA-JP4843663786_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GuadalupeTexas_JA-JP4951023881_UHD.jpg&w=1000)今日の壁紙: &nbsp;[グアダルーペ山脈国立公園, 米国 テキサス州 (© Adam Mowery/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GuadalupeTexas_JA-JP4951023881_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.Canigou_FR-FR9013566099_UHD.jpg&w=1000)Today: [L'abbaye Saint-Martin du Canigou, Casteil, Occitanie, France (© Cyril Gosselin/Getty Images)](https://www.bing.com/th?id=OHR.Canigou_FR-FR9013566099_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.LeucisticHummingbird_IT-IT7331627780_UHD.jpg&w=1000)Today: [Colibrì leucistico di Anna, Australia Garden, UCSC Arboretum, Santa Cruz, California, USA (© yhelfman/Getty Images)](https://www.bing.com/th?id=OHR.LeucisticHummingbird_IT-IT7331627780_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.KalalochTree_PT-BR4023725758_UHD.jpg&w=1000)Today: [Árvore de Kalaloch, conhecida como a árvore da vida, Praia de Kalaloch, Parque Nacional Olímpico, Washington, EUA (© Abbie Warnock-Matthews/Shutterstock)](https://www.bing.com/th?id=OHR.KalalochTree_PT-BR4023725758_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LeucisticHummingbird_PT-BR4306978820_UHD.jpg&w=1000)Today: [Beija-flor leucístico de Anna no Jardim da Austrália, UCSC Arboretum, Santa Cruz, Califórnia, EUA (© yhelfman/Getty Images)](https://www.bing.com/th?id=OHR.LeucisticHummingbird_PT-BR4306978820_UHD.jpg)
 <br><br/>
