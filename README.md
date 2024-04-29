@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TulouFujian_ZH-CN4287018074_UHD.jpg&w=1000)今日图片: &nbsp;[福建土楼，福建省历史文化遗产建筑，中国 (© Hongjie Han/Getty Images)](https://www.bing.com/th?id=OHR.TulouFujian_ZH-CN4287018074_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CheetahRain_ZH-CN6722375507_UHD.jpg&w=1000)今日图片: &nbsp;[清晨雨中的猎豹，恩杜图平原，恩戈罗恩戈罗保护区，坦桑尼亚 (© Paul Souders/Getty Images)](https://www.bing.com/th?id=OHR.CheetahRain_ZH-CN6722375507_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GuadalupeTexas_EN-US5906260854_UHD.jpg&w=1000)Today: [El Capitan at sunrise in Guadalupe Mountains National Park, Texas (© Adam Mowery/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GuadalupeTexas_EN-US5906260854_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TulouFujian_EN-US6009679228_UHD.jpg&w=1000)Today: [Fujian Tulou complex of historical and cultural heritage buildings in Fujian province, China (© Hongjie Han/Getty Images)](https://www.bing.com/th?id=OHR.TulouFujian_EN-US6009679228_UHD.jpg)
 <br><br/>
