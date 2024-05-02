@@ -1,15 +1,3 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.CratersOfTheMoon_JA-JP5423756803_UHD.jpg&w=1000)今日の壁紙: &nbsp;[月のクレーター国立公園, 米国 アイダホ州 (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.CratersOfTheMoon_JA-JP5423756803_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.CratersOfTheMoon_FR-FR1896950585_UHD.jpg&w=1000)Today: [Coulée de lave du Dragon Bleu, Monument national des Cratères de la Lune, Idaho, États-Unis (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.CratersOfTheMoon_FR-FR1896950585_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.CratersOfTheMoon_DE-DE3535189706_UHD.jpg&w=1000)Today: [Blue Dragon Lava Flow, Craters of the Moon National Monument, Idaho, USA (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.CratersOfTheMoon_DE-DE3535189706_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.MadridOpen_ES-ES2650206128_UHD.jpg&w=1000)Today: [Gran Vía y Edificio Metrópolis en Madrid, España (© RudyBalasko/Getty Images)](https://www.bing.com/th?id=OHR.MadridOpen_ES-ES2650206128_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.CratersOfTheMoon_EN-GB6307433192_UHD.jpg&w=1000)Today: [Blue Dragon Lava Flow, Craters of the Moon National Monument, Idaho, USA (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.CratersOfTheMoon_EN-GB6307433192_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.CratersOfTheMoon_IT-IT8708957821_UHD.jpg&w=1000)Today: [Flusso di lava del Drago Blu, Monumento e riserva nazionale Craters of the Moon, Idaho, USA (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.CratersOfTheMoon_IT-IT8708957821_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.DiadaLiteraturaBrasileira_PT-BR6259851380_UHD.jpg&w=1000)Today: [Real Gabinete Portugues de Leitura, Rio de Janeiro (© Wagner Meier/Getty Images)](https://www.bing.com/th?id=OHR.DiadaLiteraturaBrasileira_PT-BR6259851380_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SonoranSpring_JA-JP1708087750_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ソノラ砂漠, 米国 アリゾナ州 (© Charles Harker/Getty Images)](https://www.bing.com/th?id=OHR.SonoranSpring_JA-JP1708087750_UHD.jpg)
 <br><br/>
