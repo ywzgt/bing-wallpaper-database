@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SonoranSpring_ZH-CN9246678734_UHD.jpg&w=1000)今日图片: &nbsp;[春天盛开的沙漠毒菊，索诺拉沙漠，亚利桑那州 (© Charles Harker/Getty Images)](https://www.bing.com/th?id=OHR.SonoranSpring_ZH-CN9246678734_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JediMonastery_ZH-CN0091557941_UHD.jpg&w=1000)今日图片: &nbsp;[斯凯利格·迈克尔岛上一座古老修道院的废墟，爱尔兰 (© MNStudio/Getty Images)](https://www.bing.com/th?id=OHR.JediMonastery_ZH-CN0091557941_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CratersOfTheMoon_EN-US6516727783_UHD.jpg&w=1000)Today: [Blue Dragon Lava Flow, Craters of the Moon National Monument, Idaho (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.CratersOfTheMoon_EN-US6516727783_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SonoranSpring_EN-US9207877073_UHD.jpg&w=1000)Today: [Brittlebushes blooming in springtime, Sonoran Desert, Arizona (© Charles Harker/Getty Images)](https://www.bing.com/th?id=OHR.SonoranSpring_EN-US9207877073_UHD.jpg)
 <br><br/>
