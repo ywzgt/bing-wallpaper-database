@@ -9,7 +9,7 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.EmirganPark_EN-GB1032868040_UHD.jpg&w=1000)Today: [Tulips at Emirgan Park in Istanbul, Türkiye (© Ozbalci/Getty Images)](https://www.bing.com/th?id=OHR.EmirganPark_EN-GB1032868040_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.EmirganPark_IT-IT4111429731_UHD.jpg&w=1000)Today: [Tulips at Emirgan Park in Istanbul, Türkiye (© Ozbalci/Getty Images)](https://www.bing.com/th?id=OHR.EmirganPark_IT-IT4111429731_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EmirganPark_IT-IT4111429731_UHD.jpg&w=1000)Today: [Tulipani nel parco di Emirgan a Istanbul, Türkiye (© Ozbalci/Getty Images)](https://www.bing.com/th?id=OHR.EmirganPark_IT-IT4111429731_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.IguazuTurism_PT-BR9760109650_UHD.jpg&w=1000)Today: [Cataratas do Iguaçu durante o amanhecer (© SinghaphanAllB/Moment/Getty Images)](https://www.bing.com/th?id=OHR.IguazuTurism_PT-BR9760109650_UHD.jpg)
 <br><br/>
