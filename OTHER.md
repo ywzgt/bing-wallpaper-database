@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TexasIndigoBunting_JA-JP9651791616_UHD.jpg&w=1000)今日の壁紙: &nbsp;[枝にとまるルリノジコ, 米国 テキサス州 (© Jeff R Clow/Getty Images)](https://www.bing.com/th?id=OHR.TexasIndigoBunting_JA-JP9651791616_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GuanacoMother_JA-JP0047652462_UHD.jpg&w=1000)今日の壁紙: &nbsp;[グアナコの母子, アルゼンチン ラ・パンパ州 (© Gabriel Rojo/Minden Pictures)](https://www.bing.com/th?id=OHR.GuanacoMother_JA-JP0047652462_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TexasIndigoBunting_FR-FR9846433348_UHD.jpg&w=1000)Today: [Passerin indigo, perché sur une branche, Texas, États-Unis (© Jeff R Clow/Getty Images)](https://www.bing.com/th?id=OHR.TexasIndigoBunting_FR-FR9846433348_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TexasIndigoBunting_IT-IT9364925475_UHD.jpg&w=1000)Today: [Uno zigolo indaco appollaiato su un ramo, Texas, USA (© Jeff R Clow/Getty Images)](https://www.bing.com/th?id=OHR.TexasIndigoBunting_IT-IT9364925475_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MisoolRajaAmpat_PT-BR6517717174_UHD.jpg&w=1000)Today: [Misool, Ilhas Raja Ampat, Indonésia (© Giordano Cipriani/Getty Images)](https://www.bing.com/th?id=OHR.MisoolRajaAmpat_PT-BR6517717174_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TexasIndigoBunting_PT-BR6730881258_UHD.jpg&w=1000)Today: [Um azulão empoleirado em um galho, Texas, Estados Unidos (© Jeff R Clow/Getty Images)](https://www.bing.com/th?id=OHR.TexasIndigoBunting_PT-BR6730881258_UHD.jpg)
 <br><br/>
