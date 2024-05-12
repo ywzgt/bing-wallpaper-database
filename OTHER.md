@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.GuanacoMother_JA-JP0047652462_UHD.jpg&w=1000)今日の壁紙: &nbsp;[グアナコの母子, アルゼンチン ラ・パンパ州 (© Gabriel Rojo/Minden Pictures)](https://www.bing.com/th?id=OHR.GuanacoMother_JA-JP0047652462_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NamibiaCanyon_JA-JP0410618255_UHD.jpg&w=1000)今日の壁紙: &nbsp;[フィッシュリバー・キャニオン, ナミビア (© R. M. Nunes/Getty Images)](https://www.bing.com/th?id=OHR.NamibiaCanyon_JA-JP0410618255_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CamargueFlamingos_FR-FR0995673980_UHD.jpg&w=1000)Today: [Flamants roses, réserve naturelle de Pont de Gau, Camargue, France (© Yann Guichaoua-Photos/Getty Images)](https://www.bing.com/th?id=OHR.CamargueFlamingos_FR-FR0995673980_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BabyDolphinMom_IT-IT8782194786_UHD.jpg&w=1000)Today: [Vista dall'alto di delfini che nuotano nel mare, Genova, Italia (© Andrea Izzotti/500px/Getty Images)](https://www.bing.com/th?id=OHR.BabyDolphinMom_IT-IT8782194786_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TexasIndigoBunting_PT-BR6730881258_UHD.jpg&w=1000)Today: [Um azulão empoleirado em um galho, Texas, Estados Unidos (© Jeff R Clow/Getty Images)](https://www.bing.com/th?id=OHR.TexasIndigoBunting_PT-BR6730881258_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GuanacoMother_PT-BR7069142219_UHD.jpg&w=1000)Today: [Fêmea de guanaco e bebê recém-nascido em pastagem, província de La Pampa, Argentina (© Gabriel Rojo/Minden Pictures)](https://www.bing.com/th?id=OHR.GuanacoMother_PT-BR7069142219_UHD.jpg)
 <br><br/>
