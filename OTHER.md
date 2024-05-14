@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.CarlsbadNP_JA-JP0802484908_UHD.jpg&w=1000)今日の壁紙: &nbsp;[カールズバッド洞窟群国立公園, 米国 ニューメキシコ州 (© Doug Meek/Getty Images)](https://www.bing.com/th?id=OHR.CarlsbadNP_JA-JP0802484908_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AoiMatsuri2024_JA-JP1018506374_UHD.jpg&w=1000)今日の壁紙: &nbsp;[下鴨神社, 京都 (© beibaoke/Shutterstock)](https://www.bing.com/th?id=OHR.AoiMatsuri2024_JA-JP1018506374_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CarlsbadNP_FR-FR1644664306_UHD.jpg&w=1000)Today: [Parc national des grottes de Carlsbad, Nouveau-Mexique, États-Unis (© Doug Meek/Getty Images)](https://www.bing.com/th?id=OHR.CarlsbadNP_FR-FR1644664306_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CarlsbadNP_IT-IT7707347019_UHD.jpg&w=1000)Today: [Passerella che conduce alla Big Room, Carlsbad Caverns, Nuovo Messico, USA (© Doug Meek/Getty Images)](https://www.bing.com/th?id=OHR.CarlsbadNP_IT-IT7707347019_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.NamibiaCanyon_PT-BR7314875835_UHD.jpg&w=1000)Today: [Desfiladeiro do rio Fish, Namíbia (© R. M. Nunes/Getty Images)](https://www.bing.com/th?id=OHR.NamibiaCanyon_PT-BR7314875835_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CarlsbadNP_PT-BR7544935694_UHD.jpg&w=1000)Today: [Trilha que leva ao Big Room, Grutas de Carlsbad, Novo México (© Doug Meek/Getty Images)](https://www.bing.com/th?id=OHR.CarlsbadNP_PT-BR7544935694_UHD.jpg)
 <br><br/>
