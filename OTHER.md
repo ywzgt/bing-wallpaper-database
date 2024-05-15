@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AoiMatsuri2024_JA-JP1018506374_UHD.jpg&w=1000)今日の壁紙: &nbsp;[下鴨神社, 京都 (© beibaoke/Shutterstock)](https://www.bing.com/th?id=OHR.AoiMatsuri2024_JA-JP1018506374_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DayOfLight_JA-JP1257596439_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ユーレンス現代美術センター, 中国 北京 (© Feng Li/Getty Images News)](https://www.bing.com/th?id=OHR.DayOfLight_JA-JP1257596439_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BlueCityIndia_FR-FR2415111297_UHD.jpg&w=1000)Today: [La ville bleue de Jodhpur, Inde (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.BlueCityIndia_FR-FR2415111297_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BlueCityIndia_IT-IT7121297677_UHD.jpg&w=1000)Today: [La città blu di Jodhpur, India (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.BlueCityIndia_IT-IT7121297677_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CarlsbadNP_PT-BR7544935694_UHD.jpg&w=1000)Today: [Trilha que leva ao Big Room, Grutas de Carlsbad, Novo México (© Doug Meek/Getty Images)](https://www.bing.com/th?id=OHR.CarlsbadNP_PT-BR7544935694_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BlueCityIndia_PT-BR7765486791_UHD.jpg&w=1000)Today: [A Cidade Azul de Jodhpur, Índia (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.BlueCityIndia_PT-BR7765486791_UHD.jpg)
 <br><br/>

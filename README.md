@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_UHD.jpg&w=1000)今日图片: &nbsp;[焦特布尔蓝色之城，印度 (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ReconquistaVigo_ZH-CN4619580424_UHD.jpg&w=1000)今日图片: &nbsp;[维戈的兰德大桥，西班牙 (© Julio Conde/Getty Images)](https://www.bing.com/th?id=OHR.ReconquistaVigo_ZH-CN4619580424_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CarlsbadNP_EN-US2282243740_UHD.jpg&w=1000)Today: [Walkway leading into the Big Room, Carlsbad Caverns, New Mexico (© Doug Meek/Getty Images)](https://www.bing.com/th?id=OHR.CarlsbadNP_EN-US2282243740_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BlueCityIndia_EN-US1593809891_UHD.jpg&w=1000)Today: [The Blue City of Jodhpur, India (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.BlueCityIndia_EN-US1593809891_UHD.jpg)
 <br><br/>
