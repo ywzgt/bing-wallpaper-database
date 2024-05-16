@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.DayOfLight_JA-JP1257596439_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ユーレンス現代美術センター, 中国 北京 (© Feng Li/Getty Images News)](https://www.bing.com/th?id=OHR.DayOfLight_JA-JP1257596439_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BlueCityIndia_FR-FR2415111297_UHD.jpg&w=1000)Today: [La ville bleue de Jodhpur, Inde (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.BlueCityIndia_FR-FR2415111297_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DayOfLight_FR-FR2802585315_UHD.jpg&w=1000)Today: [Œuvre « Feelings Are Facts », par l'artiste Olafur Eliasson et l'architecte Ma Yansong, Pékin, Chine (© Feng Li/Getty Images News)](https://www.bing.com/th?id=OHR.DayOfLight_FR-FR2802585315_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RiverNekarHeidelberg_DE-DE0017451449_UHD.jpg&w=1000)Today: [Blick über den Fluss Neckar auf das Stadtbild von Heidelberg, Baden-Württemberg (© Juergen Sack/Getty Images)](https://www.bing.com/th?id=OHR.RiverNekarHeidelberg_DE-DE0017451449_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DayOfLight_DE-DE0376737244_UHD.jpg&w=1000)Today: [„Gefühle sind Fakten“, Künstler Olafur Eliasson und Architekt Ma Yansong, Peking, China (© Feng Li/Getty Images News)](https://www.bing.com/th?id=OHR.DayOfLight_DE-DE0376737244_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BlueCityIndia_ES-ES0873677345_UHD.jpg&w=1000)Today: [La ciudad azul de Jodhpur, India (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.BlueCityIndia_ES-ES0873677345_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ParaglidingChampion_ES-ES1439141263_UHD.jpg&w=1000)Today: [Campeonato de Europa de Parapente. Pegalajar, Jaén, España (© Jorgefontestad/Getty Images)](https://www.bing.com/th?id=OHR.ParaglidingChampion_ES-ES1439141263_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BlueCityIndia_EN-GB6388449012_UHD.jpg&w=1000)Today: [The Blue City of Jodhpur, India (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.BlueCityIndia_EN-GB6388449012_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DayOfLight_EN-GB6642931428_UHD.jpg&w=1000)Today: ['Feelings are Facts,' by artist Olafur Eliasson and architect Ma Yansong, Beijing, China (© Feng Li/Getty Images News)](https://www.bing.com/th?id=OHR.DayOfLight_EN-GB6642931428_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BlueCityIndia_IT-IT7121297677_UHD.jpg&w=1000)Today: [La città blu di Jodhpur, India (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.BlueCityIndia_IT-IT7121297677_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DayOfLight_IT-IT0477712926_UHD.jpg&w=1000)Today: ["Feelings are Facts", dell'artista Olafur Eliasson e dell'architetto Ma Yansong, Pechino, Cina (© Feng Li/Getty Images News)](https://www.bing.com/th?id=OHR.DayOfLight_IT-IT0477712926_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BlueCityIndia_PT-BR7765486791_UHD.jpg&w=1000)Today: [A Cidade Azul de Jodhpur, Índia (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.BlueCityIndia_PT-BR7765486791_UHD.jpg)
 <br><br/>
