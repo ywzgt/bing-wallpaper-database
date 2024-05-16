@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.DayOfLight_JA-JP1257596439_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ユーレンス現代美術センター, 中国 北京 (© Feng Li/Getty Images News)](https://www.bing.com/th?id=OHR.DayOfLight_JA-JP1257596439_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TarangireElephants_JA-JP9488936307_UHD.jpg&w=1000)今日の壁紙: &nbsp;[タランギーレ国立公園のアフリカゾウ, タンザニア (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.TarangireElephants_JA-JP9488936307_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.DayOfLight_FR-FR2802585315_UHD.jpg&w=1000)Today: [Œuvre « Feelings Are Facts », par l'artiste Olafur Eliasson et l'architecte Ma Yansong, Pékin, Chine (© Feng Li/Getty Images News)](https://www.bing.com/th?id=OHR.DayOfLight_FR-FR2802585315_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.DayOfLight_IT-IT0477712926_UHD.jpg&w=1000)Today: ["Feelings are Facts", dell'artista Olafur Eliasson e dell'architetto Ma Yansong, Pechino, Cina (© Feng Li/Getty Images News)](https://www.bing.com/th?id=OHR.DayOfLight_IT-IT0477712926_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BlueCityIndia_PT-BR7765486791_UHD.jpg&w=1000)Today: [A Cidade Azul de Jodhpur, Índia (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.BlueCityIndia_PT-BR7765486791_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DayOfLight_PT-BR7977320546_UHD.jpg&w=1000)Today: ['Feelings are Facts' (Sentimentos são fatos), do artista Olafur Eliasson e do arquiteto Ma Yansong, Pequim, China (© Feng Li/Getty Images News)](https://www.bing.com/th?id=OHR.DayOfLight_PT-BR7977320546_UHD.jpg)
 <br><br/>
