@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TarangireElephants_JA-JP9488936307_UHD.jpg&w=1000)今日の壁紙: &nbsp;[タランギーレ国立公園のアフリカゾウ, タンザニア (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.TarangireElephants_JA-JP9488936307_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Museum2024_JA-JP9828975611_UHD.jpg&w=1000)今日の壁紙: &nbsp;[日本科学未来館, 東京都 江東区 (© cowardlion/Shutterstock)](https://www.bing.com/th?id=OHR.Museum2024_JA-JP9828975611_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TarangireElephants_FR-FR7017565181_UHD.jpg&w=1000)Today: [Une famille d'éléphants d'Afrique dans le parc national de Tarangire, en Tanzanie (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.TarangireElephants_FR-FR7017565181_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BergamoAlta_IT-IT3472701981_UHD.jpg&w=1000)Today: [Vista di Bergamo Alta durante il tramonto, Lombardia, Italia (© Deimagine/Getty Images)](https://www.bing.com/th?id=OHR.BergamoAlta_IT-IT3472701981_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DayOfLight_PT-BR7977320546_UHD.jpg&w=1000)Today: ['Feelings are Facts' (Sentimentos são fatos), do artista Olafur Eliasson e do arquiteto Ma Yansong, Pequim, China (© Feng Li/Getty Images News)](https://www.bing.com/th?id=OHR.DayOfLight_PT-BR7977320546_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TarangireElephants_PT-BR9979896896_UHD.jpg&w=1000)Today: [Uma família de elefantes africanos no Parque Nacional Tarangire, Tanzânia (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.TarangireElephants_PT-BR9979896896_UHD.jpg)
 <br><br/>
