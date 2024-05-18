@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Museum2024_JA-JP9828975611_UHD.jpg&w=1000)今日の壁紙: &nbsp;[日本科学未来館, 東京都 江東区 (© cowardlion/Shutterstock)](https://www.bing.com/th?id=OHR.Museum2024_JA-JP9828975611_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VernazzaItaly_JA-JP0110983802_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ヴェルナッツァ, イタリア リグーリア州 (© Roberto Moiola/Sysaworld/Getty Images)](https://www.bing.com/th?id=OHR.VernazzaItaly_JA-JP0110983802_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MuseumWhale_FR-FR7280247552_UHD.jpg&w=1000)Today: [Squelette de baleine bleue appelé Hope, Natural History Museum, Londres, Angleterre (© Bailey-Cooper Photography/Alamy)](https://www.bing.com/th?id=OHR.MuseumWhale_FR-FR7280247552_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MuseumWhale_IT-IT4738172799_UHD.jpg&w=1000)Today: [Scheletro della balenottera Azzurra “Hope”, Museo di Storia Naturale di Londra, Inghilterra (© Bailey-Cooper Photography/Alamy)](https://www.bing.com/th?id=OHR.MuseumWhale_IT-IT4738172799_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TarangireElephants_PT-BR9979896896_UHD.jpg&w=1000)Today: [Uma família de elefantes africanos no Parque Nacional Tarangire, Tanzânia (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.TarangireElephants_PT-BR9979896896_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MuseumWhale_PT-BR0044062488_UHD.jpg&w=1000)Today: [Esqueleto de baleia azul chamada Hope, Museu de História Natural, Londres, Inglaterra (© Bailey-Cooper Photography/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.MuseumWhale_PT-BR0044062488_UHD.jpg)
 <br><br/>
