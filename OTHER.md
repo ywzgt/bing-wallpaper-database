@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.VernazzaItaly_JA-JP0110983802_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ヴェルナッツァ, イタリア リグーリア州 (© Roberto Moiola/Sysaworld/Getty Images)](https://www.bing.com/th?id=OHR.VernazzaItaly_JA-JP0110983802_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HoneycombBee_JA-JP0520778035_UHD.jpg&w=1000)今日の壁紙: &nbsp;[巣を作っているミツバチ (© Simun Ascic/Alamy)](https://www.bing.com/th?id=OHR.HoneycombBee_JA-JP0520778035_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.VernazzaItaly_FR-FR7493796283_UHD.jpg&w=1000)Today: [Village de Vernazza, Cinque Terre, Ligurie, Italie (© Roberto Moiola/Sysaworld/Getty Images)](https://www.bing.com/th?id=OHR.VernazzaItaly_FR-FR7493796283_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.VernazzaItaly_IT-IT4901627475_UHD.jpg&w=1000)Today: [Vernazza, Cinque Terre, Liguria, Italia (© Roberto Moiola/Sysaworld/Getty Images)](https://www.bing.com/th?id=OHR.VernazzaItaly_IT-IT4901627475_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MuseumWhale_PT-BR0044062488_UHD.jpg&w=1000)Today: [Esqueleto de baleia azul chamada Hope, Museu de História Natural, Londres, Inglaterra (© Bailey-Cooper Photography/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.MuseumWhale_PT-BR0044062488_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VernazzaItaly_PT-BR0108995686_UHD.jpg&w=1000)Today: [Vila de Vernazza, Cinque Terre, Ligúria, Itália (© Roberto Moiola/Sysaworld/Getty Images)](https://www.bing.com/th?id=OHR.VernazzaItaly_PT-BR0108995686_UHD.jpg)
 <br><br/>
