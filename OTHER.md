@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.HoneycombBee_JA-JP0520778035_UHD.jpg&w=1000)今日の壁紙: &nbsp;[巣を作っているミツバチ (© Simun Ascic/Alamy)](https://www.bing.com/th?id=OHR.HoneycombBee_JA-JP0520778035_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.VernazzaItaly_FR-FR7493796283_UHD.jpg&w=1000)Today: [Village de Vernazza, Cinque Terre, Ligurie, Italie (© Roberto Moiola/Sysaworld/Getty Images)](https://www.bing.com/th?id=OHR.VernazzaItaly_FR-FR7493796283_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HoneycombBee_FR-FR7652566648_UHD.jpg&w=1000)Today: [Abeille travaillant dans un nid (© Simun Ascic/Alamy)](https://www.bing.com/th?id=OHR.HoneycombBee_FR-FR7652566648_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.NefertitiMuseum_DE-DE7400530006_UHD.jpg&w=1000)Today: [Die Büste der Königin Nofretete, Ägyptisches Museum, Museumsinseln Berlin (© Christophe Gateau/picture alliance via Getty Images)](https://www.bing.com/th?id=OHR.NefertitiMuseum_DE-DE7400530006_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HoneycombBee_DE-DE7958601447_UHD.jpg&w=1000)Today: [Biene bei der Pflege einer Wabe (© Simun Ascic/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HoneycombBee_DE-DE7958601447_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.VernazzaItaly_ES-ES4215156011_UHD.jpg&w=1000)Today: [Pueblo de Vernazza, Cinque Terre, Liguria, Italia (© Roberto Moiola/Sysaworld/Getty Images)](https://www.bing.com/th?id=OHR.VernazzaItaly_ES-ES4215156011_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HoneycombBee_ES-ES4459802642_UHD.jpg&w=1000)Today: [Abeja cuidando un panal (© Simun Ascic/Alamy)](https://www.bing.com/th?id=OHR.HoneycombBee_ES-ES4459802642_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.VernazzaItaly_EN-GB4204136839_UHD.jpg&w=1000)Today: [Village of Vernazza, Cinque Terre, Liguria, Italy (© Roberto Moiola/Sysaworld/Getty Images)](https://www.bing.com/th?id=OHR.VernazzaItaly_EN-GB4204136839_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HoneycombBee_EN-GB4546978575_UHD.jpg&w=1000)Today: [Bee tending a honeycomb (© Simun Ascic/Alamy)](https://www.bing.com/th?id=OHR.HoneycombBee_EN-GB4546978575_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.VernazzaItaly_IT-IT4901627475_UHD.jpg&w=1000)Today: [Vernazza, Cinque Terre, Liguria, Italia (© Roberto Moiola/Sysaworld/Getty Images)](https://www.bing.com/th?id=OHR.VernazzaItaly_IT-IT4901627475_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HoneycombBee_IT-IT9529563707_UHD.jpg&w=1000)Today: [Un’ape che cura un favo (© Simun Ascic/Alamy)](https://www.bing.com/th?id=OHR.HoneycombBee_IT-IT9529563707_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.VernazzaItaly_PT-BR0108995686_UHD.jpg&w=1000)Today: [Vila de Vernazza, Cinque Terre, Ligúria, Itália (© Roberto Moiola/Sysaworld/Getty Images)](https://www.bing.com/th?id=OHR.VernazzaItaly_PT-BR0108995686_UHD.jpg)
 <br><br/>
