@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MalaysiaTea_JA-JP0806186041_UHD.jpg&w=1000)今日の壁紙: &nbsp;[キャメロンハイランドの茶畑, マレーシア (© alex cheong/Getty Images)](https://www.bing.com/th?id=OHR.MalaysiaTea_JA-JP0806186041_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SkyTree2024_JA-JP0993799568_UHD.jpg&w=1000)今日の壁紙: &nbsp;[夕暮れの東京スカイツリー,  東京 (© Saha Entertainment/Getty Images)](https://www.bing.com/th?id=OHR.SkyTree2024_JA-JP0993799568_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MalaysiaTea_FR-FR7897047895_UHD.jpg&w=1000)Today: [Plantation de thé des Cameron Highlands, Malaisie (© alex cheong/Getty Images)](https://www.bing.com/th?id=OHR.MalaysiaTea_FR-FR7897047895_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MalaysiaTea_IT-IT5477437805_UHD.jpg&w=1000)Today: [Piantagione di tè, Cameron Highlands, Malaysia (© alex cheong/Getty Images)](https://www.bing.com/th?id=OHR.MalaysiaTea_IT-IT5477437805_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HoneycombBee_PT-BR0168442685_UHD.jpg&w=1000)Today: [Abelha cuidando do favo de mel (© Simun Ascic/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HoneycombBee_PT-BR0168442685_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MalaysiaTea_PT-BR0222561765_UHD.jpg&w=1000)Today: [Plantação de chá de Cameron Highlands, Malásia (© alex cheong/Getty Images)](https://www.bing.com/th?id=OHR.MalaysiaTea_PT-BR0222561765_UHD.jpg)
 <br><br/>
