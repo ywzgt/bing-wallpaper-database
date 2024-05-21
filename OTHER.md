@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.MalaysiaTea_JA-JP0806186041_UHD.jpg&w=1000)今日の壁紙: &nbsp;[キャメロンハイランドの茶畑, マレーシア (© alex cheong/Getty Images)](https://www.bing.com/th?id=OHR.MalaysiaTea_JA-JP0806186041_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HoneycombBee_FR-FR7652566648_UHD.jpg&w=1000)Today: [Abeille travaillant dans un nid (© Simun Ascic/Alamy)](https://www.bing.com/th?id=OHR.HoneycombBee_FR-FR7652566648_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MalaysiaTea_FR-FR7897047895_UHD.jpg&w=1000)Today: [Plantation de thé des Cameron Highlands, Malaisie (© alex cheong/Getty Images)](https://www.bing.com/th?id=OHR.MalaysiaTea_FR-FR7897047895_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HoneycombBee_DE-DE7958601447_UHD.jpg&w=1000)Today: [Biene bei der Pflege einer Wabe (© Simun Ascic/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HoneycombBee_DE-DE7958601447_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MalaysiaTea_DE-DE8270167574_UHD.jpg&w=1000)Today: [Teeplantagen Cameron Highlands, Malaysia (© alex cheong/Getty Images)](https://www.bing.com/th?id=OHR.MalaysiaTea_DE-DE8270167574_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HoneycombBee_ES-ES4459802642_UHD.jpg&w=1000)Today: [Abeja cuidando un panal (© Simun Ascic/Alamy)](https://www.bing.com/th?id=OHR.HoneycombBee_ES-ES4459802642_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MalaysiaTea_ES-ES4744673149_UHD.jpg&w=1000)Today: [Plantación de té de Cameron Highlands, Malasia (© alex cheong/Getty Images)](https://www.bing.com/th?id=OHR.MalaysiaTea_ES-ES4744673149_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HoneycombBee_EN-GB4546978575_UHD.jpg&w=1000)Today: [Bee tending a honeycomb (© Simun Ascic/Alamy)](https://www.bing.com/th?id=OHR.HoneycombBee_EN-GB4546978575_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChelseaFlowerUK_EN-GB5786159001_UHD.jpg&w=1000)Today: [A woman with a floral hat at the RHS Chelsea Flower Show 2014 (© Bettina Strenske/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.ChelseaFlowerUK_EN-GB5786159001_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HoneycombBee_IT-IT9529563707_UHD.jpg&w=1000)Today: [Un’ape che cura un favo (© Simun Ascic/Alamy)](https://www.bing.com/th?id=OHR.HoneycombBee_IT-IT9529563707_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MalaysiaTea_IT-IT5477437805_UHD.jpg&w=1000)Today: [Piantagione di tè, Cameron Highlands, Malaysia (© alex cheong/Getty Images)](https://www.bing.com/th?id=OHR.MalaysiaTea_IT-IT5477437805_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.HoneycombBee_PT-BR0168442685_UHD.jpg&w=1000)Today: [Abelha cuidando do favo de mel (© Simun Ascic/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HoneycombBee_PT-BR0168442685_UHD.jpg)
 <br><br/>
