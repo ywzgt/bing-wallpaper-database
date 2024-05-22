@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SkyTree2024_JA-JP0993799568_UHD.jpg&w=1000)今日の壁紙: &nbsp;[夕暮れの東京スカイツリー,  東京 (© Saha Entertainment/Getty Images)](https://www.bing.com/th?id=OHR.SkyTree2024_JA-JP0993799568_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IndianStarTortoise_JA-JP1239891119_UHD.jpg&w=1000)今日の壁紙: &nbsp;[インドホシガメ, スリランカ (© Robin Chittenden/Minden Pictures)](https://www.bing.com/th?id=OHR.IndianStarTortoise_JA-JP1239891119_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SnowGumTasmania_FR-FR8041530043_UHD.jpg&w=1000)Today: [Eucalyptus coccifera, parc national de Mount Field, Tasmanie, Australie (© Ignacio Palacios/Getty Images)](https://www.bing.com/th?id=OHR.SnowGumTasmania_FR-FR8041530043_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SnowGumTasmania_IT-IT5111843479_UHD.jpg&w=1000)Today: [Gomma delle nevi della Tasmania (Eucalyptus pauciflora), Parco Nazionale di Mount Field, Tasmania, Australia (© Ignacio Palacios/Getty Images)](https://www.bing.com/th?id=OHR.SnowGumTasmania_IT-IT5111843479_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MalaysiaTea_PT-BR0222561765_UHD.jpg&w=1000)Today: [Plantação de chá de Cameron Highlands, Malásia (© alex cheong/Getty Images)](https://www.bing.com/th?id=OHR.MalaysiaTea_PT-BR0222561765_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SnowGumTasmania_PT-BR0279882424_UHD.jpg&w=1000)Today: [Eucalipto goma-da-neve-da-Tasmânia (Eucalyptus pauciflora), Parque Nacional Mount Field, Tasmânia, Austrália (© Ignacio Palacios/Getty Images)](https://www.bing.com/th?id=OHR.SnowGumTasmania_PT-BR0279882424_UHD.jpg)
 <br><br/>
