@@ -1,1 +1,1 @@
-05/23.global.md
+05/24.global.md
