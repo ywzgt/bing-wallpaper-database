@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MoroccoBenhaddou_JA-JP1858999164_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アイット・ベン・ハドゥ, モロッコ (© Grant Faint/Getty Images)](https://www.bing.com/th?id=OHR.MoroccoBenhaddou_JA-JP1858999164_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MethowWildflowers_JA-JP2117575252_UHD.jpg&w=1000)今日の壁紙: &nbsp;[メソウ・バレー, 米国 ワシントン州 (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.MethowWildflowers_JA-JP2117575252_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MoroccoBenhaddou_FR-FR8548629295_UHD.jpg&w=1000)Today: [Ksar d’Aït Benhaddou, Maroc (© Grant Faint/Getty Images)](https://www.bing.com/th?id=OHR.MoroccoBenhaddou_FR-FR8548629295_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MoroccoBenhaddou_IT-IT7804111538_UHD.jpg&w=1000)Today: [Ait-Ben-Haddou, Marocco (© Grant Faint/Getty Images)](https://www.bing.com/th?id=OHR.MoroccoBenhaddou_IT-IT7804111538_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DiaNacionaldoCafe_PT-BR0388353116_UHD.jpg&w=1000)Today: [Um trabalhador peneira grãos de café na fazenda de café Camocim em Domingos Martins, Espírito Santo (© Carl de Souza/Getty Images)](https://www.bing.com/th?id=OHR.DiaNacionaldoCafe_PT-BR0388353116_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MoroccoBenhaddou_PT-BR0472580311_UHD.jpg&w=1000)Today: [Aït Benhaddou, Marrocos (© Grant Faint/Getty Images)](https://www.bing.com/th?id=OHR.MoroccoBenhaddou_PT-BR0472580311_UHD.jpg)
 <br><br/>
