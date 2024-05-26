@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MethowWildflowers_JA-JP2117575252_UHD.jpg&w=1000)今日の壁紙: &nbsp;[メソウ・バレー, 米国 ワシントン州 (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.MethowWildflowers_JA-JP2117575252_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HedgehogMeadow_JA-JP0023153078_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ナミハリネズミ, ドイツ ノルトライン＝ヴェストファーレン州 (© Oksana Schmidt/Getty Images)](https://www.bing.com/th?id=OHR.HedgehogMeadow_JA-JP0023153078_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MonacoGP_FR-FR9314919538_UHD.jpg&w=1000)Today: [Monte Carlo au crépuscule, Monaco (©  StockByM/Getty Images)](https://www.bing.com/th?id=OHR.MonacoGP_FR-FR9314919538_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MethowWildflowers_IT-IT7261352417_UHD.jpg&w=1000)Today: [Balsamorhiza sagittata e lupini, Methow Valley, North Cascades, Washington, USA (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.MethowWildflowers_IT-IT7261352417_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MoroccoBenhaddou_PT-BR0472580311_UHD.jpg&w=1000)Today: [Aït Benhaddou, Marrocos (© Grant Faint/Getty Images)](https://www.bing.com/th?id=OHR.MoroccoBenhaddou_PT-BR0472580311_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MethowWildflowers_PT-BR0540541576_UHD.jpg&w=1000)Today: [Bálsamos e lupinos, Methow Valley, North Cascades, Washington, EUA (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.MethowWildflowers_PT-BR0540541576_UHD.jpg)
 <br><br/>

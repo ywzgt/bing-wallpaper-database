@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MethowWildflowers_ZH-CN8926661958_UHD.jpg&w=1000)今日图片: &nbsp;[香根和羽扇豆，梅索谷，北喀斯喀特，华盛顿州，美国 (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.MethowWildflowers_ZH-CN8926661958_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_UHD.jpg&w=1000)今日图片: &nbsp;[塞斯特里莱万特的沉默湾，利古里亚大区，意大利 (© StevanZZ/Getty Images)](https://www.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MoroccoBenhaddou_EN-US4848616753_UHD.jpg&w=1000)Today: [Aït Benhaddou, Morocco (© Grant Faint/Getty Images)](https://www.bing.com/th?id=OHR.MoroccoBenhaddou_EN-US4848616753_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MethowWildflowers_EN-US4937353385_UHD.jpg&w=1000)Today: [Balsamroot and lupines, Methow Valley, North Cascades, Washington (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.MethowWildflowers_EN-US4937353385_UHD.jpg)
 <br><br/>
