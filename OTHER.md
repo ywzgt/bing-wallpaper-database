@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MullOtter_JA-JP2913567009_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ユーラシアカワウソ, スコットランド (© Neil Henderson/Alamy)](https://www.bing.com/th?id=OHR.MullOtter_JA-JP2913567009_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Everglades90th_JA-JP3090725626_UHD.jpg&w=1000)今日の壁紙: &nbsp;[エバーグレーズ国立公園, 米国 フロリダ州 (© Jonathan Gewirtz/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.Everglades90th_JA-JP3090725626_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MullOtter_FR-FR1221177605_UHD.jpg&w=1000)Today: [Loutre d'Europe, Loch Spelve, île de Mull, Écosse (© Neil Henderson/Alamy)](https://www.bing.com/th?id=OHR.MullOtter_FR-FR1221177605_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MullOtter_IT-IT5835725538_UHD.jpg&w=1000)Today: [Lontre europee adolescenti, Loch Spelve, Isola di Mull, Scozia (© Neil Henderson/Alamy)](https://www.bing.com/th?id=OHR.MullOtter_IT-IT5835725538_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MeteoraMonastery_PT-BR0665856775_UHD.jpg&w=1000)Today: [Mosteiro de Roussanou, Meteora, Tessália, Grécia (© Marius Roman/Getty Images)](https://www.bing.com/th?id=OHR.MeteoraMonastery_PT-BR0665856775_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MullOtter_PT-BR0721243704_UHD.jpg&w=1000)Today: [Lontras européias adolescentes, Loch Spelve, Ilha de Mull, Escócia (© Neil Henderson/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.MullOtter_PT-BR0721243704_UHD.jpg)
 <br><br/>
