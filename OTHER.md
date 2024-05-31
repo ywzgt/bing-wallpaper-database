@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.YorkshireDalesNP_JA-JP2753526222_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ヨークシャー・デイルズ国立公園, イングランド (© Derek Croucher/Alamy)](https://www.bing.com/th?id=OHR.YorkshireDalesNP_JA-JP2753526222_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Everglades90th_FR-FR1353947188_UHD.jpg&w=1000)Today: [Pins sylvestres, parc national des Everglades, Floride, États-Unis (© Jonathan Gewirtz/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.Everglades90th_FR-FR1353947188_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YorkshireDalesNP_FR-FR1030266814_UHD.jpg&w=1000)Today: [Gunnerside, Swaledale, Parc national des Yorkshire Dales, Angleterre (© Derek Croucher/Alamy)](https://www.bing.com/th?id=OHR.YorkshireDalesNP_FR-FR1030266814_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Everglades90th_DE-DE6253688442_UHD.jpg&w=1000)Today: [Sumpf-Kiefer, Everglades-Nationalpark, Florida, USA (© Jonathan Gewirtz/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.Everglades90th_DE-DE6253688442_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YorkshireDalesNP_DE-DE2262987650_UHD.jpg&w=1000)Today: [Gunnerside, Swaledale, Yorkshire Dales National Park, England (© Derek Croucher/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.YorkshireDalesNP_DE-DE2262987650_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Everglades90th_ES-ES6056767360_UHD.jpg&w=1000)Today: [Pinos elliotis en el Parque Nacional de los Everglades, Florida, EE.UU. (© Jonathan Gewirtz/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.Everglades90th_ES-ES6056767360_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YorkshireDalesNP_ES-ES3243650071_UHD.jpg&w=1000)Today: [Gunnerside, Swaledale, Parque Nacional Yorkshire Dales, Reino Unido (© Derek Croucher/Alamy)](https://www.bing.com/th?id=OHR.YorkshireDalesNP_ES-ES3243650071_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Everglades90th_EN-GB0429923413_UHD.jpg&w=1000)Today: [A stand of slash pines and sawgrass prairie, Everglades National Park, Florida, USA (© Jonathan Gewirtz/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.Everglades90th_EN-GB0429923413_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YorkshireDalesNP_EN-GB1861917445_UHD.jpg&w=1000)Today: [Gunnerside, Swaledale, Yorkshire Dales National Park, England (© Derek Croucher/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.YorkshireDalesNP_EN-GB1861917445_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Everglades90th_IT-IT9833292741_UHD.jpg&w=1000)Today: [Complesso di pini da taglio e prateria di segatura nel Parco Nazionale delle Everglades, Florida, USA (© Jonathan Gewirtz/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.Everglades90th_IT-IT9833292741_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YorkshireDalesNP_IT-IT9821537287_UHD.jpg&w=1000)Today: [Gunnerside, Swaledale, Parco Nazionale delle Yorkshire Dales, Inghilterra (© Derek Croucher/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.YorkshireDalesNP_IT-IT9821537287_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.Everglades90th_PT-BR0782569600_UHD.jpg&w=1000)Today: [Uma área de pinheiros e pradaria de grama, Parque Nacional de Everglades, Flórida, EUA (© Jonathan Gewirtz/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.Everglades90th_PT-BR0782569600_UHD.jpg)
 <br><br/>
