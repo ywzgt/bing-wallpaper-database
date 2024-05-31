@@ -7,7 +7,7 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.YorkshireDalesNP_ES-ES3243650071_UHD.jpg&w=1000)Today: [Gunnerside, Swaledale, Parque Nacional Yorkshire Dales, Reino Unido (© Derek Croucher/Alamy)](https://www.bing.com/th?id=OHR.YorkshireDalesNP_ES-ES3243650071_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.YorkshireDalesNP_EN-GB1861917445_UHD.jpg&w=1000)Today: [Gunnerside, Swaledale, Yorkshire Dales National Park, England (© Derek Croucher/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.YorkshireDalesNP_EN-GB1861917445_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YorkshireDalesNP_EN-GB7625460348_UHD.jpg&w=1000)Today: [Gunnerside village, Swaledale, Yorkshire Dales National Park, England (© Derek Croucher/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.YorkshireDalesNP_EN-GB7625460348_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.YorkshireDalesNP_IT-IT9821537287_UHD.jpg&w=1000)Today: [Gunnerside, Swaledale, Parco Nazionale delle Yorkshire Dales, Inghilterra (© Derek Croucher/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.YorkshireDalesNP_IT-IT9821537287_UHD.jpg)
 <br><br/>
