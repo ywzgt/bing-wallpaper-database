@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.CancaoDoExilio_ZH-CN1012675104_UHD.jpg&w=1000)今日图片: &nbsp;[帝王棕榈树，里约热内卢植物园，巴西 (© Marcia Silva de Mendonca/Getty Images)](https://www.bing.com/th?id=OHR.CancaoDoExilio_ZH-CN1012675104_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MenRuz_ZH-CN2021725181_UHD.jpg&w=1000)今日图片: &nbsp;[普卢马纳克的灯塔，阿摩尔滨海省，法国 (© Christian Handl/Getty Images)](https://www.bing.com/th?id=OHR.MenRuz_ZH-CN2021725181_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.YorkshireDalesNP_EN-US6104560581_UHD.jpg&w=1000)Today: [Gunnerside, Swaledale, Yorkshire Dales National Park, England (© Derek Croucher/Alamy)](https://www.bing.com/th?id=OHR.YorkshireDalesNP_EN-US6104560581_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PrideMonthSF_EN-US6251373281_UHD.jpg&w=1000)Today: [San Francisco City Hall lit up in rainbow lights for Pride, California (© Josh Edelson/AFP via Getty Images)](https://www.bing.com/th?id=OHR.PrideMonthSF_EN-US6251373281_UHD.jpg)
 <br><br/>
