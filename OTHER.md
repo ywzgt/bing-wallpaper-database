@@ -1,3 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.HumpbackFamily_JA-JP3134637599_UHD.jpg&w=1000)今日の壁紙: &nbsp;[港湾地区ダッチハーバーのザトウクジラ, 米国 アラスカ州 (© Jude Newkirk/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.HumpbackFamily_JA-JP3134637599_UHD.jpg)
 <br><br/>
+![](https://www.bing.com/th?id=OHR.HumpbackFamily_FR-FR3059562315_UHD.jpg&w=1000)Today: [Famille de baleines à bosse, Dutch Harbor, Alaska, États-Unis (© Jude Newkirk/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.HumpbackFamily_FR-FR3059562315_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.HumpbackFamily_DE-DE8013802672_UHD.jpg&w=1000)Today: [Buckelwalfamilie, Dutch Harbor, Alaska (© Jude Newkirk/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.HumpbackFamily_DE-DE8013802672_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.HumpbackFamily_ES-ES5806856103_UHD.jpg&w=1000)Today: [Familia de ballenas jorobadas, Dutch Harbor, Alaska (© Jude Newkirk/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.HumpbackFamily_ES-ES5806856103_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.HumpbackFamily_EN-GB1225853084_UHD.jpg&w=1000)Today: [Family of humpback whales, Dutch Harbour, Alaska, USA (© Jude Newkirk/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.HumpbackFamily_EN-GB1225853084_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.HumpbackFamily_IT-IT4429880425_UHD.jpg&w=1000)Today: [Famiglia di megattere, Dutch Harbor, Alaska, USA (© Jude Newkirk/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.HumpbackFamily_IT-IT4429880425_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.LesBravesNormandy_PT-BR7484983029_UHD.jpg&w=1000)Today: [Monumento Les Braves na praia de Omaha, Normandia, França (© Christopher Furlong/Getty Images)](https://www.bing.com/th?id=OHR.LesBravesNormandy_PT-BR7484983029_UHD.jpg)
+<br><br/>
