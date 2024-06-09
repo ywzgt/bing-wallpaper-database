@@ -1,15 +1,3 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BardenasBiosphere_JA-JP3263055841_UHD.jpg&w=1000)今日の壁紙: &nbsp;[バルデナス・レアレス, スペイン (© Aliaume Chapelle/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BardenasBiosphere_JA-JP3263055841_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.BardenasBiosphere_FR-FR3427127743_UHD.jpg&w=1000)Today: [Réserve de la biosphère et parc naturel de Bardenas Reales, Navarre, Espagne (© Aliaume Chapelle/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BardenasBiosphere_FR-FR3427127743_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.KlosterKamp_DE-DE6407205141_UHD.jpg&w=1000)Today: [Kloster Kamp mit Terrassengarten und Klosterbarockgarten, Kamp-Lintfort, Niederrhein (© Hans Blossey/Alamy)](https://www.bing.com/th?id=OHR.KlosterKamp_DE-DE6407205141_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.RegionMurciaDay_ES-ES1540507455_UHD.jpg&w=1000)Today: [Atardecer en Murcia, España (© Medvedkov/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.RegionMurciaDay_ES-ES1540507455_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.BardenasBiosphere_EN-GB7353700362_UHD.jpg&w=1000)Today: [Bardenas Reales Biosphere Reserve and Natural Park, Bardenas, Navarra, Spain (© Aliaume Chapelle/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BardenasBiosphere_EN-GB7353700362_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.BardenasBiosphere_IT-IT6167554797_UHD.jpg&w=1000)Today: [Riserva della Biosfera e Parco Naturale Bardenas Reales, Bardenas, Navarra, Spagna (© Aliaume Chapelle/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BardenasBiosphere_IT-IT6167554797_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.KillikRiverAlaska_PT-BR9004579454_UHD.jpg&w=1000)Today: [Confluência de Easter Creek e Killik River, Parque Nacional e Reserva Portas do Ártico, Alasca, EUA (© Patrick J. Endres/Getty Images)](https://www.bing.com/th?id=OHR.KillikRiverAlaska_PT-BR9004579454_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OsakaNight_JA-JP3335717675_UHD.jpg&w=1000)今日の壁紙: &nbsp;[大阪湾方面から見た大阪湾岸, 大阪府 大阪市 (© wichianduangsri/Getty Images)](https://www.bing.com/th?id=OHR.OsakaNight_JA-JP3335717675_UHD.jpg)
 <br><br/>
