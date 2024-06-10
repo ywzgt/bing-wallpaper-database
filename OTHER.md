@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.OsakaNight_JA-JP3335717675_UHD.jpg&w=1000)今日の壁紙: &nbsp;[大阪湾方面から見た大阪湾岸, 大阪府 大阪市 (© wichianduangsri/Getty Images)](https://www.bing.com/th?id=OHR.OsakaNight_JA-JP3335717675_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Ajisai2024_JA-JP3414608133_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アジサイ, 神奈川県 鎌倉市 (© baphotte/Getty Images)](https://www.bing.com/th?id=OHR.Ajisai2024_JA-JP3414608133_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.OsakaNight_FR-FR3842044387_UHD.jpg&w=1000)Today: [Osaka la nuit, Japon (© wichianduangsri/Getty Images)](https://www.bing.com/th?id=OHR.OsakaNight_FR-FR3842044387_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.OsakaNight_IT-IT6949418703_UHD.jpg&w=1000)Today: [Osaka di notte, Giappone (© wichianduangsri/Getty Images)](https://www.bing.com/th?id=OHR.OsakaNight_IT-IT6949418703_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BardenasBiosphere_PT-BR8155922865_UHD.jpg&w=1000)Today: [Reserva da Biosfera e Parque Natural Bardenas Reales, Bardenas, Navarra, Espanha (© Aliaume Chapelle/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BardenasBiosphere_PT-BR8155922865_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OsakaNight_PT-BR8462311640_UHD.jpg&w=1000)Today: [Osaka à noite, Japão (© wichianduangsri/Getty Images)](https://www.bing.com/th?id=OHR.OsakaNight_PT-BR8462311640_UHD.jpg)
 <br><br/>
