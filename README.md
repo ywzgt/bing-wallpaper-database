@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.DragonBoatFestival2024_ZH-CN6619827853_UHD.jpg&w=1000)今日图片: &nbsp;[龙舟池日出，集美区，厦门，中国 (© outcast85/Getty images)](https://www.bing.com/th?id=OHR.DragonBoatFestival2024_ZH-CN6619827853_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_UHD.jpg&w=1000)今日图片: &nbsp;[热带稀树草原上的南非剑羚，博茨瓦纳大草原 (© Karine Aigner/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_UHD.jpg&w=1000)Today: [Bardenas Reales Biosphere Reserve and Natural Park, Bardenas, Navarra, Spain (© Aliaume Chapelle/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OsakaNight_EN-US7022302235_UHD.jpg&w=1000)Today: [Osaka at night, Japan (© wichianduangsri/Getty Images)](https://www.bing.com/th?id=OHR.OsakaNight_EN-US7022302235_UHD.jpg)
 <br><br/>
