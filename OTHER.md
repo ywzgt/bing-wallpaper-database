@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Ajisai2024_JA-JP3414608133_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アジサイ, 神奈川県 鎌倉市 (© baphotte/Getty Images)](https://www.bing.com/th?id=OHR.Ajisai2024_JA-JP3414608133_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BigBendMilkyWay_JA-JP3523395036_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ビッグ・ベンド国立公園, 米国 テキサス州 (© wisanuboonrawd/Adobe Stock)](https://www.bing.com/th?id=OHR.BigBendMilkyWay_JA-JP3523395036_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.GemsbokBotswana_FR-FR4043133584_UHD.jpg&w=1000)Today: [L'oryx gazelle dans la savane, Botswana (© Karine Aigner/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GemsbokBotswana_FR-FR4043133584_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ViesteItaly_IT-IT7489172458_UHD.jpg&w=1000)Today: [Vieste sulla penisola del Gargano, Puglia, Italia (© Pilat666/Getty Images)](https://www.bing.com/th?id=OHR.ViesteItaly_IT-IT7489172458_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.OsakaNight_PT-BR8462311640_UHD.jpg&w=1000)Today: [Osaka à noite, Japão (© wichianduangsri/Getty Images)](https://www.bing.com/th?id=OHR.OsakaNight_PT-BR8462311640_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GemsbokBotswana_PT-BR8699513531_UHD.jpg&w=1000)Today: [Órix-do-cabo na savana, Botsuana (© Karine Aigner/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GemsbokBotswana_PT-BR8699513531_UHD.jpg)
 <br><br/>
