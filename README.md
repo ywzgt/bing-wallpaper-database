@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_UHD.jpg&w=1000)今日图片: &nbsp;[热带稀树草原上的南非剑羚，博茨瓦纳大草原 (© Karine Aigner/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BigBendMilkyWay_ZH-CN7709015605_UHD.jpg&w=1000)今日图片: &nbsp;[大弯国家公园上空的银河，得克萨斯州，美国 (© wisanuboonrawd/Adobe Stock)](https://www.bing.com/th?id=OHR.BigBendMilkyWay_ZH-CN7709015605_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.OsakaNight_EN-US7022302235_UHD.jpg&w=1000)Today: [Osaka at night, Japan (© wichianduangsri/Getty Images)](https://www.bing.com/th?id=OHR.OsakaNight_EN-US7022302235_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GemsbokBotswana_EN-US7126985499_UHD.jpg&w=1000)Today: [Southern gemsbok in the savanna, Botswana (© Karine Aigner/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GemsbokBotswana_EN-US7126985499_UHD.jpg)
 <br><br/>
