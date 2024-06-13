@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.RegistanUzbekistan_ZH-CN7850329702_UHD.jpg&w=1000)今日图片: &nbsp;[雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦撒 (© da-kuk/Getty Images)](https://www.bing.com/th?id=OHR.RegistanUzbekistan_ZH-CN7850329702_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_UHD.jpg&w=1000)今日图片: &nbsp;[佩姬湾灯塔，新斯科舍省，加拿大 (© Pugalenthi/Getty Images)](https://www.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BigBendMilkyWay_EN-US7213876995_UHD.jpg&w=1000)Today: [Milky Way over Big Bend National Park, Texas (© wisanuboonrawd/Adobe Stock)](https://www.bing.com/th?id=OHR.BigBendMilkyWay_EN-US7213876995_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RegistanUzbekistan_EN-US7287760362_UHD.jpg&w=1000)Today: [Mosaic façade in Registan Square, Samarkand, Uzbekistan (© da-kuk/Getty Images)](https://www.bing.com/th?id=OHR.RegistanUzbekistan_EN-US7287760362_UHD.jpg)
 <br><br/>
