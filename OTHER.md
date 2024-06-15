@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.NazareWave_JA-JP0665828544_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ナザレのビッグウェーブ, ポルトガル (© Rui Caria/Getty Images)](https://www.bing.com/th?id=OHR.NazareWave_JA-JP0665828544_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RedFoxDad_JA-JP0937901099_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ギンギツネの親子, 米国 ワシントン州 (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.RedFoxDad_JA-JP0937901099_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.NazareWave_FR-FR3133568548_UHD.jpg&w=1000)Today: [Surfeur sur une vague à Nazaré, Portugal (© Rui Caria/Getty Images)](https://www.bing.com/th?id=OHR.NazareWave_FR-FR3133568548_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.NazareWave_IT-IT1958162870_UHD.jpg&w=1000)Today: [Surfer che cavalca un’onda a Nazaré, Portogallo (© Rui Caria/Getty Images)](https://www.bing.com/th?id=OHR.NazareWave_IT-IT1958162870_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PeggysCove_PT-BR1473312250_UHD.jpg&w=1000)Today: [Farol de Peggys Cove, Nova Escócia, Canadá (© Pugalenthi/Getty Images)](https://www.bing.com/th?id=OHR.PeggysCove_PT-BR1473312250_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NazareWave_PT-BR1726789452_UHD.jpg&w=1000)Today: [Surfista pegando onda em Nazaré, Portugal (© Rui Caria/Getty Images)](https://www.bing.com/th?id=OHR.NazareWave_PT-BR1726789452_UHD.jpg)
 <br><br/>
