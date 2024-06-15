@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.NazareWave_JA-JP0665828544_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ナザレのビッグウェーブ, ポルトガル (© Rui Caria/Getty Images)](https://www.bing.com/th?id=OHR.NazareWave_JA-JP0665828544_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PeggysCove_FR-FR2777171937_UHD.jpg&w=1000)Today: [Phare de Peggy's Cove, Nouvelle-Écosse, Canada (© Pugalenthi/Getty Images)](https://www.bing.com/th?id=OHR.PeggysCove_FR-FR2777171937_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NazareWave_FR-FR3133568548_UHD.jpg&w=1000)Today: [Surfeur sur une vague à Nazaré, Portugal (© Rui Caria/Getty Images)](https://www.bing.com/th?id=OHR.NazareWave_FR-FR3133568548_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PeggysCove_DE-DE6175899520_UHD.jpg&w=1000)Today: [Leuchtturm Peggy’s Point, Nova Scotia, Kanada (© Pugalenthi/Getty Images)](https://www.bing.com/th?id=OHR.PeggysCove_DE-DE6175899520_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NazareWave_DE-DE6510576584_UHD.jpg&w=1000)Today: [Wellenreiter in Nazaré, Portugal (© Rui Caria/Getty Images)](https://www.bing.com/th?id=OHR.NazareWave_DE-DE6510576584_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PeggysCove_ES-ES2898736491_UHD.jpg&w=1000)Today: [Faro de Peggys Cove, Nueva Escocia, Canadá (© Pugalenthi/Getty Images)](https://www.bing.com/th?id=OHR.PeggysCove_ES-ES2898736491_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NazareWave_ES-ES3451063756_UHD.jpg&w=1000)Today: [Surfista montando una ola en Nazaré, Portugal (© Rui Caria/Getty Images)](https://www.bing.com/th?id=OHR.NazareWave_ES-ES3451063756_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PeggysCove_EN-GB2774875684_UHD.jpg&w=1000)Today: [Peggy's Cove Lighthouse, Nova Scotia, Canada (© Pugalenthi/Getty Images)](https://www.bing.com/th?id=OHR.PeggysCove_EN-GB2774875684_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TroopingTheColourParade_EN-GB1777396736_UHD.jpg&w=1000)Today: [Guards Bands at Horse Guards Parade, London during Trooping the Colour 2014 (© Malcolm Park editorial/Alamy Live News)](https://www.bing.com/th?id=OHR.TroopingTheColourParade_EN-GB1777396736_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.KokinoMacedonia_IT-IT5698531580_UHD.jpg&w=1000)Today: [Kokino, antico osservatorio megalitico, Macedonia del Nord (© stoimilov/Shutterstock)](https://www.bing.com/th?id=OHR.KokinoMacedonia_IT-IT5698531580_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NazareWave_IT-IT1958162870_UHD.jpg&w=1000)Today: [Surfer che cavalca un’onda a Nazaré, Portogallo (© Rui Caria/Getty Images)](https://www.bing.com/th?id=OHR.NazareWave_IT-IT1958162870_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PeggysCove_PT-BR1473312250_UHD.jpg&w=1000)Today: [Farol de Peggys Cove, Nova Escócia, Canadá (© Pugalenthi/Getty Images)](https://www.bing.com/th?id=OHR.PeggysCove_PT-BR1473312250_UHD.jpg)
 <br><br/>
