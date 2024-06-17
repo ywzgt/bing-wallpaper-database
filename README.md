@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.HummingThistle_ZH-CN5057539905_UHD.jpg&w=1000)今日图片: &nbsp;[绿顶辉蜂鸟与巨型蓟，穆埃尔特山，哥斯达黎加 (© adrian hepworth/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HummingThistle_ZH-CN5057539905_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LupinIceland_ZH-CN5329147708_UHD.jpg&w=1000)今日图片: &nbsp;[日出时的羽扇豆田和教堂，斯奈山半岛，冰岛 (© Matteo Colombo/Getty Images)](https://www.bing.com/th?id=OHR.LupinIceland_ZH-CN5329147708_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RedFoxDad_EN-US9773161483_UHD.jpg&w=1000)Today: [Red fox father and kit, Washington (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.RedFoxDad_EN-US9773161483_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HummingThistle_EN-US9897642087_UHD.jpg&w=1000)Today: [Green-crowned brilliant hummingbird with giant thistle, Cerro de la Muerte, Costa Rica (© adrian hepworth/Alamy)](https://www.bing.com/th?id=OHR.HummingThistle_EN-US9897642087_UHD.jpg)
 <br><br/>
