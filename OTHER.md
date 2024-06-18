@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.LupinIceland_JA-JP1350338976_UHD.jpg&w=1000)今日の壁紙: &nbsp;[スナイフェルス半島, アイスランド (© Matteo Colombo/Getty Images)](https://www.bing.com/th?id=OHR.LupinIceland_JA-JP1350338976_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.FortCigogne_FR-FR4151283347_UHD.jpg&w=1000)Today: [Fort Cigogne, archipel des Glénans, Bretagne (© Gerard SIOEN/Getty Images)](https://www.bing.com/th?id=OHR.FortCigogne_FR-FR4151283347_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LupinIceland_FR-FR4349851245_UHD.jpg&w=1000)Today: [Champs de lupins et église au lever du soleil, péninsule de Snæfellsnes, Islande (© Matteo Colombo/Getty Images)](https://www.bing.com/th?id=OHR.LupinIceland_FR-FR4349851245_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HummingThistle_DE-DE7552143842_UHD.jpg&w=1000)Today: [Grünstirn-Brillantkolibri mit Riesendistel, Cerro de la Muerte, Costa Rica (© adrian hepworth/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HummingThistle_DE-DE7552143842_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LupinIceland_DE-DE8795741566_UHD.jpg&w=1000)Today: [Lupinenfelder und Kirche bei Sonnenaufgang, Snæfellsnes-Halbinsel, Island (© Matteo Colombo/Getty Images)](https://www.bing.com/th?id=OHR.LupinIceland_DE-DE8795741566_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HummingThistle_ES-ES3882279359_UHD.jpg&w=1000)Today: [Colibrí brillante coroniverde con cardo gigante, Cerro de la Muerte, Costa Rica (© adrian hepworth/Alamy)](https://www.bing.com/th?id=OHR.HummingThistle_ES-ES3882279359_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LupinIceland_ES-ES4150475711_UHD.jpg&w=1000)Today: [Campos de altramuces e iglesia al amanecer, Península de Snæfellsnes, Islandia (© Matteo Colombo/Getty Images)](https://www.bing.com/th?id=OHR.LupinIceland_ES-ES4150475711_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HummingThistle_EN-GB9410129648_UHD.jpg&w=1000)Today: [Green-crowned brilliant hummingbird with giant thistle, Cerro de la Muerte, Costa Rica (© adrian hepworth/Alamy)](https://www.bing.com/th?id=OHR.HummingThistle_EN-GB9410129648_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LupinIceland_EN-GB3513329815_UHD.jpg&w=1000)Today: [Lupine fields and church at sunrise, Snæfellsnes Peninsula, Iceland (© Matteo Colombo/Getty Images)](https://www.bing.com/th?id=OHR.LupinIceland_EN-GB3513329815_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HummingThistle_IT-IT2672242113_UHD.jpg&w=1000)Today: [Colibrì, Cerro de la Muerte, Costa Rica (© adrian hepworth/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HummingThistle_IT-IT2672242113_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LupinIceland_IT-IT2902162777_UHD.jpg&w=1000)Today: [Campi di lupini e una chiesa all'alba, penisola di Snæfellsnes, Islanda (© Matteo Colombo/Getty Images)](https://www.bing.com/th?id=OHR.LupinIceland_IT-IT2902162777_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.HummingThistle_PT-BR2010044953_UHD.jpg&w=1000)Today: [Beija-flor brilhante de coroa verde com cardo gigante, Cerro de la Muerte, Costa Rica (© adrian hepworth/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HummingThistle_PT-BR2010044953_UHD.jpg)
 <br><br/>
