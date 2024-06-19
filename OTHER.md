@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.FlorenceDuomo_JA-JP1549442901_UHD.jpg&w=1000)今日の壁紙: &nbsp;[サンタ・マリア・デル・フィオーレ大聖堂, イタリア (© Elena Pueyo/Getty Images)](https://www.bing.com/th?id=OHR.FlorenceDuomo_JA-JP1549442901_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KokinoMacedonia_JA-JP1713805484_UHD.jpg&w=1000)今日の壁紙: &nbsp;[コキノ古代天文台, 北マケドニア (© stoimilov/Shutterstock)](https://www.bing.com/th?id=OHR.KokinoMacedonia_JA-JP1713805484_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CuxhavenTower_FR-FR4564976759_UHD.jpg&w=1000)Today: [Château d'eau à Cuxhaven, Allemagne (© Andreas Vogel/Alamy)](https://www.bing.com/th?id=OHR.CuxhavenTower_FR-FR4564976759_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CuxhavenTower_IT-IT3147341965_UHD.jpg&w=1000)Today: [Torre dell'acqua, Cuxhaven, Bassa Sassonia, Germania (© Andreas Vogel/Alamy)](https://www.bing.com/th?id=OHR.CuxhavenTower_IT-IT3147341965_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LupinIceland_PT-BR2281677682_UHD.jpg&w=1000)Today: [Campos de tremoços e igreja ao nascer do sol, Península de Snæfellsnes, Islândia (© Matteo Colombo/Getty Images)](https://www.bing.com/th?id=OHR.LupinIceland_PT-BR2281677682_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CuxhavenTower_PT-BR2536351203_UHD.jpg&w=1000)Today: [Torre de água em Cuxhaven, Alemanha (© Andreas Vogel/Alamy)](https://www.bing.com/th?id=OHR.CuxhavenTower_PT-BR2536351203_UHD.jpg)
 <br><br/>
