@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.KokinoMacedonia_ZH-CN6029529601_UHD.jpg&w=1000)今日图片: &nbsp;[科基诺，古代巨石观测站，北马其顿 (© stoimilov/Shutterstock)](https://www.bing.com/th?id=OHR.KokinoMacedonia_ZH-CN6029529601_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SummerSolstice2024_ZH-CN6141918663_UHD.jpg&w=1000)今日图片: &nbsp;[蓝色水面上的渔船航拍图，郴州市，湖南省，中国 (© Haitong Yu/Getty images)](https://www.bing.com/th?id=OHR.SummerSolstice2024_ZH-CN6141918663_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LawrenceMosaic_EN-US0314379909_UHD.jpg&w=1000)Today: [Jacob Lawrence's mosaic 'Community,' Joseph P. Addabbo Federal Building, Jamaica, Queens, New York (© Alpha Stock/Alamy)](https://www.bing.com/th?id=OHR.LawrenceMosaic_EN-US0314379909_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KokinoMacedonia_EN-US0466604378_UHD.jpg&w=1000)Today: [Kokino, an ancient megalithic observatory, North Macedonia (© stoimilov/Shutterstock)](https://www.bing.com/th?id=OHR.KokinoMacedonia_EN-US0466604378_UHD.jpg)
 <br><br/>
