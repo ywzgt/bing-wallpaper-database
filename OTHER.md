@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BrazilRainforest_JA-JP2489498028_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アマゾン熱帯雨林, ブラジル (© Claus Meyer/plainpicture)](https://www.bing.com/th?id=OHR.BrazilRainforest_JA-JP2489498028_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Lavender2024_JA-JP2620797533_UHD.jpg&w=1000)今日の壁紙: &nbsp;[湖畔に咲き誇るラベンダーと富士山, 河口湖 (© DoctorEgg/Getty Images)](https://www.bing.com/th?id=OHR.Lavender2024_JA-JP2620797533_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BrazilRainforest_FR-FR5609224020_UHD.jpg&w=1000)Today: [Forêt amazonienne, Brésil (© Claus Meyer/plainpicture)](https://www.bing.com/th?id=OHR.BrazilRainforest_FR-FR5609224020_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BrazilRainforest_IT-IT5114382105_UHD.jpg&w=1000)Today: [Foresta amazzonica, Brasile (© Claus Meyer/plainpicture)](https://www.bing.com/th?id=OHR.BrazilRainforest_IT-IT5114382105_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.IniciodoInverno_PT-BR1929239619_UHD.jpg&w=1000)Today: [Pôr do sol na praia de Ipanema, Rio de Janeiro, Brasil. Vista para as praias de Ipanema e Leblon, Morro Dois Irmãos e Pedra da Gávea (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.IniciodoInverno_PT-BR1929239619_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BrazilRainforest_PT-BR3213724204_UHD.jpg&w=1000)Today: [Floresta Amazônica, Brasil (© Claus Meyer/plainpicture)](https://www.bing.com/th?id=OHR.BrazilRainforest_PT-BR3213724204_UHD.jpg)
 <br><br/>
