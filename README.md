@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.DhakaBangladesh_ZH-CN6777866162_UHD.jpg&w=1000)今日图片: &nbsp;[达卡环形交叉路口的鸟瞰图，孟加拉国 (© Azim Khan Ronnie/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DhakaBangladesh_ZH-CN6777866162_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FloresIsland_ZH-CN6930246149_UHD.jpg&w=1000)今日图片: &nbsp;[克里穆图的火山口湖，弗洛勒斯岛，印度尼西亚 (© Shane P. White/Minden Pictures)](https://www.bing.com/th?id=OHR.FloresIsland_ZH-CN6930246149_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BrazilRainforest_EN-US0704211658_UHD.jpg&w=1000)Today: [Amazon rainforest, Brazil (© Claus Meyer/plainpicture)](https://www.bing.com/th?id=OHR.BrazilRainforest_EN-US0704211658_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DhakaBangladesh_EN-US0835586345_UHD.jpg&w=1000)Today: [Aerial view of an intersection in Dhaka, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DhakaBangladesh_EN-US0835586345_UHD.jpg)
 <br><br/>

@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Lavender2024_JA-JP2620797533_UHD.jpg&w=1000)今日の壁紙: &nbsp;[湖畔に咲き誇るラベンダーと富士山, 河口湖 (© DoctorEgg/Getty Images)](https://www.bing.com/th?id=OHR.Lavender2024_JA-JP2620797533_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FloresIsland_JA-JP2788584919_UHD.jpg&w=1000)今日の壁紙: &nbsp;[クリムトゥ山, インドネシア (© Shane P. White/Minden Pictures)](https://www.bing.com/th?id=OHR.FloresIsland_JA-JP2788584919_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.DhakaBangladesh_FR-FR5797372230_UHD.jpg&w=1000)Today: [Vue aérienne d'un rond-point à Dacca, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DhakaBangladesh_FR-FR5797372230_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.DhakaBangladesh_IT-IT6657097189_UHD.jpg&w=1000)Today: [Vista aerea di una rotatoria a Dacca, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DhakaBangladesh_IT-IT6657097189_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BrazilRainforest_PT-BR3213724204_UHD.jpg&w=1000)Today: [Floresta Amazônica, Brasil (© Claus Meyer/plainpicture)](https://www.bing.com/th?id=OHR.BrazilRainforest_PT-BR3213724204_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DhakaBangladesh_PT-BR3551380225_UHD.jpg&w=1000)Today: [Vista aérea de uma rotatória em Daca, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DhakaBangladesh_PT-BR3551380225_UHD.jpg)
 <br><br/>
