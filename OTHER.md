@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.FloresIsland_JA-JP2788584919_UHD.jpg&w=1000)今日の壁紙: &nbsp;[クリムトゥ山, インドネシア (© Shane P. White/Minden Pictures)](https://www.bing.com/th?id=OHR.FloresIsland_JA-JP2788584919_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DhakaBangladesh_FR-FR5797372230_UHD.jpg&w=1000)Today: [Vue aérienne d'un rond-point à Dacca, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DhakaBangladesh_FR-FR5797372230_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FloresIsland_FR-FR5999028657_UHD.jpg&w=1000)Today: [Lacs de cratères volcaniques, volvan Kelimutu, Flores, Indonésie (© Shane P. White/Minden Pictures)](https://www.bing.com/th?id=OHR.FloresIsland_FR-FR5999028657_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DhakaBangladesh_DE-DE1601087316_UHD.jpg&w=1000)Today: [Luftaufnahme eines Verkehrskreisels in Dhaka, Bangladesch (© Azim Khan Ronnie/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DhakaBangladesh_DE-DE1601087316_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FloresIsland_DE-DE4765362804_UHD.jpg&w=1000)Today: [Vulkanische Kraterseen auf Kelimutu, Flores, Indonesien (© Shane P. White/Minden Pictures)](https://www.bing.com/th?id=OHR.FloresIsland_DE-DE4765362804_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SanJuanMenorca_ES-ES8672078305_UHD.jpg&w=1000)Today: [Cala Macarelleta, Menorca, Islas Baleares, España (© Matteo Colombo/DigitalVision/Getty Images)](https://www.bing.com/th?id=OHR.SanJuanMenorca_ES-ES8672078305_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FloresIsland_ES-ES8971100389_UHD.jpg&w=1000)Today: [Lagos de cráteres volcánicos en Kelimutu, Flores, Indonesia (© Shane P. White/Minden Pictures)](https://www.bing.com/th?id=OHR.FloresIsland_ES-ES8971100389_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DhakaBangladesh_EN-GB6313540805_UHD.jpg&w=1000)Today: [Aerial view of a roundabout in Dhaka, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DhakaBangladesh_EN-GB6313540805_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FloresIsland_EN-GB9368933126_UHD.jpg&w=1000)Today: [Volcanic crater lakes on Kelimutu, Flores, Indonesia (© Shane P. White/Minden Pictures)](https://www.bing.com/th?id=OHR.FloresIsland_EN-GB9368933126_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DhakaBangladesh_IT-IT6657097189_UHD.jpg&w=1000)Today: [Vista aerea di una rotatoria a Dacca, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DhakaBangladesh_IT-IT6657097189_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FloresIsland_IT-IT4545607892_UHD.jpg&w=1000)Today: [Laghi del cratere vulcanico di Kelimutu, Flores, Indonesia (© Shane P. White/Minden Pictures)](https://www.bing.com/th?id=OHR.FloresIsland_IT-IT4545607892_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.DhakaBangladesh_PT-BR3551380225_UHD.jpg&w=1000)Today: [Vista aérea de uma rotatória em Daca, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DhakaBangladesh_PT-BR3551380225_UHD.jpg)
 <br><br/>
