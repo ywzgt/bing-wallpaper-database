@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Ayame2024_JA-JP3356201078_UHD.jpg&w=1000)今日の壁紙: &nbsp;[菖蒲, 山形県 長井市 (© gyro/Getty Images)](https://www.bing.com/th?id=OHR.Ayame2024_JA-JP3356201078_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChristopherPark_JA-JP6692662521_UHD.jpg&w=1000)今日の壁紙: &nbsp;[クリストファー・パークに掲げられたプライドフラッグ, 米国 ニューヨーク州 (© Noam Galai/Getty Images)](https://www.bing.com/th?id=OHR.ChristopherPark_JA-JP6692662521_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.FlorenceDuomo_FR-FR6562213181_UHD.jpg&w=1000)Today: [Cathédrale Santa Maria del Fiore au crépuscule, Florence, Italie (© Elena Pueyo/Getty Images)](https://www.bing.com/th?id=OHR.FlorenceDuomo_FR-FR6562213181_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.FlorenceDuomo_IT-IT5589174181_UHD.jpg&w=1000)Today: [Duomo Santa Maria del Fiore, Firenze, Toscana, Italia (© Elena Pueyo/Getty Images)](https://www.bing.com/th?id=OHR.FlorenceDuomo_IT-IT5589174181_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CardinalfishAnemone_PT-BR4236573966_UHD.jpg&w=1000)Today: [Peixe Cardinal Bangai juvenil com anêmona do mar, Estreito de Lembeh, Sulawesi do Norte, Indonésia (© Constantinos Petrinos/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.CardinalfishAnemone_PT-BR4236573966_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FlorenceDuomo_PT-BR4528036954_UHD.jpg&w=1000)Today: [Catedral Santa Maria del Fiore ao anoitecer, Florença, Itália (© Elena Pueyo/Getty Images)](https://www.bing.com/th?id=OHR.FlorenceDuomo_PT-BR4528036954_UHD.jpg)
 <br><br/>
