@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TourCorsica_JA-JP9224507458_UHD.jpg&w=1000)今日の壁紙: &nbsp;[コルシカ島のサイクリストたち, フランス (© Pascal Pochard-Casabianca/AFP via Getty Images)](https://www.bing.com/th?id=OHR.TourCorsica_JA-JP9224507458_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.UbudBali_JA-JP9425870638_UHD.jpg&w=1000)今日の壁紙: &nbsp;[バリ島のウブド村, インドネシア (© R. Schönebaum/plainpicture)](https://www.bing.com/th?id=OHR.UbudBali_JA-JP9425870638_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TourCorsica_FR-FR6133264090_UHD.jpg&w=1000)Today: [Cyclistes du Tour de France 2013, Corse (© Pascal Pochard-Casabianca/AFP via Getty Images)](https://www.bing.com/th?id=OHR.TourCorsica_FR-FR6133264090_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TourCorsica_IT-IT2275929155_UHD.jpg&w=1000)Today: [Ciclisti al Tour de France 2013, Corsica, Francia (© Pascal Pochard-Casabianca/AFP via Getty Images)](https://www.bing.com/th?id=OHR.TourCorsica_IT-IT2275929155_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Pride2024_PT-BR0771293980_UHD.jpg&w=1000)Today: [Foliões enchem as ruas segurando uma bandeira gigante do arco-íris durante a parada anual do orgulho LGBT na avenida Paulista (© Nelson Antoine/Shutterstock)](https://www.bing.com/th?id=OHR.Pride2024_PT-BR0771293980_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TourCorsica_PT-BR5751262525_UHD.jpg&w=1000)Today: [Ciclistas no Volta a França de 2013, Córsega, França (© Pascal Pochard-Casabianca/AFP via Getty Images)](https://www.bing.com/th?id=OHR.TourCorsica_PT-BR5751262525_UHD.jpg)
 <br><br/>
