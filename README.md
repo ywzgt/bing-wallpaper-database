@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ZaharaDeLaSierra_ZH-CN6500182265_UHD.jpg&w=1000)今日图片: &nbsp;[扎哈拉德拉谢拉，安达卢西亚，西班牙 (© Francesco Carovillano/eStock Photo)](https://www.bing.com/th?id=OHR.ZaharaDeLaSierra_ZH-CN6500182265_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_UHD.jpg&w=1000)今日图片: &nbsp;[丹翠雨林的诺亚海滩，昆士兰州，澳大利亚 (© bjeayes/Getty Images)](https://www.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MeerkatManor_EN-US4231814766_UHD.jpg&w=1000)Today: [Meerkat family (© anetapics/Shutterstock)](https://www.bing.com/th?id=OHR.MeerkatManor_EN-US4231814766_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HudsonFireworks_EN-US4304057228_UHD.jpg&w=1000)Today: [Fireworks over the Hudson River on the Fourth of July, New York (© New York on Air/Shutterstock)](https://www.bing.com/th?id=OHR.HudsonFireworks_EN-US4304057228_UHD.jpg)
 <br><br/>
