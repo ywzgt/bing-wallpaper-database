@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_UHD.jpg&w=1000)今日图片: &nbsp;[甘吉，西西里岛，意大利 (© Andrea Caruso/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_UHD.jpg&w=1000)今日图片: &nbsp;[雷尼尔山国家公园的野花，华盛顿州，美国 (© RomanKhomlyak/Getty Images)](https://www.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CollaredAracari_EN-US4924599176_UHD.jpg&w=1000)Today: [Collared aracari, Costa Rica (© Juan Carlos Vindas/Getty Images)](https://www.bing.com/th?id=OHR.CollaredAracari_EN-US4924599176_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GangiSicily_EN-US5325083744_UHD.jpg&w=1000)Today: [Gangi, Sicily, Italy (© Andrea Caruso/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.GangiSicily_EN-US5325083744_UHD.jpg)
 <br><br/>
