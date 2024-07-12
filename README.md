@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_UHD.jpg&w=1000)今日图片: &nbsp;[雷尼尔山国家公园的野花，华盛顿州，美国 (© RomanKhomlyak/Getty Images)](https://www.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CappadociaRocks_ZH-CN9283633861_UHD.jpg&w=1000)今日图片: &nbsp;[卡帕多西亚的童话烟囱和窑洞，土耳其 (© Storm Is Me/Shutterstock)](https://www.bing.com/th?id=OHR.CappadociaRocks_ZH-CN9283633861_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GangiSicily_EN-US5325083744_UHD.jpg&w=1000)Today: [Gangi, Sicily, Italy (© Andrea Caruso/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.GangiSicily_EN-US5325083744_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RainierWildflowers_EN-US8010104719_UHD.jpg&w=1000)Today: [Wildflowers in Mount Rainier National Park, Washington (© RomanKhomlyak/Getty Images)](https://www.bing.com/th?id=OHR.RainierWildflowers_EN-US8010104719_UHD.jpg)
 <br><br/>
