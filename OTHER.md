@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.CappadociaRocks_JA-JP5563518724_UHD.jpg&w=1000)今日の壁紙: &nbsp;[カッパドキア, トルコ (© Storm Is Me/Shutterstock)](https://www.bing.com/th?id=OHR.CappadociaRocks_JA-JP5563518724_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MuseumIsland_JA-JP9009131694_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ベルリンの「博物館島」, ドイツ (© Rudy Balasko/Shutterstock)](https://www.bing.com/th?id=OHR.MuseumIsland_JA-JP9009131694_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CappadociaRocks_FR-FR1620184980_UHD.jpg&w=1000)Today: [Cheminées de fées et habitations troglodytes en Cappadoce, Turquie (© Storm Is Me/Shutterstock)](https://www.bing.com/th?id=OHR.CappadociaRocks_FR-FR1620184980_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CappadociaRocks_IT-IT4089475911_UHD.jpg&w=1000)Today: [Camini delle fate e abitazioni in grotta in Cappadocia, Turchia (© Storm Is Me/Shutterstock)](https://www.bing.com/th?id=OHR.CappadociaRocks_IT-IT4089475911_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RainierWildflowers_PT-BR9770254578_UHD.jpg&w=1000)Today: [Flores silvestres no Parque Nacional do Monte Rainier, Washington, EUA (© RomanKhomlyak/Getty Images)](https://www.bing.com/th?id=OHR.RainierWildflowers_PT-BR9770254578_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CappadociaRocks_PT-BR0064255602_UHD.jpg&w=1000)Today: [Chaminés de fadas e grutas na Capadócia, Turquia (© Storm Is Me/Shutterstock)](https://www.bing.com/th?id=OHR.CappadociaRocks_PT-BR0064255602_UHD.jpg)
 <br><br/>
