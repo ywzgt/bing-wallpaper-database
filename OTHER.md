@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MuseumIsland_JA-JP9009131694_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ベルリンの「博物館島」, ドイツ (© Rudy Balasko/Shutterstock)](https://www.bing.com/th?id=OHR.MuseumIsland_JA-JP9009131694_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TateishiPark_JA-JP2045138918_UHD.jpg&w=1000)今日の壁紙: &nbsp;[立石公園, 神奈川県 (© blew_s/Shutterstock)](https://www.bing.com/th?id=OHR.TateishiPark_JA-JP2045138918_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BastilleDayParis_FR-FR2037587707_UHD.jpg&w=1000)Today: [La Patrouille de France au-dessus de la pyramide du Louvre pendant la cérémonie du 14 juillet, Paris (© Aurélien Meunier/Getty Images)](https://www.bing.com/th?id=OHR.BastilleDayParis_FR-FR2037587707_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SilkyShark_IT-IT4511134716_UHD.jpg&w=1000)Today: [Squalo seta alle coste dell’arcipelago Jardines de la Reina, Cuba (© Christian Vizl/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SilkyShark_IT-IT4511134716_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CappadociaRocks_PT-BR0064255602_UHD.jpg&w=1000)Today: [Chaminés de fadas e grutas na Capadócia, Turquia (© Storm Is Me/Shutterstock)](https://www.bing.com/th?id=OHR.CappadociaRocks_PT-BR0064255602_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SilkyShark_PT-BR0331927489_UHD.jpg&w=1000)Today: [Tubarão-seda em Jardines de la Reina, Cuba (© Christian Vizl/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SilkyShark_PT-BR0331927489_UHD.jpg)
 <br><br/>
