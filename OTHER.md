@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.TateishiPark_JA-JP2045138918_UHD.jpg&w=1000)今日の壁紙: &nbsp;[立石公園, 神奈川県 (© blew_s/Shutterstock)](https://www.bing.com/th?id=OHR.TateishiPark_JA-JP2045138918_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BastilleDayParis_FR-FR2037587707_UHD.jpg&w=1000)Today: [La Patrouille de France au-dessus de la pyramide du Louvre pendant la cérémonie du 14 juillet, Paris (© Aurélien Meunier/Getty Images)](https://www.bing.com/th?id=OHR.BastilleDayParis_FR-FR2037587707_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TateishiPark_FR-FR2256380829_UHD.jpg&w=1000)Today: [Parc de Tateishi, préfecture de Kanagawa, Japon (© blew_s/Shutterstock)](https://www.bing.com/th?id=OHR.TateishiPark_FR-FR2256380829_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.IntNatTheatreMunich_DE-DE4410278977_UHD.jpg&w=1000)Today: [Münchner Opernfestspiele, München (© B.O'Kane/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.IntNatTheatreMunich_DE-DE4410278977_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TateishiPark_DE-DE4909574611_UHD.jpg&w=1000)Today: [Tateishi Park, Präfektur Kanagawa, Japan (© blew_s/Shutterstock)](https://www.bing.com/th?id=OHR.TateishiPark_DE-DE4909574611_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SilkyShark_ES-ES4829919734_UHD.jpg&w=1000)Today: [Tiburón sedoso en Jardines de la Reina, Cuba (© Christian Vizl/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SilkyShark_ES-ES4829919734_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TateishiPark_ES-ES5379923028_UHD.jpg&w=1000)Today: [Parque Tateishi, prefectura de Kanagawa, Japón (© blew_s/Shutterstock)](https://www.bing.com/th?id=OHR.TateishiPark_ES-ES5379923028_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.OwlSiblings_EN-GB5626247823_UHD.jpg&w=1000)Today: [Burrowing owl chicks near a burrow, Wyoming, USA (© Danita Delimont/Getty Images)](https://www.bing.com/th?id=OHR.OwlSiblings_EN-GB5626247823_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TateishiPark_EN-GB5935394849_UHD.jpg&w=1000)Today: [Tateishi Park, Kanagawa Prefecture, Japan (© blew_s/Shutterstock)](https://www.bing.com/th?id=OHR.TateishiPark_EN-GB5935394849_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SilkyShark_IT-IT4511134716_UHD.jpg&w=1000)Today: [Squalo seta alle coste dell’arcipelago Jardines de la Reina, Cuba (© Christian Vizl/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SilkyShark_IT-IT4511134716_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TateishiPark_IT-IT9039159342_UHD.jpg&w=1000)Today: [Parco Tateishi, Prefettura di Kanagawa, Giappone (© blew_s/Shutterstock)](https://www.bing.com/th?id=OHR.TateishiPark_IT-IT9039159342_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SilkyShark_PT-BR0331927489_UHD.jpg&w=1000)Today: [Tubarão-seda em Jardines de la Reina, Cuba (© Christian Vizl/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SilkyShark_PT-BR0331927489_UHD.jpg)
 <br><br/>
