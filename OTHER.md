@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.GionFestival2024_JA-JP2391295161_UHD.jpg&w=1000)今日の壁紙: &nbsp;[提灯で飾られた山鉾, 京都府 京都市 (© Cameron Hilker/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.GionFestival2024_JA-JP2391295161_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AncientOrkney_FR-FR2608784328_UHD.jpg&w=1000)Today: [Site néolithique de Skara Brae, Orcades, Écosse (© Paul Williams - FunkyStock/Getty Images)](https://www.bing.com/th?id=OHR.AncientOrkney_FR-FR2608784328_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MedievalRothenburg_FR-FR2962331926_UHD.jpg&w=1000)Today: [Ville médiévale de Rothenburg ob der Tauber, Allemagne (© kanuman/Getty Images)](https://www.bing.com/th?id=OHR.MedievalRothenburg_FR-FR2962331926_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AncientOrkney_DE-DE5345026370_UHD.jpg&w=1000)Today: [Die jungsteinzeitliche Siedlung von Skara Brae, Orkney, Schottland (© Paul Williams - FunkyStock/Getty Images)](https://www.bing.com/th?id=OHR.AncientOrkney_DE-DE5345026370_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MedievalRothenburg_DE-DE5939430104_UHD.jpg&w=1000)Today: [Mittelalterliche Stadt Rothenburg ob der Tauber, Deutschland (© kanuman/Getty Images)](https://www.bing.com/th?id=OHR.MedievalRothenburg_DE-DE5939430104_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AncientOrkney_ES-ES6955943044_UHD.jpg&w=1000)Today: [El asentamiento neolítico de Skara Brae, Orcadas, Escocia (© Paul Williams - FunkyStock/Getty Images)](https://www.bing.com/th?id=OHR.AncientOrkney_ES-ES6955943044_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MedievalRothenburg_ES-ES7422033090_UHD.jpg&w=1000)Today: [Ciudad medieval de Rothenburg ob der Tauber, Alemania (© kanuman/Getty Images)](https://www.bing.com/th?id=OHR.MedievalRothenburg_ES-ES7422033090_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AncientOrkney_EN-GB6273973665_UHD.jpg&w=1000)Today: [The neolithic settlement of Skara Brae, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)](https://www.bing.com/th?id=OHR.AncientOrkney_EN-GB6273973665_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MedievalRothenburg_EN-GB0016545589_UHD.jpg&w=1000)Today: [Medieval city of Rothenburg ob der Tauber, Germany (© kanuman/Getty Images)](https://www.bing.com/th?id=OHR.MedievalRothenburg_EN-GB0016545589_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AncientOrkney_IT-IT9302214437_UHD.jpg&w=1000)Today: [L'insediamento neolitico di Skara Brae, Isole delle Orcadi, Scozia (© Paul Williams - FunkyStock/Getty Images)](https://www.bing.com/th?id=OHR.AncientOrkney_IT-IT9302214437_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MedievalRothenburg_IT-IT9631066540_UHD.jpg&w=1000)Today: [Città medievale di Rothenburg ob der Tauber, Baviera, Germania (© kanuman/Getty Images)](https://www.bing.com/th?id=OHR.MedievalRothenburg_IT-IT9631066540_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AncientOrkney_PT-BR0835986378_UHD.jpg&w=1000)Today: [O assentamento neolítico de Skara Brae, Orkney, Escócia (© Paul Williams - FunkyStock/Getty Images)](https://www.bing.com/th?id=OHR.AncientOrkney_PT-BR0835986378_UHD.jpg)
 <br><br/>
