@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MedievalRothenburg_ZH-CN1522774136_UHD.jpg&w=1000)今日图片: &nbsp;[德国中世纪城市罗滕堡 (© kanuman/Getty Images)](https://www.bing.com/th?id=OHR.MedievalRothenburg_ZH-CN1522774136_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_UHD.jpg&w=1000)今日图片: &nbsp;[Coral reef in the Indian Ocean, Mayotte, France (© Gabriel Barathieu/Minden Pictures)](https://www.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AncientOrkney_EN-US8469766447_UHD.jpg&w=1000)Today: [The Neolithic settlement of Skara Brae, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)](https://www.bing.com/th?id=OHR.AncientOrkney_EN-US8469766447_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MedievalRothenburg_EN-US8575765997_UHD.jpg&w=1000)Today: [Medieval city of Rothenburg ob der Tauber, Germany (© kanuman/Getty Images)](https://www.bing.com/th?id=OHR.MedievalRothenburg_EN-US8575765997_UHD.jpg)
 <br><br/>
