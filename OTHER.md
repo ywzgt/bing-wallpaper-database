@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MayotteCoral_JA-JP2527980968_UHD.jpg&w=1000)今日の壁紙: &nbsp;[インド洋のサンゴ礁, フランス  (© Gabriel Barathieu/Minden Pictures)](https://www.bing.com/th?id=OHR.MayotteCoral_JA-JP2527980968_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YoungJaguar_JA-JP3725468269_UHD.jpg&w=1000)今日の壁紙: &nbsp;[大湿原パンタナル, ブラジル (© Tambako the Jaguar/Getty Images)](https://www.bing.com/th?id=OHR.YoungJaguar_JA-JP3725468269_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MayotteCoral_FR-FR3285872398_UHD.jpg&w=1000)Today: [Récif corallien, Lagon de Mayotte, France (© Gabriel Barathieu/Minden Pictures)](https://www.bing.com/th?id=OHR.MayotteCoral_FR-FR3285872398_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MayotteCoral_IT-IT9928762998_UHD.jpg&w=1000)Today: [Barriera corallina nell'Oceano Indiano, Mayotte, Francia (© Gabriel Barathieu/Minden Pictures)](https://www.bing.com/th?id=OHR.MayotteCoral_IT-IT9928762998_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DiadoCurupira_PT-BR5262042998_UHD.jpg&w=1000)Today: [Vista de um barco na Amazônia (© StreetFlash/Getty Images)](https://www.bing.com/th?id=OHR.DiadoCurupira_PT-BR5262042998_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MayotteCoral_PT-BR1070255850_UHD.jpg&w=1000)Today: [Recife de coral no Oceano Índico, Mayotte, França (© Gabriel Barathieu/Minden Pictures)](https://www.bing.com/th?id=OHR.MayotteCoral_PT-BR1070255850_UHD.jpg)
 <br><br/>
