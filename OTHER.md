@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MineralMoon_JA-JP2878137098_UHD.jpg&w=1000)今日の壁紙: &nbsp;[観測機器で撮影された月 (© Victor Blum/Getty Images)](https://www.bing.com/th?id=OHR.MineralMoon_JA-JP2878137098_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ZanzibarBoats_JA-JP2984048559_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ザンジバル諸島のケンドワ村, タンザニア (© Lubos Paukeje/Alamy)](https://www.bing.com/th?id=OHR.ZanzibarBoats_JA-JP2984048559_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MineralMoon_FR-FR0840269185_UHD.jpg&w=1000)Today: [La Lune  (© Victor Blum/Getty Images)](https://www.bing.com/th?id=OHR.MineralMoon_FR-FR0840269185_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MineralMoon_IT-IT2334790788_UHD.jpg&w=1000)Today: [La Luna (© Victor Blum/Getty Images)](https://www.bing.com/th?id=OHR.MineralMoon_IT-IT2334790788_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DiaNacionaldoFutebol_PT-BR4614165115_UHD.jpg&w=1000)Today: [Arena da Amazônia, Brasil (© PA Images/Alamy)](https://www.bing.com/th?id=OHR.DiaNacionaldoFutebol_PT-BR4614165115_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MineralMoon_PT-BR1317802439_UHD.jpg&w=1000)Today: [A lua (© Victor Blum/Getty Images)](https://www.bing.com/th?id=OHR.MineralMoon_PT-BR1317802439_UHD.jpg)
 <br><br/>
