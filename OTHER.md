@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ZanzibarBoats_JA-JP2984048559_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ザンジバル諸島のケンドワ村, タンザニア (© Lubos Paukeje/Alamy)](https://www.bing.com/th?id=OHR.ZanzibarBoats_JA-JP2984048559_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MedievalRothenburg_JA-JP3111613598_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ローテンブルク・オプ・デア・タウバー, ドイツ (© kanuman/Getty Images)](https://www.bing.com/th?id=OHR.MedievalRothenburg_JA-JP3111613598_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ZanzibarBoats_FR-FR1025363657_UHD.jpg&w=1000)Today: [Bateaux de pêche en bois, village de Kendwa, Zanzibar, Tanzanie (© Lubos Paukeje/Alamy)](https://www.bing.com/th?id=OHR.ZanzibarBoats_FR-FR1025363657_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.RedentorVenezia_IT-IT2428174506_UHD.jpg&w=1000)Today: [Festa del Redentore, Isola di San Giorgio, Venezia, Veneto, Italia (© Buena Vista Images/Getty Images)](https://www.bing.com/th?id=OHR.RedentorVenezia_IT-IT2428174506_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MineralMoon_PT-BR1317802439_UHD.jpg&w=1000)Today: [A lua (© Victor Blum/Getty Images)](https://www.bing.com/th?id=OHR.MineralMoon_PT-BR1317802439_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ZanzibarBoats_PT-BR1541762225_UHD.jpg&w=1000)Today: [Barcos de pesca de madeira na vila de Kendwa, Zanzibar, Tanzânia (© Lubos Paukeje/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.ZanzibarBoats_PT-BR1541762225_UHD.jpg)
 <br><br/>
