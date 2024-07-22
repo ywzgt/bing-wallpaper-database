@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MedievalRothenburg_JA-JP3111613598_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ローテンブルク・オプ・デア・タウバー, ドイツ (© kanuman/Getty Images)](https://www.bing.com/th?id=OHR.MedievalRothenburg_JA-JP3111613598_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MethoniCastle_JA-JP3234736349_UHD.jpg&w=1000)今日の壁紙: &nbsp;[メトーニ城, ギリシャ (© Andrew Mayovskyy/Shutterstock)](https://www.bing.com/th?id=OHR.MethoniCastle_JA-JP3234736349_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SaintFrancois_FR-FR9354176013_UHD.jpg&w=1000)Today: [Coucher de soleil sur la plage de l'Anse Champagne à Saint-François, Guadeloupe, Caraïbes (© Fyletto/Getty Images)](https://www.bing.com/th?id=OHR.SaintFrancois_FR-FR9354176013_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ZanzibarBoats_IT-IT2498729421_UHD.jpg&w=1000)Today: [Barche da pesca in legno nel villaggio di Kendwa, Zanzibar, Tanzania (© Lubos Paukeje/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.ZanzibarBoats_IT-IT2498729421_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ZanzibarBoats_PT-BR1541762225_UHD.jpg&w=1000)Today: [Barcos de pesca de madeira na vila de Kendwa, Zanzibar, Tanzânia (© Lubos Paukeje/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.ZanzibarBoats_PT-BR1541762225_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HammockCamping_PT-BR1798965099_UHD.jpg&w=1000)Today: [Acampamento com rede em um lago na Flórida Central, EUA (© Mac Stone/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HammockCamping_PT-BR1798965099_UHD.jpg)
 <br><br/>
