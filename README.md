@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN0533855662_UHD.jpg&w=1000)今日图片: &nbsp;[树上的中国小熊猫, 成都, 四川省, 中国 (© Jackyenjoyphotography/Getty Images)](https://www.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN0533855662_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MethoniCastle_ZH-CN4054146065_UHD.jpg&w=1000)今日图片: &nbsp;[迈索尼城堡，麦西尼亚州，希腊 (© Andrew Mayovskyy/Shutterstock)](https://www.bing.com/th?id=OHR.MethoniCastle_ZH-CN4054146065_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ZanzibarBoats_EN-US9009404410_UHD.jpg&w=1000)Today: [Wooden fishing boats at Kendwa, Zanzibar, Tanzania (© Lubos Paukeje/Alamy)](https://www.bing.com/th?id=OHR.ZanzibarBoats_EN-US9009404410_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HammockCamping_EN-US9298465355_UHD.jpg&w=1000)Today: [Hammock camping on a lake in Central Florida (© Mac Stone/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HammockCamping_EN-US9298465355_UHD.jpg)
 <br><br/>
