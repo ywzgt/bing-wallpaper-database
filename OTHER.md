@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MethoniCastle_JA-JP3234736349_UHD.jpg&w=1000)今日の壁紙: &nbsp;[メトーニ城, ギリシャ (© Andrew Mayovskyy/Shutterstock)](https://www.bing.com/th?id=OHR.MethoniCastle_JA-JP3234736349_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WindBell2024_JA-JP3427351394_UHD.jpg&w=1000)今日の壁紙: &nbsp;[川越氷川神社, 埼玉県 川越市 (© Joshua Hawley/Shutterstock)](https://www.bing.com/th?id=OHR.WindBell2024_JA-JP3427351394_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MethoniCastle_FR-FR1765128924_UHD.jpg&w=1000)Today: [Château de Méthoni, Messénie, Grèce (© Andrew Mayovskyy/Shutterstock)](https://www.bing.com/th?id=OHR.MethoniCastle_FR-FR1765128924_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MethoniCastle_IT-IT2567271010_UHD.jpg&w=1000)Today: [Castello Methoni, Messenia, Grecia (© Andrew Mayovskyy/Shutterstock)](https://www.bing.com/th?id=OHR.MethoniCastle_IT-IT2567271010_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HammockCamping_PT-BR1798965099_UHD.jpg&w=1000)Today: [Acampamento com rede em um lago na Flórida Central, EUA (© Mac Stone/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HammockCamping_PT-BR1798965099_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MethoniCastle_PT-BR2033564506_UHD.jpg&w=1000)Today: [Castelo de Methoni, Messina, Grécia (© Andrew Mayovskyy/Shutterstock)](https://www.bing.com/th?id=OHR.MethoniCastle_PT-BR2033564506_UHD.jpg)
 <br><br/>
