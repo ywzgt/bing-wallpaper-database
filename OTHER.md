@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.WindBell2024_JA-JP3427351394_UHD.jpg&w=1000)今日の壁紙: &nbsp;[川越氷川神社, 埼玉県 川越市 (© Joshua Hawley/Shutterstock)](https://www.bing.com/th?id=OHR.WindBell2024_JA-JP3427351394_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SmokyMountainTrail_JA-JP3526148027_UHD.jpg&w=1000)今日の壁紙: &nbsp;[グレート・スモーキー山脈国立公園, 米国 (© putmanphoto/Getty Images)](https://www.bing.com/th?id=OHR.SmokyMountainTrail_JA-JP3526148027_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SheepCousins_FR-FR2246016593_UHD.jpg&w=1000)Today: [Troupeau de moutons de Swaledale dans le Yorkshire du Nord, Angleterre (© R A Kearton/Getty Images)](https://www.bing.com/th?id=OHR.SheepCousins_FR-FR2246016593_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SheepCousins_IT-IT2624157981_UHD.jpg&w=1000)Today: [Gregge di pecore di Swaledale nel North Yorkshire, Inghilterra (© R A Kearton/Getty Images)](https://www.bing.com/th?id=OHR.SheepCousins_IT-IT2624157981_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MethoniCastle_PT-BR2033564506_UHD.jpg&w=1000)Today: [Castelo de Methoni, Messina, Grécia (© Andrew Mayovskyy/Shutterstock)](https://www.bing.com/th?id=OHR.MethoniCastle_PT-BR2033564506_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YoungJaguar_PT-BR2280455172_UHD.jpg&w=1000)Today: [Uma jovem onça-pintada em uma margem de rio, Pantanal, Brasil (© Tambako the Jaguar/Getty Images)](https://www.bing.com/th?id=OHR.YoungJaguar_PT-BR2280455172_UHD.jpg)
 <br><br/>
