@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SmokyMountainTrail_JA-JP3526148027_UHD.jpg&w=1000)今日の壁紙: &nbsp;[グレート・スモーキー山脈国立公園, 米国 (© putmanphoto/Getty Images)](https://www.bing.com/th?id=OHR.SmokyMountainTrail_JA-JP3526148027_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PontNeuf_JA-JP6539297380_UHD.jpg&w=1000)今日の壁紙: &nbsp;[セーヌ川に架かるポンヌフ橋, フランス パリ市 (© f11photo/Getty Images)](https://www.bing.com/th?id=OHR.PontNeuf_JA-JP6539297380_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SmokyMountainTrail_FR-FR2588316883_UHD.jpg&w=1000)Today: [Chemin forestier dans le parc national des Great Smoky Mountains, Tennessee, États-Unis (© putmanphoto/Getty Images)](https://www.bing.com/th?id=OHR.SmokyMountainTrail_FR-FR2588316883_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SmokyMountainTrail_IT-IT2739269969_UHD.jpg&w=1000)Today: [Sentiero forestale nel Parco Nazionale delle Great Smoky Mountains, Tennessee, USA (© putmanphoto/Getty Images)](https://www.bing.com/th?id=OHR.SmokyMountainTrail_IT-IT2739269969_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.YoungJaguar_PT-BR2280455172_UHD.jpg&w=1000)Today: [Uma jovem onça-pintada em uma margem de rio, Pantanal, Brasil (© Tambako the Jaguar/Getty Images)](https://www.bing.com/th?id=OHR.YoungJaguar_PT-BR2280455172_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SmokyMountainTrail_PT-BR2635483756_UHD.jpg&w=1000)Today: [Caminho florestal no Parque Nacional das Grandes Montanhas Fumegantes, Tennessee, EUA (© putmanphoto/Getty Images)](https://www.bing.com/th?id=OHR.SmokyMountainTrail_PT-BR2635483756_UHD.jpg)
 <br><br/>
