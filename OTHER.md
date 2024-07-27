@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.RhinelandVineyards_JA-JP6772337865_UHD.jpg&w=1000)今日の壁紙: &nbsp;[プファルツ地方, ドイツ ラインラント＝プファルツ州 (© Jorg Greuel/Getty Images)](https://www.bing.com/th?id=OHR.RhinelandVineyards_JA-JP6772337865_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BeachHutsSweden_JA-JP6949327574_UHD.jpg&w=1000)今日の壁紙: &nbsp;[カノールス・ハヴスバッド, スウェーデン スコーネ県 (© Martin Wahlborg/Getty Images)](https://www.bing.com/th?id=OHR.BeachHutsSweden_JA-JP6949327574_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.RhinelandVineyards_FR-FR9994594641_UHD.jpg&w=1000)Today: [Vignobles de la vallée de la Moselle, Rhénanie-Palatinat, Allemagne (© Jorg Greuel/Getty Images)](https://www.bing.com/th?id=OHR.RhinelandVineyards_FR-FR9994594641_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.EstateRomana_IT-IT9963812100_UHD.jpg&w=1000)Today: [Foro Romano, Roma, Lazio, Italia (© Will Harding/Getty Images)](https://www.bing.com/th?id=OHR.EstateRomana_IT-IT9963812100_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PontNeuf_PT-BR6985503586_UHD.jpg&w=1000)Today: [Pont Neuf sobre o rio Sena, Paris, França (© f11photo/Getty Images)](https://www.bing.com/th?id=OHR.PontNeuf_PT-BR6985503586_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RhinelandVineyards_PT-BR7268269161_UHD.jpg&w=1000)Today: [Vinhedos no Vale do Mosela, Renânia-Palatinado, Alemanha (© Jorg Greuel/Getty Images)](https://www.bing.com/th?id=OHR.RhinelandVineyards_PT-BR7268269161_UHD.jpg)
 <br><br/>
