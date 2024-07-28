@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BeachHutsSweden_JA-JP6949327574_UHD.jpg&w=1000)今日の壁紙: &nbsp;[カノールス・ハヴスバッド, スウェーデン スコーネ県 (© Martin Wahlborg/Getty Images)](https://www.bing.com/th?id=OHR.BeachHutsSweden_JA-JP6949327574_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CorbettTigers_JA-JP7161301838_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ジム・コーベット国立公園, インド ウッタラーカンド州 (© Sourabh Bharti/Getty Images)](https://www.bing.com/th?id=OHR.CorbettTigers_JA-JP7161301838_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BeachHutsSweden_FR-FR0229761588_UHD.jpg&w=1000)Today: [Cabines de bain sur la plage, comté de Scanie, Suède (© Martin Wahlborg/Getty Images)](https://www.bing.com/th?id=OHR.BeachHutsSweden_FR-FR0229761588_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BeachHutsSweden_IT-IT4512974268_UHD.jpg&w=1000)Today: [Capanne da bagno sulla spiaggia della contea di Scania, Svezia (© Martin Wahlborg/Getty Images)](https://www.bing.com/th?id=OHR.BeachHutsSweden_IT-IT4512974268_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RhinelandVineyards_PT-BR7268269161_UHD.jpg&w=1000)Today: [Vinhedos no Vale do Mosela, Renânia-Palatinado, Alemanha (© Jorg Greuel/Getty Images)](https://www.bing.com/th?id=OHR.RhinelandVineyards_PT-BR7268269161_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BeachHutsSweden_PT-BR7531114296_UHD.jpg&w=1000)Today: [Cabanas de banho na praia no condado de Escânia, Suécia (© Martin Wahlborg/Getty Images)](https://www.bing.com/th?id=OHR.BeachHutsSweden_PT-BR7531114296_UHD.jpg)
 <br><br/>

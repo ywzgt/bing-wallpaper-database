@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BeachHutsSweden_ZH-CN4193150313_UHD.jpg&w=1000)今日图片: &nbsp;[斯科讷省海滩上的浴场小屋，瑞典 (© Martin Wahlborg/Getty Images)](https://www.bing.com/th?id=OHR.BeachHutsSweden_ZH-CN4193150313_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CorbettTigers_ZH-CN6927569938_UHD.jpg&w=1000)今日图片: &nbsp;[科贝国家公园的老虎兄弟，北阿坎德邦，印度 (© Sourabh Bharti/Getty Images)](https://www.bing.com/th?id=OHR.CorbettTigers_ZH-CN6927569938_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RhinelandVineyards_EN-US5864380431_UHD.jpg&w=1000)Today: [Vineyards in the Mosel Valley, Rhineland-Palatinate, Germany (© Jorg Greuel/Getty Images)](https://www.bing.com/th?id=OHR.RhinelandVineyards_EN-US5864380431_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BeachHutsSweden_EN-US6029381108_UHD.jpg&w=1000)Today: [Bathing huts on the beach in Skåne County, Sweden (© Martin Wahlborg/Getty Images)](https://www.bing.com/th?id=OHR.BeachHutsSweden_EN-US6029381108_UHD.jpg)
 <br><br/>
