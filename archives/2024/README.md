@@ -1,1 +1,1 @@
-07/31.global.md
+08/01.global.md
