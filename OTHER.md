@@ -1,15 +1,3 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.KaptaiLake_JA-JP8287101456_UHD.jpg&w=1000)今日の壁紙: &nbsp;[カプタイ湖, バングラデシュ (© Azim Khan Ronnie/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.KaptaiLake_JA-JP8287101456_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.SummerDeer_FR-FR3909354454_UHD.jpg&w=1000)Today: [Faon chevreuil, Normandie (© slowmotiongli/Getty Images)](https://www.bing.com/th?id=OHR.SummerDeer_FR-FR3909354454_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.WulongKarst_DE-DE9180126373_UHD.jpg&w=1000)Today: [Die drei natürlichen Brücken, Wulong Nationalpark, China (© Pav-Pro Photography Ltd/Shutterstock)](https://www.bing.com/th?id=OHR.WulongKarst_DE-DE9180126373_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.DescensodelSella_ES-ES4018014092_UHD.jpg&w=1000)Today: [Atardecer en Ribadesella, Asturias, España (© StockPhotoAstur/iStock/GettyImagesPlus)](https://www.bing.com/th?id=OHR.DescensodelSella_ES-ES4018014092_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.WulongKarst_EN-GB8759537408_UHD.jpg&w=1000)Today: [The Three Natural Bridges, Wulong Karst National Geology Park, China (© Pav-Pro Photography Ltd/Shutterstock)](https://www.bing.com/th?id=OHR.WulongKarst_EN-GB8759537408_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.WulongKarst_IT-IT7105962798_UHD.jpg&w=1000)Today: [Tre Ponti Naturali, Parco Geologico Nazionale del Carso di Wulong, Cina (© Pav-Pro Photography Ltd/Shutterstock)](https://www.bing.com/th?id=OHR.WulongKarst_IT-IT7105962798_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.TrunkBay_PT-BR8573788345_UHD.jpg&w=1000)Today: [Baía do Tronco, Parque Nacional das Ilhas Virgens, Saint John, EUA (© cdwheatley/Getty Images)](https://www.bing.com/th?id=OHR.TrunkBay_PT-BR8573788345_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WulongKarst_JA-JP8479493036_UHD.jpg&w=1000)今日の壁紙: &nbsp;[武隆カルスト国立地質公園, 中国 重慶市 (© Pav-Pro Photography Ltd/Shutterstock)](https://www.bing.com/th?id=OHR.WulongKarst_JA-JP8479493036_UHD.jpg)
 <br><br/>
