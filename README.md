@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ImpalaOxpecker_ZH-CN9652434873_UHD.jpg&w=1000)今日图片: &nbsp;[黑斑羚和红嘴牛椋鸟，南非 (© Matrishva Vyas/Getty Images)](https://www.bing.com/th?id=OHR.ImpalaOxpecker_ZH-CN9652434873_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HertfordshireLavender_ZH-CN9771886404_UHD.jpg&w=1000)今日图片: &nbsp;[薰衣草田，赫特福德郡 ，英格兰，英国 (© George W Johnson/Getty Images)](https://www.bing.com/th?id=OHR.HertfordshireLavender_ZH-CN9771886404_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WulongKarst_EN-US6752358338_UHD.jpg&w=1000)Today: [Three Natural Bridges, Wulong Karst National Geology Park, China (© Pav-Pro Photography Ltd/Shutterstock)](https://www.bing.com/th?id=OHR.WulongKarst_EN-US6752358338_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ImpalaOxpecker_EN-US6835989068_UHD.jpg&w=1000)Today: [Impala and red-billed oxpecker, South Africa (© Matrishva Vyas/Getty Images)](https://www.bing.com/th?id=OHR.ImpalaOxpecker_EN-US6835989068_UHD.jpg)
 <br><br/>
