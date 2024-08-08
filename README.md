@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SpottedOwlet_ZH-CN0841935587_UHD.jpg&w=1000)今日图片: &nbsp;[横斑腹小鸮，曼谷，泰国 (© Tfilm/Getty Images)](https://www.bing.com/th?id=OHR.SpottedOwlet_ZH-CN0841935587_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_UHD.jpg&w=1000)今日图片: &nbsp;[库斯科附近的萨克塞华曼印加遗址，秘鲁 (© SL_Photography/Getty Images)](https://www.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MichiganLighthouse_EN-US2082743301_UHD.jpg&w=1000)Today: [St. Joseph North Pier Inner and Outer Lights, Michigan (© Kenneth Keifer/Getty Images)](https://www.bing.com/th?id=OHR.MichiganLighthouse_EN-US2082743301_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpottedOwlet_EN-US7339417169_UHD.jpg&w=1000)Today: [Spotted owlet, Bangkok, Thailand (© Tfilm/Getty Images)](https://www.bing.com/th?id=OHR.SpottedOwlet_EN-US7339417169_UHD.jpg)
 <br><br/>
