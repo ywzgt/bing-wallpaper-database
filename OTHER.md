@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TofinoVancouver_JA-JP8938759537_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ケネディ湖州立公園, カナダ ブリティッシュコロンビア州 (© EB Adventure Photography/Shutterstock)](https://www.bing.com/th?id=OHR.TofinoVancouver_JA-JP8938759537_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MountainDay2024_JA-JP9130465329_UHD.jpg&w=1000)今日の壁紙: &nbsp;[草津白根山, 群馬県 吾妻郡 (© Twenty47studio/Getty Images)](https://www.bing.com/th?id=OHR.MountainDay2024_JA-JP9130465329_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.JoshuaTreeNP_FR-FR7411748387_UHD.jpg&w=1000)Today: [Parc national de Joshua Tree, Californie, États-Unis (© Chris Moore - Exploring Light Photography/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.JoshuaTreeNP_FR-FR7411748387_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SanLorenzoNight_IT-IT4055519723_UHD.jpg&w=1000)Today: [Monte Argentario, Toscana, Italia (© Giulio Ercolani/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.SanLorenzoNight_IT-IT4055519723_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.IncaRuinPeru_PT-BR4364071618_UHD.jpg&w=1000)Today: [Ruína inca de Sacsayhuamán, perto de Cusco, Peru (© SL_Photography/Getty Images)](https://www.bing.com/th?id=OHR.IncaRuinPeru_PT-BR4364071618_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JoshuaTreeNP_PT-BR8498081592_UHD.jpg&w=1000)Today: [Parque Nacional de Joshua Tree, Califórnia, EUA (© Chris Moore - Exploring Light Photography/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.JoshuaTreeNP_PT-BR8498081592_UHD.jpg)
 <br><br/>
