@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ElephantsAmboseli_JA-JP9387144040_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アンボセリ国立公園, ケニア (© Ruzdi Ekenheim/Getty Images)](https://www.bing.com/th?id=OHR.ElephantsAmboseli_JA-JP9387144040_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DugiOtokCroatia_JA-JP9531782423_UHD.jpg&w=1000)今日の壁紙: &nbsp;[テラシュチカ自然公園, クロアチア (© Ilija Ascic/Shutterstock)](https://www.bing.com/th?id=OHR.DugiOtokCroatia_JA-JP9531782423_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ElephantsAmboseli_FR-FR7826915061_UHD.jpg&w=1000)Today: [Éléphants d'Afrique, parc national d'Amboseli, Kenya (© Ruzdi Ekenheim/Getty Images)](https://www.bing.com/th?id=OHR.ElephantsAmboseli_FR-FR7826915061_UHD.jpg)
 <br><br/>
@@ -9,7 +9,7 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ElephantsAmboseli_EN-GB4173490150_UHD.jpg&w=1000)Today: [African elephants, Amboseli National Park, Kenya (© Ruzdi Ekenheim/Getty Images)](https://www.bing.com/th?id=OHR.ElephantsAmboseli_EN-GB4173490150_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ElephantsAmboseli_IT-IT2233538988_UHD.jpg&w=1000)Today: [Elefanti africani, Parco Nazionale di Amboseli, Kenya (© Ruzdi Ekenheim/Getty Images)](https://www.bing.com/th?id=OHR.ElephantsAmboseli_IT-IT2233538988_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ElephantsAmboseli_IT-IT6102111870_UHD.jpg&w=1000)Today: [Elefanti africani, Parco Nazionale di Amboseli, Kenya (© Ruzdi Ekenheim/Getty Images)](https://www.bing.com/th?id=OHR.ElephantsAmboseli_IT-IT6102111870_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DiadosPais_PT-BR1045421907_UHD.jpg&w=1000)Today: [Garça-tigre-ruiva (Tigrisoma lineatum) adulta e filhote no ninho, Mato Grosso, Pantanal (© Ben Cranke/Minden)](https://www.bing.com/th?id=OHR.DiadosPais_PT-BR1045421907_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ElephantsAmboseli_PT-BR3607711073_UHD.jpg&w=1000)Today: [Elefantes africanos, Parque Nacional Amboseli, Quênia (© Ruzdi Ekenheim/Getty Images)](https://www.bing.com/th?id=OHR.ElephantsAmboseli_PT-BR3607711073_UHD.jpg)
 <br><br/>
