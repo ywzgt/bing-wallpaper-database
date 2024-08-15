@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.HangCave_ZH-CN9217507365_UHD.jpg&w=1000)今日图片: &nbsp;[韩松洞，风牙者榜国家公园，越南 (© Geng Xu/Getty Images)](https://www.bing.com/th?id=OHR.HangCave_ZH-CN9217507365_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JapanRollerCoaster_ZH-CN7954058301_UHD.jpg&w=1000)今日图片: &nbsp;[长岛温泉乐园的过山车，三重县，日本 (© Japanese amateur photographer/Getty Images)](https://www.bing.com/th?id=OHR.JapanRollerCoaster_ZH-CN7954058301_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_UHD.jpg&w=1000)Today: [Thorny devil, Watarrka National Park, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://www.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HangCave_EN-US9374263509_UHD.jpg&w=1000)Today: [Hang Sơn Đoòng cave, Phong Nha-Kẻ Bàng National Park, Vietnam (© Geng Xu/Getty Images)](https://www.bing.com/th?id=OHR.HangCave_EN-US9374263509_UHD.jpg)
 <br><br/>
