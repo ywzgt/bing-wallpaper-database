@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.HuntingtonBeach_ZH-CN0368691951_UHD.jpg&w=1000)今日图片: &nbsp;[日落时的亨廷顿海滩码头，加利福尼亚州，美国 (© Stan Moniz Photography/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.HuntingtonBeach_ZH-CN0368691951_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RegataSanGines_ZH-CN0807566522_UHD.jpg&w=1000)今日图片: &nbsp;[Bufadero de la Garita，大加那利岛，西班牙 (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.RegataSanGines_ZH-CN0807566522_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AlfanzinaLighthouse_EN-US9545750672_UHD.jpg&w=1000)Today: [Alfanzina Lighthouse, Algarve, Portugal (© Andreas Kunz/Getty Images)](https://www.bing.com/th?id=OHR.AlfanzinaLighthouse_EN-US9545750672_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HuntingtonBeach_EN-US9892577517_UHD.jpg&w=1000)Today: [Huntington Beach Pier, California, at sunset (© Stan Moniz Photography/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HuntingtonBeach_EN-US9892577517_UHD.jpg)
 <br><br/>
