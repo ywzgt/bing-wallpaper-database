@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.OceanCityMD_JA-JP5837703169_UHD.jpg&w=1000)今日の壁紙: &nbsp;[オーシャンシティ, 米国 メリーランド州 (© Kevin Olson/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.OceanCityMD_JA-JP5837703169_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Fireworks2024_JA-JP2308803408_UHD.jpg&w=1000)今日の壁紙: &nbsp;[厳島神社, 広島県 廿日市市 (© Matsuo Sato/Shutterstock)](https://www.bing.com/th?id=OHR.Fireworks2024_JA-JP2308803408_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.OceanCityMD_FR-FR8531122070_UHD.jpg&w=1000)Today: [Vue aérienne d’Ocean City au lever du soleil, Maryland, États-Unis (© Kevin Olson/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.OceanCityMD_FR-FR8531122070_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.OceanCityMD_IT-IT8362993245_UHD.jpg&w=1000)Today: [Vista aerea di Ocean City all'alba, Maryland, USA (© Kevin Olson/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.OceanCityMD_IT-IT8362993245_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.NazcaBooby_PT-BR5782154593_UHD.jpg&w=1000)Today: [Atobá-de-pé-vermelho, Ilha Wolf, Ilhas Galápagos, Equador (© Tui De Roy/Minden Pictures)](https://www.bing.com/th?id=OHR.NazcaBooby_PT-BR5782154593_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DiadoFolclore_PT-BR9451693617_UHD.jpg&w=1000)Today: [Artesanato indígena brasileiro exposto para venda em feira ao ar livre (© Ricardo Lima/Getty Images)](https://www.bing.com/th?id=OHR.DiadoFolclore_PT-BR9451693617_UHD.jpg)
 <br><br/>
