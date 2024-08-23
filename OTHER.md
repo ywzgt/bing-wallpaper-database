@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Fireworks2024_JA-JP2308803408_UHD.jpg&w=1000)今日の壁紙: &nbsp;[厳島神社, 広島県 廿日市市 (© Matsuo Sato/Shutterstock)](https://www.bing.com/th?id=OHR.Fireworks2024_JA-JP2308803408_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JizoFestival2024_JA-JP8040094666_UHD.jpg&w=1000)今日の壁紙: &nbsp;[三千院のわらべ地蔵, 京都 (© Klaus-Werner Friedrich/Alamy)](https://www.bing.com/th?id=OHR.JizoFestival2024_JA-JP8040094666_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PrasatPhanom_FR-FR7783025478_UHD.jpg&w=1000)Today: [Ruines du temple de Prasat Phanom Rung, province de Buriram, Thaïlande (© Banjongseal324/Getty Images)](https://www.bing.com/th?id=OHR.PrasatPhanom_FR-FR7783025478_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PrasatPhanom_IT-IT5114884058_UHD.jpg&w=1000)Today: [Rovine del tempio di Prasat Phanom Rung, provincia di Buriram, Thailandia (© Banjongseal324/Getty Images)](https://www.bing.com/th?id=OHR.PrasatPhanom_IT-IT5114884058_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DiadoFolclore_PT-BR9451693617_UHD.jpg&w=1000)Today: [Artesanato indígena brasileiro exposto para venda em feira ao ar livre (© Ricardo Lima/Getty Images)](https://www.bing.com/th?id=OHR.DiadoFolclore_PT-BR9451693617_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PrasatPhanom_PT-BR0925050083_UHD.jpg&w=1000)Today: [Ruínas do templo de Prasat Phanom Rung, província de Buriram, Tailândia (© Banjongseal324/Getty Images)](https://www.bing.com/th?id=OHR.PrasatPhanom_PT-BR0925050083_UHD.jpg)
 <br><br/>
