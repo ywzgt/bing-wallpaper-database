@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.JizoFestival2024_JA-JP8040094666_UHD.jpg&w=1000)今日の壁紙: &nbsp;[三千院のわらべ地蔵, 京都 (© Klaus-Werner Friedrich/Alamy)](https://www.bing.com/th?id=OHR.JizoFestival2024_JA-JP8040094666_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SwiftcurrentLake_JA-JP7854639610_UHD.jpg&w=1000)今日の壁紙: &nbsp;[グレーシャー国立公園, 米国 モンタナ州 (© Jason Savage/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SwiftcurrentLake_JA-JP7854639610_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.KatahdinWoods_FR-FR8416030061_UHD.jpg&w=1000)Today: [Katahdin Woods and Waters National Monument, comté de Penobscot, Maine, États-Unis (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.KatahdinWoods_FR-FR8416030061_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.KatahdinWoods_IT-IT5335389072_UHD.jpg&w=1000)Today: [Monumento Nazionale Katahdin Woods and Waters, Contea di Penobscot, Maine, USA (© Cavan Images/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.KatahdinWoods_IT-IT5335389072_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PrasatPhanom_PT-BR0925050083_UHD.jpg&w=1000)Today: [Ruínas do templo de Prasat Phanom Rung, província de Buriram, Tailândia (© Banjongseal324/Getty Images)](https://www.bing.com/th?id=OHR.PrasatPhanom_PT-BR0925050083_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KatahdinWoods_PT-BR1618400732_UHD.jpg&w=1000)Today: [Monumento Nacional Katahdin Woods and Waters, Condado de Penobscot, Maine, EUA (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.KatahdinWoods_PT-BR1618400732_UHD.jpg)
 <br><br/>
