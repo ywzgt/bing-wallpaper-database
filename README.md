@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.KatahdinWoods_ZH-CN0748954905_UHD.jpg&w=1000)今日图片: &nbsp;[卡塔丁森林和水域国家纪念碑，佩诺布斯科特县，缅因州，美国 (© Cavan Images/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.KatahdinWoods_ZH-CN0748954905_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_UHD.jpg&w=1000)今日图片: &nbsp;[急流湖的日出，冰川国家公园，蒙大拿州，美国 (© Jason Savage/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PrasatPhanom_EN-US7990643175_UHD.jpg&w=1000)Today: [Prasat Phanom Rung temple ruins, Buriram province, Thailand (© Banjongseal324/Getty Images)](https://www.bing.com/th?id=OHR.PrasatPhanom_EN-US7990643175_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KatahdinWoods_EN-US8182768375_UHD.jpg&w=1000)Today: [Katahdin Woods and Waters National Monument, Penobscot County, Maine (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.KatahdinWoods_EN-US8182768375_UHD.jpg)
 <br><br/>
