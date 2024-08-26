@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.PalmyraAtoll_JA-JP7657576901_UHD.jpg&w=1000)今日の壁紙: &nbsp;[パルミラ環礁, 米国 (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.PalmyraAtoll_JA-JP7657576901_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PrasatPhanom_JA-JP7500129821_UHD.jpg&w=1000)今日の壁紙: &nbsp;[パノムルン遺跡, タイ (© Banjongseal324/Getty Images)](https://www.bing.com/th?id=OHR.PrasatPhanom_JA-JP7500129821_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PalmyraAtoll_FR-FR9486167153_UHD.jpg&w=1000)Today: [Réserve naturelle nationale de l'atoll de Palmyra, océan Pacifique central (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.PalmyraAtoll_FR-FR9486167153_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PalmyraAtoll_IT-IT5623392573_UHD.jpg&w=1000)Today: [Rifugio nazionale dell'atollo di Palmyra, Oceano Pacifico (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.PalmyraAtoll_IT-IT5623392573_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SwiftcurrentLake_PT-BR2467952516_UHD.jpg&w=1000)Today: [Amanhecer sobre o Lago Swiftcurrent, Parque Nacional Glacier, Montana, EUA (© Jason Savage/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SwiftcurrentLake_PT-BR2467952516_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PalmyraAtoll_PT-BR3061095594_UHD.jpg&w=1000)Today: [Refúgio Nacional de Vida Selvagem do Atol de Palmyra, Oceano Pacífico (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.PalmyraAtoll_PT-BR3061095594_UHD.jpg)
 <br><br/>
