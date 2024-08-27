@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_UHD.jpg&w=1000)今日图片: &nbsp;[黑色凯门鳄幼崽，坦博帕塔国家保护区，秘鲁 (© Maxime Aliaga/Minden Pictures)](https://www.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ParalympicsParis_ZH-CN9773135851_UHD.jpg&w=1000)今日图片: &nbsp;[蒙马特和圣心大教堂，巴黎，法国 (© Tuul & Bruno Morandi/Getty Images)](https://www.bing.com/th?id=OHR.ParalympicsParis_ZH-CN9773135851_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PalmyraAtoll_EN-US8399787979_UHD.jpg&w=1000)Today: [Palmyra Atoll National Wildlife Refuge, Central Pacific Ocean (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.PalmyraAtoll_EN-US8399787979_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YoungCaiman_EN-US8572688559_UHD.jpg&w=1000)Today: [Young black caiman, Tambopata National Reserve, Peru (© Maxime Aliaga/Minden Pictures)](https://www.bing.com/th?id=OHR.YoungCaiman_EN-US8572688559_UHD.jpg)
 <br><br/>
