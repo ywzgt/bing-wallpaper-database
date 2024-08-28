@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ParalympicsParis_JA-JP5348404269_UHD.jpg&w=1000)今日の壁紙: &nbsp;[サクレ・クール寺院, フランス パリ (© Tuul & Bruno Morandi/Getty Images)](https://www.bing.com/th?id=OHR.ParalympicsParis_JA-JP5348404269_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CastellfollitSpain_JA-JP7179605635_UHD.jpg&w=1000)今日の壁紙: &nbsp;[カステルフォリット・デ・ラ・ロカ, スペイン カタルーニャ州 (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.CastellfollitSpain_JA-JP7179605635_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PontNeuf_FR-FR7590326569_UHD.jpg&w=1000)Today: [Pont Neuf sur la Seine, Paris, France (© f11photo/Getty Images)](https://www.bing.com/th?id=OHR.PontNeuf_FR-FR7590326569_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ParalympicsParis_IT-IT4851305254_UHD.jpg&w=1000)Today: [Montmartre e Sacro Cuore, Parigi, Francia (© Tuul & Bruno Morandi/Getty Images)](https://www.bing.com/th?id=OHR.ParalympicsParis_IT-IT4851305254_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.YoungCaiman_PT-BR3430658396_UHD.jpg&w=1000)Today: [Jacaré-açu, Reserva Nacional de Tambopata, Peru (© Maxime Aliaga/Minden Pictures)](https://www.bing.com/th?id=OHR.YoungCaiman_PT-BR3430658396_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ParalympicsParis_PT-BR3706012931_UHD.jpg&w=1000)Today: [Montmartre e a Basílica de Sacré-Cœur, Paris, França (© Tuul & Bruno Morandi/Getty Images)](https://www.bing.com/th?id=OHR.ParalympicsParis_PT-BR3706012931_UHD.jpg)
 <br><br/>
