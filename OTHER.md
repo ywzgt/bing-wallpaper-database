@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.CastellfollitSpain_JA-JP7179605635_UHD.jpg&w=1000)今日の壁紙: &nbsp;[カステルフォリット・デ・ラ・ロカ, スペイン カタルーニャ州 (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.CastellfollitSpain_JA-JP7179605635_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WhaleSharkDay_JA-JP6933929150_UHD.jpg&w=1000)今日の壁紙: &nbsp;[チェンデラワシ湾のジンベエザメ, インドネシア (© Andy Lerner/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.WhaleSharkDay_JA-JP6933929150_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CastellfollitSpain_FR-FR5347167823_UHD.jpg&w=1000)Today: [Castellfollit de la Roca, Catalogne, Espagne (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.CastellfollitSpain_FR-FR5347167823_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CastellfollitSpain_IT-IT5915189187_UHD.jpg&w=1000)Today: [Castellfollit de la Roca, Catalogna, Spagna (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.CastellfollitSpain_IT-IT5915189187_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ParalympicsParis_PT-BR3706012931_UHD.jpg&w=1000)Today: [Montmartre e a Basílica de Sacré-Cœur, Paris, França (© Tuul & Bruno Morandi/Getty Images)](https://www.bing.com/th?id=OHR.ParalympicsParis_PT-BR3706012931_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CastellfollitSpain_PT-BR4036017391_UHD.jpg&w=1000)Today: [Castellfollit de la Roca, Catalunha, Espanha (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.CastellfollitSpain_PT-BR4036017391_UHD.jpg)
 <br><br/>
