@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BuracodasAraras_ZH-CN3881985508_UHD.jpg&w=1000)今日图片: &nbsp;[红绿金刚鹦鹉，南马托格罗索州，巴西 (© Ellen Goff/Danita Delimont)](https://www.bing.com/th?id=OHR.BuracodasAraras_ZH-CN3881985508_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AlpineLakes_ZH-CN4537389724_UHD.jpg&w=1000)今日图片: &nbsp;[迷人的水晶湖，高山湖泊，华盛顿州，美国 (© Mitch Pittman/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AlpineLakes_ZH-CN4537389724_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ThamesLondon_EN-US9385705885_UHD.jpg&w=1000)Today: [River Thames, London, England (© Puthipong Worasaran/Getty Images)](https://www.bing.com/th?id=OHR.ThamesLondon_EN-US9385705885_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KansasMural_EN-US9504361321_UHD.jpg&w=1000)Today: ['Power of the Titans' mural by Andrei Krautsou, North Kansas City, Missouri (© Stephen Taylor/Alamy)](https://www.bing.com/th?id=OHR.KansasMural_EN-US9504361321_UHD.jpg)
 <br><br/>
