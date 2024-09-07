@@ -1,15 +1,3 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SantaCruzHummer_JA-JP9857439185_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アンナハチドリ, 米国 カリフォルニア州 (© yhelfman/Getty Images)](https://www.bing.com/th?id=OHR.SantaCruzHummer_JA-JP9857439185_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.SantaCruzHummer_FR-FR8767186794_UHD.jpg&w=1000)Today: [Colibri d'Anna, Santa Cruz, Californie, États-Unis (© yhelfman/Getty Images)](https://www.bing.com/th?id=OHR.SantaCruzHummer_FR-FR8767186794_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.SantaCruzHummer_DE-DE2867503109_UHD.jpg&w=1000)Today: [Annakolibri, Santa Cruz, Kalifornien, USA (© yhelfman/Getty Images)](https://www.bing.com/th?id=OHR.SantaCruzHummer_DE-DE2867503109_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.SantaCruzHummer_ES-ES5411382953_UHD.jpg&w=1000)Today: [Colibrí de Ana, Santa Cruz, California, EE. UU. (© yhelfman/Getty Images)](https://www.bing.com/th?id=OHR.SantaCruzHummer_ES-ES5411382953_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.SantaCruzHummer_EN-GB3567004947_UHD.jpg&w=1000)Today: [Anna's hummingbird, Santa Cruz, California, USA (© yhelfman/Getty Images)](https://www.bing.com/th?id=OHR.SantaCruzHummer_EN-GB3567004947_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.FestaRificolona_IT-IT8489654769_UHD.jpg&w=1000)Today: [Vista di Firenze dal Duomo, Toscana, Italia (© Martin M303/Adobe Stock)](https://www.bing.com/th?id=OHR.FestaRificolona_IT-IT8489654769_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.GlenariffPark_PT-BR3219733810_UHD.jpg&w=1000)Today: [Faia antiga, Parque Florestal de Glenariff, Condado de Antrim, Irlanda do Norte (© Dawid K Photography/Shutterstock)](https://www.bing.com/th?id=OHR.GlenariffPark_PT-BR3219733810_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.StockholmLibrary_JA-JP1538658617_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ストックホルム市立図書館, スウェーデン (© Andrei Hrabun/Alamy)](https://www.bing.com/th?id=OHR.StockholmLibrary_JA-JP1538658617_UHD.jpg)
 <br><br/>
