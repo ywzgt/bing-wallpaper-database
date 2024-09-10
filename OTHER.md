@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.RapaNuiSunrise_JA-JP2119516419_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ラパ・ヌイ国立公園, チリ (© Piriya Photography/Getty Images)](https://www.bing.com/th?id=OHR.RapaNuiSunrise_JA-JP2119516419_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BridgeLisbon_JA-JP2510109081_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ヴァスコ・ダ・ガマ橋, ポルトガル (© Achim Thomae/Getty Images)](https://www.bing.com/th?id=OHR.BridgeLisbon_JA-JP2510109081_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BridgeLisbon_FR-FR9704936027_UHD.jpg&w=1000)Today: [Pont Vasco de Gama, Lisbonne, Portugal (© Achim Thomae/Getty Images)](https://www.bing.com/th?id=OHR.BridgeLisbon_FR-FR9704936027_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BridgeLisbon_IT-IT5048654702_UHD.jpg&w=1000)Today: [Ponte Vasco da Gama, Lisbona, Portogallo (© Achim Thomae/Getty Images)](https://www.bing.com/th?id=OHR.BridgeLisbon_IT-IT5048654702_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.IguazuRainbow_PT-BR7775661290_UHD.jpg&w=1000)Today: [Cataratas do Iguaçu na fronteira do Brasil com a Argentina (© AirPano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.IguazuRainbow_PT-BR7775661290_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BridgeLisbon_PT-BR7212632262_UHD.jpg&w=1000)Today: [Ponte Vasco da Gama, Lisboa, Portugal (© Achim Thomae/Getty Images)](https://www.bing.com/th?id=OHR.BridgeLisbon_PT-BR7212632262_UHD.jpg)
 <br><br/>
