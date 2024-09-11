@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BridgeLisbon_JA-JP2510109081_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ヴァスコ・ダ・ガマ橋, ポルトガル (© Achim Thomae/Getty Images)](https://www.bing.com/th?id=OHR.BridgeLisbon_JA-JP2510109081_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DolphinReunion_JA-JP2887031776_UHD.jpg&w=1000)今日の壁紙: &nbsp;[レユニオン島付近のイルカの群れ, フランス (© Joost van Uffelen/Shutterstock)](https://www.bing.com/th?id=OHR.DolphinReunion_JA-JP2887031776_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.EltzCastle_FR-FR9929668826_UHD.jpg&w=1000)Today: [Château d'Eltz, Allemagne (© Allard Schager/Alamy)](https://www.bing.com/th?id=OHR.EltzCastle_FR-FR9929668826_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CalabriaPeperoncino_IT-IT5208415155_UHD.jpg&w=1000)Today: [Arco Magno, San Nicola Arcella, Calabria, Italia (© Alessio de Cicco/Moment/Getty Images)](https://www.bing.com/th?id=OHR.CalabriaPeperoncino_IT-IT5208415155_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BridgeLisbon_PT-BR7212632262_UHD.jpg&w=1000)Today: [Ponte Vasco da Gama, Lisboa, Portugal (© Achim Thomae/Getty Images)](https://www.bing.com/th?id=OHR.BridgeLisbon_PT-BR7212632262_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EltzCastle_PT-BR6770414719_UHD.jpg&w=1000)Today: [Castelo de Eltz, Alemanha (© Allard Schager/Alamy)](https://www.bing.com/th?id=OHR.EltzCastle_PT-BR6770414719_UHD.jpg)
 <br><br/>
