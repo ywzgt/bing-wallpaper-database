@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.BridgeLisbon_JA-JP2510109081_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ヴァスコ・ダ・ガマ橋, ポルトガル (© Achim Thomae/Getty Images)](https://www.bing.com/th?id=OHR.BridgeLisbon_JA-JP2510109081_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BridgeLisbon_FR-FR9704936027_UHD.jpg&w=1000)Today: [Pont Vasco de Gama, Lisbonne, Portugal (© Achim Thomae/Getty Images)](https://www.bing.com/th?id=OHR.BridgeLisbon_FR-FR9704936027_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EltzCastle_FR-FR9929668826_UHD.jpg&w=1000)Today: [Château d'Eltz, Allemagne (© Allard Schager/Alamy)](https://www.bing.com/th?id=OHR.EltzCastle_FR-FR9929668826_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BridgeLisbon_DE-DE9301189449_UHD.jpg&w=1000)Today: [Ponte Vasco da Gama, Lissabon, Portugal (© Achim Thomae/Getty Images)](https://www.bing.com/th?id=OHR.BridgeLisbon_DE-DE9301189449_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EltzCastle_DE-DE9717708394_UHD.jpg&w=1000)Today: [Burg Eltz, Wierschem, Rheinland-Pfalz (© Allard Schager/Alamy)](https://www.bing.com/th?id=OHR.EltzCastle_DE-DE9717708394_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BridgeLisbon_ES-ES6670987033_UHD.jpg&w=1000)Today: [Puente Vasco da Gama, Lisboa, Portugal (© Achim Thomae/Getty Images)](https://www.bing.com/th?id=OHR.BridgeLisbon_ES-ES6670987033_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BarcelonaCataloniaDay_ES-ES6860997474_UHD.jpg&w=1000)Today: [Balcón del Palau de la Música, Barcelona, Cataluña (© Jacek Sopotnicki/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BarcelonaCataloniaDay_ES-ES6860997474_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BridgeLisbon_EN-GB4169546026_UHD.jpg&w=1000)Today: [Vasco da Gama Bridge, Lisbon, Portugal (© Achim Thomae/Getty Images)](https://www.bing.com/th?id=OHR.BridgeLisbon_EN-GB4169546026_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RapaNuiSunrise_EN-GB5251109643_UHD.jpg&w=1000)Today: [Sunrise at Ahu Tongariki, Rapa Nui National Park, Easter Island, Chile (© Piriya Photography/Getty Images)](https://www.bing.com/th?id=OHR.RapaNuiSunrise_EN-GB5251109643_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BridgeLisbon_IT-IT5048654702_UHD.jpg&w=1000)Today: [Ponte Vasco da Gama, Lisbona, Portogallo (© Achim Thomae/Getty Images)](https://www.bing.com/th?id=OHR.BridgeLisbon_IT-IT5048654702_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CalabriaPeperoncino_IT-IT5208415155_UHD.jpg&w=1000)Today: [Arco Magno, San Nicola Arcella, Calabria, Italia (© Alessio de Cicco/Moment/Getty Images)](https://www.bing.com/th?id=OHR.CalabriaPeperoncino_IT-IT5208415155_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BridgeLisbon_PT-BR7212632262_UHD.jpg&w=1000)Today: [Ponte Vasco da Gama, Lisboa, Portugal (© Achim Thomae/Getty Images)](https://www.bing.com/th?id=OHR.BridgeLisbon_PT-BR7212632262_UHD.jpg)
 <br><br/>
