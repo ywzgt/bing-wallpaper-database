@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.DolphinReunion_ZH-CN7681290861_UHD.jpg&w=1000)今日图片: &nbsp;[留尼汪岛附近的海豚群，印度洋，法国海外省 (© Joost van Uffelen/Shutterstock)](https://www.bing.com/th?id=OHR.DolphinReunion_ZH-CN7681290861_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PointReyes_ZH-CN7781514086_UHD.jpg&w=1000)今日图片: &nbsp;[雷耶斯角国家海岸灯塔，加利福尼亚州，美国 (© RMB Images/Photography by Robert Bowman/Getty Images)](https://www.bing.com/th?id=OHR.PointReyes_ZH-CN7781514086_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ManhattanMemorial_EN-US4528393468_UHD.jpg&w=1000)Today: [National September 11 Memorial & Museum, New York City (© Antonino Bartuccio/Sime/eStock Photo)](https://www.bing.com/th?id=OHR.ManhattanMemorial_EN-US4528393468_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DolphinReunion_EN-US4598756391_UHD.jpg&w=1000)Today: [Dolphin pod near Réunion, overseas department of France, Indian Ocean (© Joost van Uffelen/Shutterstock)](https://www.bing.com/th?id=OHR.DolphinReunion_EN-US4598756391_UHD.jpg)
 <br><br/>
