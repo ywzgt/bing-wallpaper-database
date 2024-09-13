@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.PointReyes_JA-JP3284759959_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ポイント・レイズ国定公園, 米国 カリフォルニア州 (© RMB Images/Photography by Robert Bowman/Getty Images)](https://www.bing.com/th?id=OHR.PointReyes_JA-JP3284759959_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CosmosDay2024_JA-JP3703662081_UHD.jpg&w=1000)今日の壁紙: &nbsp;[国営ひたち海浜公園, 茨城県 ひたちなか市 (© ThePonAek/Shutterstock)](https://www.bing.com/th?id=OHR.CosmosDay2024_JA-JP3703662081_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PointReyes_FR-FR0377202822_UHD.jpg&w=1000)Today: [Phare de l’aire côtière protégée de Point Reyes, Californie, États-Unis (© RMB Images/Photography by Robert Bowman/Getty Images)](https://www.bing.com/th?id=OHR.PointReyes_FR-FR0377202822_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PointReyes_IT-IT5474541020_UHD.jpg&w=1000)Today: [Faro di Point Reyes National Seashore, California, USA (© RMB Images/Photography by Robert Bowman/Getty Images)](https://www.bing.com/th?id=OHR.PointReyes_IT-IT5474541020_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DolphinReunion_PT-BR8025622682_UHD.jpg&w=1000)Today: [Grupo de golfinhos perto da Ilha da Reunião, Oceano Índico, Departamento Ultramarino Francês (© Joost van Uffelen/Shutterstock)](https://www.bing.com/th?id=OHR.DolphinReunion_PT-BR8025622682_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PointReyes_PT-BR8277913386_UHD.jpg&w=1000)Today: [Point Reyes National Seashore Lighthouse, California (© RMB Images/Photography by Robert Bowman/Getty Images)](https://www.bing.com/th?id=OHR.PointReyes_PT-BR8277913386_UHD.jpg)
 <br><br/>
