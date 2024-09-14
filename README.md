@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.RapaNuiSunrise_ZH-CN1220508877_UHD.jpg&w=1000)今日图片: &nbsp;[阿胡汤加里基的日出，拉帕·努伊国家公园，复活节岛，智利 (© Piriya Photography/Getty Images)](https://www.bing.com/th?id=OHR.RapaNuiSunrise_ZH-CN1220508877_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CalabriaPeperoncino_ZH-CN8603617212_UHD.jpg&w=1000)今日图片: &nbsp;[阿科马尼奥海滩，卡拉布里亚，意大利 (© Alessio de Cicco/Getty Images)](https://www.bing.com/th?id=OHR.CalabriaPeperoncino_ZH-CN8603617212_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PointReyes_EN-US4731803211_UHD.jpg&w=1000)Today: [Lighthouse at Point Reyes National Seashore, California (© RMB Images/Photography by Robert Bowman/Getty Images)](https://www.bing.com/th?id=OHR.PointReyes_EN-US4731803211_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_UHD.jpg&w=1000)Today: [Sunrise at Ahu Tongariki, Rapa Nui National Park, Easter Island, Chile (© Piriya Photography/Getty Images)](https://www.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_UHD.jpg)
 <br><br/>

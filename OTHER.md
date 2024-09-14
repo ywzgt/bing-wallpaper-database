@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.CosmosDay2024_JA-JP3703662081_UHD.jpg&w=1000)今日の壁紙: &nbsp;[国営ひたち海浜公園, 茨城県 ひたちなか市 (© ThePonAek/Shutterstock)](https://www.bing.com/th?id=OHR.CosmosDay2024_JA-JP3703662081_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SunriseWallabies_JA-JP3900865129_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ワラビー, オーストラリア ノーザンテリトリー (© Jeremy Woodhouse/Getty Images)](https://www.bing.com/th?id=OHR.SunriseWallabies_JA-JP3900865129_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.RapaNuiSunrise_FR-FR0534822135_UHD.jpg&w=1000)Today: [Lever de soleil à Ahu Tongariki, parc national de Rapa Nui, île de Pâques, Chili (© Piriya Photography/Getty Images)](https://www.bing.com/th?id=OHR.RapaNuiSunrise_FR-FR0534822135_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.RapaNuiSunrise_IT-IT0245342035_UHD.jpg&w=1000)Today: [Alba ad Ahu Tongariki, Parco Nazionale Rapa Nui, Isola di Pasqua, Cile (© Piriya Photography/Getty Images)](https://www.bing.com/th?id=OHR.RapaNuiSunrise_IT-IT0245342035_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PointReyes_PT-BR8277913386_UHD.jpg&w=1000)Today: [Point Reyes National Seashore Lighthouse, California (© RMB Images/Photography by Robert Bowman/Getty Images)](https://www.bing.com/th?id=OHR.PointReyes_PT-BR8277913386_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RapaNuiSunrise_PT-BR6063530742_UHD.jpg&w=1000)Today: [Amanhecer em Ahu Tongariki, Parque Nacional Rapa Nui, Ilha de Páscoa, Chile (© Piriya Photography/Getty Images)](https://www.bing.com/th?id=OHR.RapaNuiSunrise_PT-BR6063530742_UHD.jpg)
 <br><br/>
