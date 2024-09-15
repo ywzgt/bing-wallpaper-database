@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.SunriseWallabies_JA-JP3900865129_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ワラビー, オーストラリア ノーザンテリトリー (© Jeremy Woodhouse/Getty Images)](https://www.bing.com/th?id=OHR.SunriseWallabies_JA-JP3900865129_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RapaNuiSunrise_FR-FR0534822135_UHD.jpg&w=1000)Today: [Lever de soleil à Ahu Tongariki, parc national de Rapa Nui, île de Pâques, Chili (© Piriya Photography/Getty Images)](https://www.bing.com/th?id=OHR.RapaNuiSunrise_FR-FR0534822135_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CalabriaPeperoncino_FR-FR0822253215_UHD.jpg&w=1000)Today: [Plage d'Arco Magno, Calabre, Italie (© Alessio de Cicco/Getty Images)](https://www.bing.com/th?id=OHR.CalabriaPeperoncino_FR-FR0822253215_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RapaNuiSunrise_DE-DE1697921573_UHD.jpg&w=1000)Today: [Sonnenaufgang am Ahu Tongariki, Nationalpark Rapa Nui, Osterinsel, Chile (© Piriya Photography/Getty Images)](https://www.bing.com/th?id=OHR.RapaNuiSunrise_DE-DE1697921573_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CalabriaPeperoncino_DE-DE2438358101_UHD.jpg&w=1000)Today: [Strand von Arco Magno, Kalabrien, Italien (© Alessio de Cicco/Getty Images)](https://www.bing.com/th?id=OHR.CalabriaPeperoncino_DE-DE2438358101_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RapaNuiSunrise_ES-ES7347678695_UHD.jpg&w=1000)Today: [Amanecer en Ahu Tongariki, Parque Nacional Rapa Nui, Isla de Pascua, Chile (© Piriya Photography/Getty Images)](https://www.bing.com/th?id=OHR.RapaNuiSunrise_ES-ES7347678695_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CalabriaPeperoncino_ES-ES7527352353_UHD.jpg&w=1000)Today: [Playa de Arcomagno, Calabria, Italia (© Alessio de Cicco/Getty Images)](https://www.bing.com/th?id=OHR.CalabriaPeperoncino_ES-ES7527352353_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LastNightOfTheProms2024_EN-GB2327761214_UHD.jpg&w=1000)Today: [Royal Albert Hall, Kensington, London (© Katherine Young/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.LastNightOfTheProms2024_EN-GB2327761214_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.StockholmLibrary_EN-GB4478334058_UHD.jpg&w=1000)Today: [Interior of the Stockholm Public Library, Sweden (© Andrei Hrabun/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.StockholmLibrary_EN-GB4478334058_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RapaNuiSunrise_IT-IT0245342035_UHD.jpg&w=1000)Today: [Alba ad Ahu Tongariki, Parco Nazionale Rapa Nui, Isola di Pasqua, Cile (© Piriya Photography/Getty Images)](https://www.bing.com/th?id=OHR.RapaNuiSunrise_IT-IT0245342035_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EltzCastle_IT-IT5701748731_UHD.jpg&w=1000)Today: [Castello di Eltz, Renania-Palatinato, Germania (© Allard Schager/Alamy)](https://www.bing.com/th?id=OHR.EltzCastle_IT-IT5701748731_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.RapaNuiSunrise_PT-BR6063530742_UHD.jpg&w=1000)Today: [Amanhecer em Ahu Tongariki, Parque Nacional Rapa Nui, Ilha de Páscoa, Chile (© Piriya Photography/Getty Images)](https://www.bing.com/th?id=OHR.RapaNuiSunrise_PT-BR6063530742_UHD.jpg)
 <br><br/>
