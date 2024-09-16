@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.OwlNew2024_JA-JP4084004440_UHD.jpg&w=1000)今日の壁紙: &nbsp;[枝の先に止まっているフクロウ (© rockptarmigan/Getty Images)](https://www.bing.com/th?id=OHR.OwlNew2024_JA-JP4084004440_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CalabriaPeperoncino_FR-FR0822253215_UHD.jpg&w=1000)Today: [Plage d'Arco Magno, Calabre, Italie (© Alessio de Cicco/Getty Images)](https://www.bing.com/th?id=OHR.CalabriaPeperoncino_FR-FR0822253215_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SunriseWallabies_FR-FR1107245942_UHD.jpg&w=1000)Today: [Wallabies au lever du soleil, rivière Adelaïde, Territoire du Nord, Australie (© Jeremy Woodhouse/Getty Images)](https://www.bing.com/th?id=OHR.SunriseWallabies_FR-FR1107245942_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CalabriaPeperoncino_DE-DE2438358101_UHD.jpg&w=1000)Today: [Strand von Arco Magno, Kalabrien, Italien (© Alessio de Cicco/Getty Images)](https://www.bing.com/th?id=OHR.CalabriaPeperoncino_DE-DE2438358101_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SunriseWallabies_DE-DE3495794966_UHD.jpg&w=1000)Today: [Wallabys bei Sonnenaufgang, Adelaide River, Nordterritorium, Australien (© Jeremy Woodhouse/Getty Images)](https://www.bing.com/th?id=OHR.SunriseWallabies_DE-DE3495794966_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CalabriaPeperoncino_ES-ES7527352353_UHD.jpg&w=1000)Today: [Playa de Arcomagno, Calabria, Italia (© Alessio de Cicco/Getty Images)](https://www.bing.com/th?id=OHR.CalabriaPeperoncino_ES-ES7527352353_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WindsurferWorldChampionships_ES-ES7763895554_UHD.jpg&w=1000)Today: [Atardecer en la Costa de la Muerte, Galicia (© Brian Maudsley/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.WindsurferWorldChampionships_ES-ES7763895554_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.StockholmLibrary_EN-GB4478334058_UHD.jpg&w=1000)Today: [Interior of the Stockholm Public Library, Sweden (© Andrei Hrabun/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.StockholmLibrary_EN-GB4478334058_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SunriseWallabies_EN-GB4531988184_UHD.jpg&w=1000)Today: [Wallabies, Adelaide River, Northern Territory, Australia (© Jeremy Woodhouse/Getty Images)](https://www.bing.com/th?id=OHR.SunriseWallabies_EN-GB4531988184_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.EltzCastle_IT-IT5701748731_UHD.jpg&w=1000)Today: [Castello di Eltz, Renania-Palatinato, Germania (© Allard Schager/Alamy)](https://www.bing.com/th?id=OHR.EltzCastle_IT-IT5701748731_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SunriseWallabies_IT-IT9509274340_UHD.jpg&w=1000)Today: [Wallaby all'alba, fiume Adelaide, Territorio del Nord, Australia (© Jeremy Woodhouse/Getty Images)](https://www.bing.com/th?id=OHR.SunriseWallabies_IT-IT9509274340_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CalabriaPeperoncino_PT-BR8530214805_UHD.jpg&w=1000)Today: [Praia de Arco Magno, Calábria, Itália (© Alessio de Cicco/Getty Images)](https://www.bing.com/th?id=OHR.CalabriaPeperoncino_PT-BR8530214805_UHD.jpg)
 <br><br/>
