@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MidAutumnSingapore_JA-JP4830170317_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ガーデンズ・バイ・ザ・ベイ, シンガポール (© Victor Y. Zhuo/Alamy)](https://www.bing.com/th?id=OHR.MidAutumnSingapore_JA-JP4830170317_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GlenariffPark_JA-JP5014364740_UHD.jpg&w=1000)今日の壁紙: &nbsp;[グレナリフ森林公園, 北アイルランド アントリム県 (© Dawid K Photography/Shutterstock)](https://www.bing.com/th?id=OHR.GlenariffPark_JA-JP5014364740_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.NordicWalkingDay_FR-FR1412128674_UHD.jpg&w=1000)Today: [Vue aérienne de champs géométriques de raisin, vignoble en Alsace (© Alexander Sorokopud/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.NordicWalkingDay_FR-FR1412128674_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MidAutumnSingapore_IT-IT4809811002_UHD.jpg&w=1000)Today: [Festa di metà autunno a Gardens by the Bay, Singapore (© Victor Y. Zhuo/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.MidAutumnSingapore_IT-IT4809811002_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SunriseWallabies_PT-BR5783760197_UHD.jpg&w=1000)Today: [Wallabies ao nascer do sol, Adelaide River, Território do Norte, Austrália (© Jeremy Woodhouse/Getty Images)](https://www.bing.com/th?id=OHR.SunriseWallabies_PT-BR5783760197_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MidAutumnSingapore_PT-BR5635809883_UHD.jpg&w=1000)Today: [Festival de Meio do Outono em Jardins da Baía, Singapura (© Victor Y. Zhuo/Alamy)](https://www.bing.com/th?id=OHR.MidAutumnSingapore_PT-BR5635809883_UHD.jpg)
 <br><br/>

@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MidAutumnFestival2024_ZH-CN9096556094_UHD.jpg&w=1000)今日图片: &nbsp;[月圆之夜的豫园，上海，中国 (© zyxeos30/Gettyimages)](https://www.bing.com/th?id=OHR.MidAutumnFestival2024_ZH-CN9096556094_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GujoHachiman_ZH-CN9192289658_UHD.jpg&w=1000)今日图片: &nbsp;[郡上八幡城，岐阜县，日本 (© ta2funk ito/500px/Getty Images)](https://www.bing.com/th?id=OHR.GujoHachiman_ZH-CN9192289658_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SunriseWallabies_EN-US5210230008_UHD.jpg&w=1000)Today: [Wallabies at sunrise, Adelaide River, Northern Territory, Australia (© Jeremy Woodhouse/Getty Images)](https://www.bing.com/th?id=OHR.SunriseWallabies_EN-US5210230008_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MidAutumnSingapore_EN-US5283310908_UHD.jpg&w=1000)Today: [Mid-Autumn Festival in Gardens by the Bay, Singapore (© Victor Y. Zhuo/Alamy)](https://www.bing.com/th?id=OHR.MidAutumnSingapore_EN-US5283310908_UHD.jpg)
 <br><br/>
