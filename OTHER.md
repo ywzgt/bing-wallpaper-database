@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.GlenariffPark_JA-JP5014364740_UHD.jpg&w=1000)今日の壁紙: &nbsp;[グレナリフ森林公園, 北アイルランド アントリム県 (© Dawid K Photography/Shutterstock)](https://www.bing.com/th?id=OHR.GlenariffPark_JA-JP5014364740_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PiratePlayground_JA-JP8924583087_UHD.jpg&w=1000)今日の壁紙: &nbsp;[船の遊具で海賊ごっごを楽しむ子供たち, ドイツ (© INGO WAGNER/DPA/AFP via Getty Images)](https://www.bing.com/th?id=OHR.PiratePlayground_JA-JP8924583087_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.GujoHachiman_FR-FR1605630102_UHD.jpg&w=1000)Today: [Château de Gujō Hachiman, préfecture de Gifu, Japon (© ta2funk ito/500px/Getty Images)](https://www.bing.com/th?id=OHR.GujoHachiman_FR-FR1605630102_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.GujoHachiman_IT-IT6052956461_UHD.jpg&w=1000)Today: [Castello di Gujō Hachiman, Prefettura di Gifu, Giappone (© ta2funk ito/500px/Getty Images)](https://www.bing.com/th?id=OHR.GujoHachiman_IT-IT6052956461_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MidAutumnSingapore_PT-BR5635809883_UHD.jpg&w=1000)Today: [Festival de Meio do Outono em Jardins da Baía, Singapura (© Victor Y. Zhuo/Alamy)](https://www.bing.com/th?id=OHR.MidAutumnSingapore_PT-BR5635809883_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GujoHachiman_PT-BR3323033809_UHD.jpg&w=1000)Today: [Castelo Gujō Hachiman, Prefeitura de Gifu, Japão (© ta2funk ito/500px/Getty Images)](https://www.bing.com/th?id=OHR.GujoHachiman_PT-BR3323033809_UHD.jpg)
 <br><br/>
