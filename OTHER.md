@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.OcracokeLight_JA-JP0600038027_UHD.jpg&w=1000)今日の壁紙: &nbsp;[オクラコーク島,  米国 ノースカロライナ州 (© Chansak Joe/Getty Images)](https://www.bing.com/th?id=OHR.OcracokeLight_JA-JP0600038027_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MunichBeerfest_JA-JP0799044795_UHD.jpg&w=1000)今日の壁紙: &nbsp;[夕暮れのテレージエンヴィーゼ, ドイツ バイエルン州 (© AllesSuper21/iStock/Getty Images)](https://www.bing.com/th?id=OHR.MunichBeerfest_JA-JP0799044795_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.OcracokeLight_FR-FR4610560475_UHD.jpg&w=1000)Today: [Phare de l’île d'Ocracoke, Caroline du Nord, États-Unis (© Chansak Joe/Getty Images)](https://www.bing.com/th?id=OHR.OcracokeLight_FR-FR4610560475_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.OcracokeLight_IT-IT0714167310_UHD.jpg&w=1000)Today: [Faro di Ocracoke sull'isola di Ocracoke, Carolina del Nord, USA (© Chansak Joe/Getty Images)](https://www.bing.com/th?id=OHR.OcracokeLight_IT-IT0714167310_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DiaNacionaldoTeatro_PT-BR7232325945_UHD.jpg&w=1000)Today: [Interior do Teatro Amazonas em Manaus, Amazonas (© Altrendo Images/Shutterstock)](https://www.bing.com/th?id=OHR.DiaNacionaldoTeatro_PT-BR7232325945_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OcracokeLight_PT-BR0175808147_UHD.jpg&w=1000)Today: [Faro de Ocracoke na ilha de Ocracoke, Carolina do Norte, EUA (© Chansak Joe/Getty Images)](https://www.bing.com/th?id=OHR.OcracokeLight_PT-BR0175808147_UHD.jpg)
 <br><br/>
