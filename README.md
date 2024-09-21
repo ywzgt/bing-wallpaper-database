@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_UHD.jpg&w=1000)今日图片: &nbsp;[Oktoberfest in Munich at sunset (© AllesSuper21/iStock/Getty Images)](https://www.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AutumnCumbria_ZH-CN0565958390_UHD.jpg&w=1000)今日图片: &nbsp;[巴特米尔湖，湖区国家公园，英格兰，英国 (© Alan Novelli/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.AutumnCumbria_ZH-CN0565958390_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.OcracokeLight_EN-US3638306974_UHD.jpg&w=1000)Today: [Ocracoke Lighthouse on Ocracoke Island, North Carolina (© Chansak Joe/Getty Images)](https://www.bing.com/th?id=OHR.OcracokeLight_EN-US3638306974_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MunichBeerfest_EN-US3708656793_UHD.jpg&w=1000)Today: [Oktoberfest in Munich, Germany, at sunset (© AllesSuper21/iStock/Getty Images)](https://www.bing.com/th?id=OHR.MunichBeerfest_EN-US3708656793_UHD.jpg)
 <br><br/>
