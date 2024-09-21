@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MunichBeerfest_JA-JP0799044795_UHD.jpg&w=1000)今日の壁紙: &nbsp;[夕暮れのテレージエンヴィーゼ, ドイツ バイエルン州 (© AllesSuper21/iStock/Getty Images)](https://www.bing.com/th?id=OHR.MunichBeerfest_JA-JP0799044795_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RedSpiderlily2024_JA-JP1171609872_UHD.jpg&w=1000)今日の壁紙: &nbsp;[巾着田の彼岸花, 埼玉県 日高市 (© Scirocco340/Shutterstock)](https://www.bing.com/th?id=OHR.RedSpiderlily2024_JA-JP1171609872_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MunichBeerfest_FR-FR4864726596_UHD.jpg&w=1000)Today: [Panorama sur l’Oktoberfest au coucher du soleil, Munich, Allemagne (© AllesSuper21/iStock/Getty Images)](https://www.bing.com/th?id=OHR.MunichBeerfest_FR-FR4864726596_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MunichBeerfest_IT-IT3943225360_UHD.jpg&w=1000)Today: [Oktoberfest a Monaco di Baviera, Germania (© AllesSuper21/iStock/Getty Images)](https://www.bing.com/th?id=OHR.MunichBeerfest_IT-IT3943225360_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.OcracokeLight_PT-BR0175808147_UHD.jpg&w=1000)Today: [Faro de Ocracoke na ilha de Ocracoke, Carolina do Norte, EUA (© Chansak Joe/Getty Images)](https://www.bing.com/th?id=OHR.OcracokeLight_PT-BR0175808147_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DiadaArvore_PT-BR9942268995_UHD.jpg&w=1000)Today: [Vista de baixo ângulo de uma árvore com flores cor-de-rosa contra o céu, Distrito Federal (© Bruno Couto via 500px/GettyImages)](https://www.bing.com/th?id=OHR.DiadaArvore_PT-BR9942268995_UHD.jpg)
 <br><br/>
