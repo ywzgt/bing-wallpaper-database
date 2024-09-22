@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.RedSpiderlily2024_JA-JP1171609872_UHD.jpg&w=1000)今日の壁紙: &nbsp;[巾着田の彼岸花, 埼玉県 日高市 (© Scirocco340/Shutterstock)](https://www.bing.com/th?id=OHR.RedSpiderlily2024_JA-JP1171609872_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IcebergOtter_JA-JP1353399604_UHD.jpg&w=1000)今日の壁紙: &nbsp;[プリンス・ウィリアム湾のラッコ,  米国 アラスカ州 (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.IcebergOtter_JA-JP1353399604_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AutumnCumbria_FR-FR5040860299_UHD.jpg&w=1000)Today: [Buttermere, Parc national du Lake District, Angleterre, Royaume-Uni (© Alan Novelli/Alamy)](https://www.bing.com/th?id=OHR.AutumnCumbria_FR-FR5040860299_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AutumnCumbria_IT-IT4193827391_UHD.jpg&w=1000)Today: [Buttermere, Parco Nazionale del Lake District, Inghilterra, Regno Unito (© Alan Novelli/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.AutumnCumbria_IT-IT4193827391_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DiadaArvore_PT-BR9942268995_UHD.jpg&w=1000)Today: [Vista de baixo ângulo de uma árvore com flores cor-de-rosa contra o céu, Distrito Federal (© Bruno Couto via 500px/GettyImages)](https://www.bing.com/th?id=OHR.DiadaArvore_PT-BR9942268995_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Primavera_PT-BR5788355112_UHD.jpg&w=1000)Today: [Arara-azul em um ipê-rosa durante a estação de floração, Pantanal, Mato Grosso (© Luiz Claudio Marigo/Minden PIctures)](https://www.bing.com/th?id=OHR.Primavera_PT-BR5788355112_UHD.jpg)
 <br><br/>
