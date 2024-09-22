@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.RedSpiderlily2024_JA-JP1171609872_UHD.jpg&w=1000)今日の壁紙: &nbsp;[巾着田の彼岸花, 埼玉県 日高市 (© Scirocco340/Shutterstock)](https://www.bing.com/th?id=OHR.RedSpiderlily2024_JA-JP1171609872_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MunichBeerfest_FR-FR4864726596_UHD.jpg&w=1000)Today: [Panorama sur l’Oktoberfest au coucher du soleil, Munich, Allemagne (© AllesSuper21/iStock/Getty Images)](https://www.bing.com/th?id=OHR.MunichBeerfest_FR-FR4864726596_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AutumnCumbria_FR-FR5040860299_UHD.jpg&w=1000)Today: [Buttermere, Parc national du Lake District, Angleterre, Royaume-Uni (© Alan Novelli/Alamy)](https://www.bing.com/th?id=OHR.AutumnCumbria_FR-FR5040860299_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SpatenBeerTent_DE-DE4425745255_UHD.jpg&w=1000)Today: [Menschen im „Spaten“-Bierzelt auf dem größten Volksfest der Welt, Oktoberfest 2017, München, Bayern (© FooTToo/Getty Images)](https://www.bing.com/th?id=OHR.SpatenBeerTent_DE-DE4425745255_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AutumnCumbria_DE-DE9036257746_UHD.jpg&w=1000)Today: [Buttermere, Lake District National Park, England, Vereinigtes Königreich (© Alan Novelli/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.AutumnCumbria_DE-DE9036257746_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MunichBeerfest_ES-ES5226807539_UHD.jpg&w=1000)Today: [Oktoberfest en Múnich desde lo alto al atardecer (© AllesSuper21/iStock/Getty Images)](https://www.bing.com/th?id=OHR.MunichBeerfest_ES-ES5226807539_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AragonAutumnLandscape_ES-ES5440172345_UHD.jpg&w=1000)Today: [Equinoccio de otoño en la Pradera de Ordesa, Huesca (© Susana Guzman/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.AragonAutumnLandscape_ES-ES5440172345_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MunichBeerfest_EN-GB0671591824_UHD.jpg&w=1000)Today: [Oktoberfest in Munich from a high view at sunset (© AllesSuper21/iStock/Getty Images)](https://www.bing.com/th?id=OHR.MunichBeerfest_EN-GB0671591824_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AutumnCumbria_EN-GB0937833138_UHD.jpg&w=1000)Today: [Buttermere, Lake District National Park, England (© Alan Novelli/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.AutumnCumbria_EN-GB0937833138_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MunichBeerfest_IT-IT3943225360_UHD.jpg&w=1000)Today: [Oktoberfest a Monaco di Baviera, Germania (© AllesSuper21/iStock/Getty Images)](https://www.bing.com/th?id=OHR.MunichBeerfest_IT-IT3943225360_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AutumnCumbria_IT-IT4193827391_UHD.jpg&w=1000)Today: [Buttermere, Parco Nazionale del Lake District, Inghilterra, Regno Unito (© Alan Novelli/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.AutumnCumbria_IT-IT4193827391_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.DiadaArvore_PT-BR9942268995_UHD.jpg&w=1000)Today: [Vista de baixo ângulo de uma árvore com flores cor-de-rosa contra o céu, Distrito Federal (© Bruno Couto via 500px/GettyImages)](https://www.bing.com/th?id=OHR.DiadaArvore_PT-BR9942268995_UHD.jpg)
 <br><br/>
