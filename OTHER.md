@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SkaftafellWaterfall_JA-JP1502759780_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ヴァトナヨークトル国立公園, アイスランド (© Nopasorn Kowathanakul/Getty Images)](https://www.bing.com/th?id=OHR.SkaftafellWaterfall_JA-JP1502759780_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GiantSequoias_JA-JP1712203970_UHD.jpg&w=1000)今日の壁紙: &nbsp;[セコイア国立公園, 米国 カリフォルニア州 (© Galyna Andrushko/Shutterstock)](https://www.bing.com/th?id=OHR.GiantSequoias_JA-JP1712203970_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SkaftafellWaterfall_FR-FR6109608745_UHD.jpg&w=1000)Today: [Cascade de Skaftafell, Parc national du Vatnajökull, Islande  (© Nopasorn Kowathanakul/Getty Images)](https://www.bing.com/th?id=OHR.SkaftafellWaterfall_FR-FR6109608745_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SkaftafellWaterfall_IT-IT8228006063_UHD.jpg&w=1000)Today: [Cascata a Skaftafell, Parco Nazionale del Vatnajökull, Islanda (© Nopasorn Kowathanakul/Getty Images)](https://www.bing.com/th?id=OHR.SkaftafellWaterfall_IT-IT8228006063_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.IcebergOtter_PT-BR0553443956_UHD.jpg&w=1000)Today: [Lontra marinha, Prince William Sound, Alasca, EUA (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.IcebergOtter_PT-BR0553443956_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SkaftafellWaterfall_PT-BR0775400551_UHD.jpg&w=1000)Today: [Cachoeira em Skaftafell, Parque Nacional Vatnajökull, Islândia (© Nopasorn Kowathanakul/Getty Images)](https://www.bing.com/th?id=OHR.SkaftafellWaterfall_PT-BR0775400551_UHD.jpg)
 <br><br/>
