@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.GiantSequoias_JA-JP1712203970_UHD.jpg&w=1000)今日の壁紙: &nbsp;[セコイア国立公園, 米国 カリフォルニア州 (© Galyna Andrushko/Shutterstock)](https://www.bing.com/th?id=OHR.GiantSequoias_JA-JP1712203970_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LittleToucanet_JA-JP2193126707_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ロス・ケツァーレス国立公園, コスタリカ (© Oscar Dominguez/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LittleToucanet_JA-JP2193126707_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.GiantSequoias_FR-FR6286299520_UHD.jpg&w=1000)Today: [Séquoias géants, parc national de Sequoia, Californie, États-Unis (© Galyna Andrushko/Shutterstock)](https://www.bing.com/th?id=OHR.GiantSequoias_FR-FR6286299520_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.FestivalMedioevo_IT-IT1145169158_UHD.jpg&w=1000)Today: [Montone, Umbria, Italia (© Davide Seddio/Gettz Images)](https://www.bing.com/th?id=OHR.FestivalMedioevo_IT-IT1145169158_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SkaftafellWaterfall_PT-BR0775400551_UHD.jpg&w=1000)Today: [Cachoeira em Skaftafell, Parque Nacional Vatnajökull, Islândia (© Nopasorn Kowathanakul/Getty Images)](https://www.bing.com/th?id=OHR.SkaftafellWaterfall_PT-BR0775400551_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GiantSequoias_PT-BR0989155735_UHD.jpg&w=1000)Today: [Sequoias gigantes, Parque Nacional da Sequoia, Califórnia, EUA (© Galyna Andrushko/Shutterstock)](https://www.bing.com/th?id=OHR.GiantSequoias_PT-BR0989155735_UHD.jpg)
 <br><br/>
