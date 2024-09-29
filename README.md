@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ConnecticutBridge_ZH-CN4957862425_UHD.jpg&w=1000)今日图片: &nbsp;[横跨胡萨托尼克河的西康沃尔廊桥，康涅狄格州，美国 (© pabradyphoto/Getty Images)](https://www.bing.com/th?id=OHR.ConnecticutBridge_ZH-CN4957862425_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WalrusNorway_ZH-CN5657804031_UHD.jpg&w=1000)今日图片: &nbsp;[斯匹次卑尔根岛北部的海象群，斯瓦尔巴群岛，挪威 (© AWL Images/DanitaDelimont)](https://www.bing.com/th?id=OHR.WalrusNorway_ZH-CN5657804031_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CoyoteGulch_EN-US1769933001_UHD.jpg&w=1000)Today: [Cottonwoods seen through an arch in Coyote Gulch, Glen Canyon Recreation Area, Utah (© Stephen Matera/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CoyoteGulch_EN-US1769933001_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ConnecticutBridge_EN-US4557226937_UHD.jpg&w=1000)Today: [West Cornwall Covered Bridge over the Housatonic River, Connecticut (© pabradyphoto/Getty Images)](https://www.bing.com/th?id=OHR.ConnecticutBridge_EN-US4557226937_UHD.jpg)
 <br><br/>

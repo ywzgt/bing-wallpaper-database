@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ConnecticutBridge_JA-JP2803321025_UHD.jpg&w=1000)今日の壁紙: &nbsp;[コーンウォール, 米国 コネチカット州 (© pabradyphoto/Getty Images)](https://www.bing.com/th?id=OHR.ConnecticutBridge_JA-JP2803321025_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WalrusNorway_JA-JP3040663299_UHD.jpg&w=1000)今日の壁紙: &nbsp;[スヴァールバル諸島, ノルウェー (© AWL Images/Danita Delimont)](https://www.bing.com/th?id=OHR.WalrusNorway_JA-JP3040663299_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ConnecticutBridge_FR-FR7429205429_UHD.jpg&w=1000)Today: [Pont couvert de West Cornwall, Connecticut, États-Unis (© pabradyphoto/Getty Images)](https://www.bing.com/th?id=OHR.ConnecticutBridge_FR-FR7429205429_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ConnecticutBridge_IT-IT2485348656_UHD.jpg&w=1000)Today: [Ponte coperto di West Cornwall sul fiume Housatonic, Connecticut, USA (© pabradyphoto/Getty Images)](https://www.bing.com/th?id=OHR.ConnecticutBridge_IT-IT2485348656_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.FloridaSeashore_PT-BR4145108998_UHD.jpg&w=1000)Today: [Praia ao nascer do sol, Costa Nacional das Ilhas do Golfo, Flórida, EUA (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.FloridaSeashore_PT-BR4145108998_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ConnecticutBridge_PT-BR4352188943_UHD.jpg&w=1000)Today: [Ponte Coberta de West Cornwall sobre o rio Housatonic, Connecticut, EUA (© pabradyphoto/Getty Images)](https://www.bing.com/th?id=OHR.ConnecticutBridge_PT-BR4352188943_UHD.jpg)
 <br><br/>
