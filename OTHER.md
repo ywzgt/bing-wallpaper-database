@@ -1,15 +1,3 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.WalrusNorway_JA-JP3040663299_UHD.jpg&w=1000)今日の壁紙: &nbsp;[スヴァールバル諸島, ノルウェー (© AWL Images/Danita Delimont)](https://www.bing.com/th?id=OHR.WalrusNorway_JA-JP3040663299_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.WalrusNorway_FR-FR7720633586_UHD.jpg&w=1000)Today: [Troupeau de morses dans le nord du Spitzberg, archipel du Svalbard, Norvège (© AWL Images/Danita Delimont)](https://www.bing.com/th?id=OHR.WalrusNorway_FR-FR7720633586_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.WalrusNorway_DE-DE5538217072_UHD.jpg&w=1000)Today: [Walrossherde im nördlichen Spitzbergen, Svalbard-Archipel, Norwegen (© AWL Images/DanitaDelimont)](https://www.bing.com/th?id=OHR.WalrusNorway_DE-DE5538217072_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.WalrusNorway_ES-ES8405668641_UHD.jpg&w=1000)Today: [Manada de morsas en el norte de Spitsbergen, archipiélago de Svalbard, Noruega (© AWL Images/Danita Delimont)](https://www.bing.com/th?id=OHR.WalrusNorway_ES-ES8405668641_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.WalrusNorway_EN-GB0459877191_UHD.jpg&w=1000)Today: [Herd of walruses in northern Spitsbergen, Svalbard archipelago, Norway (© AWL Images/DanitaDelimont)](https://www.bing.com/th?id=OHR.WalrusNorway_EN-GB0459877191_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.WalrusNorway_IT-IT2593695501_UHD.jpg&w=1000)Today: [Trichechi nel nord di Spitsbergen, arcipelago delle Svalbard, Norvegia (© AWL Images/DanitaDelimont)](https://www.bing.com/th?id=OHR.WalrusNorway_IT-IT2593695501_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.ConnecticutBridge_PT-BR4352188943_UHD.jpg&w=1000)Today: [Ponte Coberta de West Cornwall sobre o rio Housatonic, Connecticut, EUA (© pabradyphoto/Getty Images)](https://www.bing.com/th?id=OHR.ConnecticutBridge_PT-BR4352188943_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HalfDomeYosemite_JA-JP3299475040_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ヨセミテ国立公園, 米国 カリフォルニア州 (© Adam Burton/Alamy)](https://www.bing.com/th?id=OHR.HalfDomeYosemite_JA-JP3299475040_UHD.jpg)
 <br><br/>
