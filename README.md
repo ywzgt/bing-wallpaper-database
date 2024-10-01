@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_UHD.jpg&w=1000)今日图片: &nbsp;[禾木村的风景，新疆，中国 (© snvv18870020330/Shutterstock)](https://www.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WindRiverAlaska_ZH-CN7317039321_UHD.jpg&w=1000)今日图片: &nbsp;[温德河，布鲁克斯山脉，北极国家野生动物保护区，阿拉斯加州，美国 (© Design Pics/DanitaDelimont)](https://www.bing.com/th?id=OHR.WindRiverAlaska_ZH-CN7317039321_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WalrusNorway_EN-US4658961878_UHD.jpg&w=1000)Today: [Herd of walruses in northern Spitsbergen, Svalbard archipelago, Norway (© AWL Images/Danita Delimont)](https://www.bing.com/th?id=OHR.WalrusNorway_EN-US4658961878_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HalfDomeYosemite_EN-US4890007214_UHD.jpg&w=1000)Today: [Last light on Half Dome, Yosemite National Park, California (© Adam Burton/Alamy)](https://www.bing.com/th?id=OHR.HalfDomeYosemite_EN-US4890007214_UHD.jpg)
 <br><br/>

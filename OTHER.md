@@ -1,15 +1,3 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.HalfDomeYosemite_JA-JP3299475040_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ヨセミテ国立公園, 米国 カリフォルニア州 (© Adam Burton/Alamy)](https://www.bing.com/th?id=OHR.HalfDomeYosemite_JA-JP3299475040_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.BoraPapeete_FR-FR3866752919_UHD.jpg&w=1000)Today: [Vue aérienne de Bora-Bora, Polynésie française (© GLF Media/Shutterstock)](https://www.bing.com/th?id=OHR.BoraPapeete_FR-FR3866752919_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.HalfDomeYosemite_DE-DE5765529355_UHD.jpg&w=1000)Today: [Half Dome, Yosemite-Nationalpark, Kalifornien, USA (© Adam Burton/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HalfDomeYosemite_DE-DE5765529355_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.HalfDomeYosemite_ES-ES8574128580_UHD.jpg&w=1000)Today: [Half Dome, Parque Nacional de Yosemite, California, EE. UU. (© Adam Burton/Alamy)](https://www.bing.com/th?id=OHR.HalfDomeYosemite_ES-ES8574128580_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.BlackHistoryMonth2024_EN-GB1865178312_UHD.jpg&w=1000)Today: [Statue of Mary Seacole, London, England (© Charles Bowman/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BlackHistoryMonth2024_EN-GB1865178312_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.HalfDomeYosemite_IT-IT2723116418_UHD.jpg&w=1000)Today: [Half Dome, Parco Nazionale di Yosemite, California, USA (© Adam Burton/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HalfDomeYosemite_IT-IT2723116418_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.WalrusNorway_PT-BR4604487839_UHD.jpg&w=1000)Today: [Colônia de morsas no norte de Spitsbergen, arquipélago de Svalbard, Noruega (© AWL Images/Danita Delimont)](https://www.bing.com/th?id=OHR.WalrusNorway_PT-BR4604487839_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WindRiverAlaska_JA-JP3464622657_UHD.jpg&w=1000)今日の壁紙: &nbsp;[北極野生生物国家保護区, 米国 アラスカ州 (© Design Pics/Danita Delimont)](https://www.bing.com/th?id=OHR.WindRiverAlaska_JA-JP3464622657_UHD.jpg)
 <br><br/>
