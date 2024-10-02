@@ -1,3 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.WindRiverAlaska_JA-JP3464622657_UHD.jpg&w=1000)今日の壁紙: &nbsp;[北極野生生物国家保護区, 米国 アラスカ州 (© Design Pics/Danita Delimont)](https://www.bing.com/th?id=OHR.WindRiverAlaska_JA-JP3464622657_UHD.jpg)
 <br><br/>
+![](https://www.bing.com/th?id=OHR.WindRiverAlaska_FR-FR4031245371_UHD.jpg&w=1000)Today: [Wind River, Brooks Range, Refuge faunique national de l'Arctique, Alaska, États-Unis (© Design Pics/Danita Delimont)](https://www.bing.com/th?id=OHR.WindRiverAlaska_FR-FR4031245371_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.WindRiverAlaska_DE-DE4243955227_UHD.jpg&w=1000)Today: [Wind River, Brooks Range, Arctic National Wildlife Refuge, Alaska, USA (© Design Pics/DanitaDelimont)](https://www.bing.com/th?id=OHR.WindRiverAlaska_DE-DE4243955227_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.WindRiverAlaska_ES-ES8759556156_UHD.jpg&w=1000)Today: [Río Wind, cordillera de Brooks, Refugio Nacional de Vida Silvestre del Ártico, Alaska, EE. UU. (© Design Pics/Danita Delimont)](https://www.bing.com/th?id=OHR.WindRiverAlaska_ES-ES8759556156_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.WindRiverAlaska_EN-GB7636614285_UHD.jpg&w=1000)Today: [Wind River, Brooks Range, Arctic National Wildlife Refuge, Alaska, USA (© Design Pics/DanitaDelimont)](https://www.bing.com/th?id=OHR.WindRiverAlaska_EN-GB7636614285_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.LakeInItalianNonni_IT-IT2833873964_UHD.jpg&w=1000)Today: [Lago di Braies, Trentino-Aldo Adige, Italia (© pidjoe/Getty Images)](https://www.bing.com/th?id=OHR.LakeInItalianNonni_IT-IT2833873964_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.HalfDomeYosemite_PT-BR4764561878_UHD.jpg&w=1000)Today: [Half Dome, Parque Nacional de Yosemite, Califórnia, EUA (© Adam Burton/Alamy)](https://www.bing.com/th?id=OHR.HalfDomeYosemite_PT-BR4764561878_UHD.jpg)
+<br><br/>
