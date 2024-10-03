@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TajMahalReflection_ZH-CN7498774173_UHD.jpg&w=1000)今日图片: &nbsp;[阿格拉的泰姬陵，安拉阿巴德，印度 (© Tanarch/Getty Images)](https://www.bing.com/th?id=OHR.TajMahalReflection_ZH-CN7498774173_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_UHD.jpg&w=1000)今日图片: &nbsp;[木星的冰卫星木卫二 (© NASA/JPL-Caltech/SETI Institute)](https://www.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WindRiverAlaska_EN-US4993335597_UHD.jpg&w=1000)Today: [Wind River, Brooks Range, Arctic National Wildlife Refuge, Alaska (© Design Pics/Danita Delimont)](https://www.bing.com/th?id=OHR.WindRiverAlaska_EN-US4993335597_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TajMahalReflection_EN-US5053333041_UHD.jpg&w=1000)Today: [Taj Mahal in Agra, Uttar Pradesh, India (© Tanarch/Getty Images)](https://www.bing.com/th?id=OHR.TajMahalReflection_EN-US5053333041_UHD.jpg)
 <br><br/>
