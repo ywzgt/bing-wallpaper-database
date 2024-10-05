@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ElephantTeacher_ZH-CN0543308499_UHD.jpg&w=1000)今日图片: &nbsp;[东察沃国家公园的非洲象，肯尼亚 (© Neil Bowman/Minden Pictures)](https://www.bing.com/th?id=OHR.ElephantTeacher_ZH-CN0543308499_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_UHD.jpg&w=1000)今日图片: &nbsp;[郊狼峡谷拱门中的白杨树，格兰峡谷休闲区，犹他州，美国 (© Stephen Matera/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.EuropaMoon_EN-US8269574935_UHD.jpg&w=1000)Today: [Jupiter's icy moon Europa (© NASA/JPL-Caltech/SETI Institute)](https://www.bing.com/th?id=OHR.EuropaMoon_EN-US8269574935_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ElephantTeacher_EN-US8363933732_UHD.jpg&w=1000)Today: [African elephants in Tsavo East National Park, Kenya (© Neil Bowman/Minden Pictures)](https://www.bing.com/th?id=OHR.ElephantTeacher_EN-US8363933732_UHD.jpg)
 <br><br/>
