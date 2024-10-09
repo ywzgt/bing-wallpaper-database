@@ -1,15 +1,15 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Kanro2024_JA-JP5787966494_UHD.jpg&w=1000)今日の壁紙: &nbsp;[秋の八甲田ロープウェイ,  青森県 青森市 (© Torsakarin/Getty Images)](https://www.bing.com/th?id=OHR.Kanro2024_JA-JP5787966494_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AspensColorado_JA-JP6244858068_UHD.jpg&w=1000)今日の壁紙: &nbsp;[マーブル近郊に自生するアスペン, 米国 コロラド州 (© Jason Hatfield/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AspensColorado_JA-JP6244858068_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MototiOctopus_FR-FR0598222042_UHD.jpg&w=1000)Today: [Amphioctopus, Lembeh Strait, Indonésie (© Howard Chew/Alamy)](https://www.bing.com/th?id=OHR.MototiOctopus_FR-FR0598222042_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AspensColorado_FR-FR2017267378_UHD.jpg&w=1000)Today: [Peuplier tremble près de Marble, Colorado, États-Unis (© Jason Hatfield/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AspensColorado_FR-FR2017267378_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MototiOctopus_DE-DE2317582998_UHD.jpg&w=1000)Today: [Mototi-Oktopus, Lembeh Strait, Indonesien (© Howard Chew/Alamy)](https://www.bing.com/th?id=OHR.MototiOctopus_DE-DE2317582998_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PotsdamerPlatzBerlin_DE-DE6566333403_UHD.jpg&w=1000)Today: [Potsdamer Platz in Berlin (© franckreporter/Getty Images)](https://www.bing.com/th?id=OHR.PotsdamerPlatzBerlin_DE-DE6566333403_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MototiOctopus_ES-ES5895237621_UHD.jpg&w=1000)Today: [Pulpo Mototi, Estrecho de Lembeh, Indonesia (© Howard Chew/Alamy)](https://www.bing.com/th?id=OHR.MototiOctopus_ES-ES5895237621_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ValencianCommunityDay_ES-ES3800849139_UHD.jpg&w=1000)Today: [Peñíscola, Castellón, Valencia, España (© MEDITERRANEAN/E+/Getty Images)](https://www.bing.com/th?id=OHR.ValencianCommunityDay_ES-ES3800849139_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MototiOctopus_EN-GB7709724340_UHD.jpg&w=1000)Today: [Mototi octopus, Lembeh Strait, Indonesia (© Howard Chew/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.MototiOctopus_EN-GB7709724340_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AspensColorado_EN-GB2371416593_UHD.jpg&w=1000)Today: [Aspens near Marble, Colorado, USA (© Jason Hatfield/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AspensColorado_EN-GB2371416593_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MototiOctopus_IT-IT6416760928_UHD.jpg&w=1000)Today: [Polpo ocellato, Stretto di Lembeh, Indonesia (© Howard Chew/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.MototiOctopus_IT-IT6416760928_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AspensColorado_IT-IT4462449086_UHD.jpg&w=1000)Today: [Pioppo tremolo americano, Marble, Colorado, USA (© Jason Hatfield/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AspensColorado_IT-IT4462449086_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ElbePhilharmonic_PT-BR9107755270_UHD.jpg&w=1000)Today: [Sala de concertos Elbphilharmonie em Hamburgo, Alemanha (© Canetti/Shutterstock)](https://www.bing.com/th?id=OHR.ElbePhilharmonic_PT-BR9107755270_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MototiOctopus_PT-BR0386452744_UHD.jpg&w=1000)Today: [Polvo Mototi, Estreito de Lembeh, Indonésia (© Howard Chew/Alamy)](https://www.bing.com/th?id=OHR.MototiOctopus_PT-BR0386452744_UHD.jpg)
 <br><br/>
