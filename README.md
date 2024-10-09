@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MototiOctopus_ZH-CN5778894536_UHD.jpg&w=1000)今日图片: &nbsp;[莫托提两鳍蛸，蓝碧海峡，印度尼西亚 (© Howard Chew/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.MototiOctopus_ZH-CN5778894536_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AspensColorado_ZH-CN0132780533_UHD.jpg&w=1000)今日图片: &nbsp;[马布尔附近的白杨树，科罗拉多州，美国 (© Jason Hatfield/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AspensColorado_ZH-CN0132780533_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ElbePhilharmonic_EN-US8658450086_UHD.jpg&w=1000)Today: [The Elbphilharmonie concert hall in Hamburg, Germany (© Canetti/Shutterstock)](https://www.bing.com/th?id=OHR.ElbePhilharmonic_EN-US8658450086_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MototiOctopus_EN-US8820270832_UHD.jpg&w=1000)Today: [Mototi octopus, Lembeh Strait, Indonesia (© Howard Chew/Alamy)](https://www.bing.com/th?id=OHR.MototiOctopus_EN-US8820270832_UHD.jpg)
 <br><br/>
