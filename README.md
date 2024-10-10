@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SoranoItaly_ZH-CN5842160079_UHD.jpg&w=1000)今日图片: &nbsp;[索拉诺，托斯卡纳，意大利 (© Luigi Vaccarella/eStock Photo)](https://www.bing.com/th?id=OHR.SoranoItaly_ZH-CN5842160079_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_UHD.jpg&w=1000)今日图片: &nbsp;[黄山云海，安徽省，中国 (© yangyang1991/Getty Images)](https://www.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_UHD.jpg&w=1000)Today: [Aspens in the White River National Forest, Colorado (© Jason Hatfield/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KochiaJapan_EN-US9866955641_UHD.jpg&w=1000)Today: [Kochia, Ibaraki prefecture, Japan (© DigiPub/Getty Images)](https://www.bing.com/th?id=OHR.KochiaJapan_EN-US9866955641_UHD.jpg)
 <br><br/>
