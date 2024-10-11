@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_UHD.jpg&w=1000)今日图片: &nbsp;[黄山云海，安徽省，中国 (© yangyang1991/Getty Images)](https://www.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.QuebecDuck_ZH-CN0588954873_UHD.jpg&w=1000)今日图片: &nbsp;[林鸳鸯，魁北克省，加拿大 (© Maxime Riendeau/Getty Images)](https://www.bing.com/th?id=OHR.QuebecDuck_ZH-CN0588954873_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.KochiaJapan_EN-US9866955641_UHD.jpg&w=1000)Today: [Kochia, Ibaraki prefecture, Japan (© DigiPub/Getty Images)](https://www.bing.com/th?id=OHR.KochiaJapan_EN-US9866955641_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CelticColours_EN-US9284206130_UHD.jpg&w=1000)Today: [Cape Breton Highlands, Nova Scotia, Canada (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.CelticColours_EN-US9284206130_UHD.jpg)
 <br><br/>
