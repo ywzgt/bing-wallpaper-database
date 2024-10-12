@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.QuebecDuck_JA-JP7270367085_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アメリカオシ, カナダ ケベック州 (© Maxime Riendeau/Getty Images)](https://www.bing.com/th?id=OHR.QuebecDuck_JA-JP7270367085_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AlcazarSeville_JA-JP7812179664_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アルカサル, スペイン アンダルシア州 (© Danny Lehman/Getty Images)](https://www.bing.com/th?id=OHR.AlcazarSeville_JA-JP7812179664_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.QuebecDuck_FR-FR4323551846_UHD.jpg&w=1000)Today: [Canard branchu, Québec, Canada (© Maxime Riendeau/Getty Images)](https://www.bing.com/th?id=OHR.QuebecDuck_FR-FR4323551846_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.QuebecDuck_IT-IT4692189372_UHD.jpg&w=1000)Today: [Anatra sposa, Québec, Canada (© Maxime Riendeau/Getty Images)](https://www.bing.com/th?id=OHR.QuebecDuck_IT-IT4692189372_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CelticColours_PT-BR9042410710_UHD.jpg&w=1000)Today: [Cape Breton Highlands, Nova Escócia, Canadá (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.CelticColours_PT-BR9042410710_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FelizDiadasCriancas_PT-BR6983342881_UHD.jpg&w=1000)Today: [Brinquedos tradicionais feitos com a fibra da palmeira Miriti, Belém (© Ricardo Lima/Getty Images)](https://www.bing.com/th?id=OHR.FelizDiadasCriancas_PT-BR6983342881_UHD.jpg)
 <br><br/>

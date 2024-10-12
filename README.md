@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.QuebecDuck_ZH-CN0588954873_UHD.jpg&w=1000)今日图片: &nbsp;[林鸳鸯，魁北克省，加拿大 (© Maxime Riendeau/Getty Images)](https://www.bing.com/th?id=OHR.QuebecDuck_ZH-CN0588954873_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AlcazarSeville_ZH-CN5581795099_UHD.jpg&w=1000)今日图片: &nbsp;[塞维利亚王宫少女庭院，西班牙 (© Danny Lehman/Getty Images)](https://www.bing.com/th?id=OHR.AlcazarSeville_ZH-CN5581795099_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CelticColours_EN-US9284206130_UHD.jpg&w=1000)Today: [Cape Breton Highlands, Nova Scotia, Canada (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.CelticColours_EN-US9284206130_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.QuebecDuck_EN-US9387855720_UHD.jpg&w=1000)Today: [Wood duck, Quebec, Canada (© Maxime Riendeau/Getty Images)](https://www.bing.com/th?id=OHR.QuebecDuck_EN-US9387855720_UHD.jpg)
 <br><br/>
