@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.RailwaysDayNew_JA-JP8050699925_UHD.jpg&w=1000)今日の壁紙: &nbsp;[東京駅, 東京都 (© phutthiseth thongtae/Getty Images)](https://www.bing.com/th?id=OHR.RailwaysDayNew_JA-JP8050699925_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FossilsDorset_JA-JP8513856980_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ジュラシック・コーストの化石, イギリス ドーセット州 (© Nature Picture Library/Alamy)](https://www.bing.com/th?id=OHR.FossilsDorset_JA-JP8513856980_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MarigotBay_FR-FR5579307214_UHD.jpg&w=1000)Today: [Bateaux dans la baie de Marigot, Terre-de-Haut, archipel des Saintes, Guadeloupe (© Tan Yilmaz/Getty Images)](https://www.bing.com/th?id=OHR.MarigotBay_FR-FR5579307214_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CocoBeach_IT-IT3512339679_UHD.jpg&w=1000)Today: [Baia di Coco Beach, Goa, India (© Abhinav Sah/Shutterstock)](https://www.bing.com/th?id=OHR.CocoBeach_IT-IT3512339679_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AlcazarSeville_PT-BR9775263782_UHD.jpg&w=1000)Today: [Pátio das Donzelas, Alcázar de Sevilha, Espanha (© Danny Lehman/Getty Images)](https://www.bing.com/th?id=OHR.AlcazarSeville_PT-BR9775263782_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CocoBeach_PT-BR0695922930_UHD.jpg&w=1000)Today: [Barcos de pesca na Praia de Coco em Goa, Índia (© Abhinav Sah/Shutterstock)](https://www.bing.com/th?id=OHR.CocoBeach_PT-BR0695922930_UHD.jpg)
 <br><br/>
