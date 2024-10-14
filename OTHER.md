@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.RailwaysDayNew_JA-JP8050699925_UHD.jpg&w=1000)今日の壁紙: &nbsp;[東京駅, 東京都 (© phutthiseth thongtae/Getty Images)](https://www.bing.com/th?id=OHR.RailwaysDayNew_JA-JP8050699925_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AlcazarSeville_FR-FR4993322229_UHD.jpg&w=1000)Today: [Patio de las Doncellas, Alcazar de Séville, Espagne (© Danny Lehman/Getty Images)](https://www.bing.com/th?id=OHR.AlcazarSeville_FR-FR4993322229_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MarigotBay_FR-FR5579307214_UHD.jpg&w=1000)Today: [Bateaux dans la baie de Marigot, Terre-de-Haut, archipel des Saintes, Guadeloupe (© Tan Yilmaz/Getty Images)](https://www.bing.com/th?id=OHR.MarigotBay_FR-FR5579307214_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AlcazarSeville_DE-DE3041524458_UHD.jpg&w=1000)Today: [Innenhof der Jungfrauen, Alcázar von Sevilla, Spanien (© Danny Lehman/Getty Images)](https://www.bing.com/th?id=OHR.AlcazarSeville_DE-DE3041524458_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CocoBeach_DE-DE0655517413_UHD.jpg&w=1000)Today: [Fischerboote am Coco Beach in Goa, Indien (© Abhinav Sah/Shutterstock)](https://www.bing.com/th?id=OHR.CocoBeach_DE-DE0655517413_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AlcazarSeville_ES-ES5812845635_UHD.jpg&w=1000)Today: [Patio de las Doncellas, Alcázar de Sevilla (© Danny Lehman/Getty Images)](https://www.bing.com/th?id=OHR.AlcazarSeville_ES-ES5812845635_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CocoBeach_ES-ES6296595662_UHD.jpg&w=1000)Today: [Barcos de pesca en la playa de Coco en Goa, India (© Abhinav Sah/Shutterstock)](https://www.bing.com/th?id=OHR.CocoBeach_ES-ES6296595662_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AlcazarSeville_EN-GB0411908636_UHD.jpg&w=1000)Today: [Courtyard of the Maidens, Alcázar of Seville, Spain (© Danny Lehman/Getty Images)](https://www.bing.com/th?id=OHR.AlcazarSeville_EN-GB0411908636_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CocoBeach_EN-GB1307746805_UHD.jpg&w=1000)Today: [Coco Beach, Goa, India (© Abhinav Sah/Shutterstock)](https://www.bing.com/th?id=OHR.CocoBeach_EN-GB1307746805_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AlcazarSeville_IT-IT0712843452_UHD.jpg&w=1000)Today: [Patio de las Doncellas, Alcázar di Siviglia, Spagna (© Danny Lehman/Getty Images)](https://www.bing.com/th?id=OHR.AlcazarSeville_IT-IT0712843452_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CocoBeach_IT-IT3512339679_UHD.jpg&w=1000)Today: [Baia di Coco Beach, Goa, India (© Abhinav Sah/Shutterstock)](https://www.bing.com/th?id=OHR.CocoBeach_IT-IT3512339679_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AlcazarSeville_PT-BR9775263782_UHD.jpg&w=1000)Today: [Pátio das Donzelas, Alcázar de Sevilha, Espanha (© Danny Lehman/Getty Images)](https://www.bing.com/th?id=OHR.AlcazarSeville_PT-BR9775263782_UHD.jpg)
 <br><br/>
