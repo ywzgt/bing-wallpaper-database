@@ -9,7 +9,7 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.FossilsDorset_EN-GB3896931228_UHD.jpg&w=1000)Today: [Fossils of belemnites and ammonites, Jurassic Coast, Dorset, England (© Nature Picture Library/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.FossilsDorset_EN-GB3896931228_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RomeFilmFestival_IT-IT1206771137_UHD.jpg&w=1000)Today: [Vista su Piazza Venezia e il centro di Roma, Roma, Italia (© MasterLu/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.RomeFilmFestival_IT-IT1206771137_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RomeFilmFestival_IT-IT3375259000_UHD.jpg&w=1000)Today: [Vista su Piazza Venezia e il centro di Roma, Roma, Italia (© MasterLu/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.RomeFilmFestival_IT-IT3375259000_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ElephantTeacher_PT-BR6921941046_UHD.jpg&w=1000)Today: [Elefantes africanos no Parque Nacional Tsavo East, Quênia (© Neil Bowman/Minden Pictures)](https://www.bing.com/th?id=OHR.ElephantTeacher_PT-BR6921941046_UHD.jpg)
 <br><br/>
