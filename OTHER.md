@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MaraMigration_JA-JP8727709922_UHD.jpg&w=1000)今日の壁紙: &nbsp;[マラ川を渡るヌーの群れ, ケニア (© Ayzenstayn/Getty Images)](https://www.bing.com/th?id=OHR.MaraMigration_JA-JP8727709922_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CoyoteGulch_JA-JP8998470067_UHD.jpg&w=1000)今日の壁紙: &nbsp;[グレンキャニオン国立保養地, 米国 ユタ州 (© Stephen Matera/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CoyoteGulch_JA-JP8998470067_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.FossilsDorset_FR-FR6425876617_UHD.jpg&w=1000)Today: [Fossiles de bélemnites et d'ammonites, côte jurassique, Dorset, Royaume-Uni (© Nature Picture Library/Alamy)](https://www.bing.com/th?id=OHR.FossilsDorset_FR-FR6425876617_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.RomeFilmFestival_IT-IT3375259000_UHD.jpg&w=1000)Today: [Vista su Piazza Venezia e il centro di Roma, Roma, Italia (© MasterLu/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.RomeFilmFestival_IT-IT3375259000_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ElephantTeacher_PT-BR6921941046_UHD.jpg&w=1000)Today: [Elefantes africanos no Parque Nacional Tsavo East, Quênia (© Neil Bowman/Minden Pictures)](https://www.bing.com/th?id=OHR.ElephantTeacher_PT-BR6921941046_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FossilsDorset_PT-BR5587878603_UHD.jpg&w=1000)Today: [Fósseis de belemnites e amonites, Costa Jurássica, Dorset, Reino Unido (© Nature Picture Library/Alamy)](https://www.bing.com/th?id=OHR.FossilsDorset_PT-BR5587878603_UHD.jpg)
 <br><br/>
