@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SmilingSloth_JA-JP4479144213_UHD.jpg&w=1000)今日の壁紙: &nbsp;[木の枝にぶら下がるナマケモノ, コスタリカ (© Harry Collins/Getty Images)](https://www.bing.com/th?id=OHR.SmilingSloth_JA-JP4479144213_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AutumnCypress_JA-JP4647054612_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ジョージ・エル・スミス州立公園, 米国 ジョージア州 (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AutumnCypress_JA-JP4647054612_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.NuitsChampagne_FR-FR1213854382_UHD.jpg&w=1000)Today: [Vignobles de Champagne, parc naturel régional de la Montagne de Reims, Verzenay (© Philippe Turpin/Getty Images)](https://www.bing.com/th?id=OHR.NuitsChampagne_FR-FR1213854382_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SmilingSloth_IT-IT8557895163_UHD.jpg&w=1000)Today: [Bradipo a tre dita, Costa Rica (© Harry Collins/Getty Images)](https://www.bing.com/th?id=OHR.SmilingSloth_IT-IT8557895163_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DenderaTemple_PT-BR6539845196_UHD.jpg&w=1000)Today: [Templo de Hathor, Complexo do Templo de Dendera, Quena, Egito (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.DenderaTemple_PT-BR6539845196_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SmilingSloth_PT-BR6480806367_UHD.jpg&w=1000)Today: [Bicho-preguiça de três dedos na Costa Rica (© Harry Collins/Getty Images)](https://www.bing.com/th?id=OHR.SmilingSloth_PT-BR6480806367_UHD.jpg)
 <br><br/>
