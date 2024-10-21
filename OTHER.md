@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AutumnCypress_JA-JP4647054612_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ジョージ・エル・スミス州立公園, 米国 ジョージア州 (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AutumnCypress_JA-JP4647054612_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HeianJingu2024_JA-JP4866409141_UHD.jpg&w=1000)今日の壁紙: &nbsp;[平安神宮, 京都府 京都市 (© Ulana Switucha/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HeianJingu2024_JA-JP4866409141_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AutumnCypress_FR-FR1425004503_UHD.jpg&w=1000)Today: [Cyprès chauves dans le parc d'État George L. Smith, Géorgie, États-Unis (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AutumnCypress_FR-FR1425004503_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AutumnCypress_IT-IT8653466792_UHD.jpg&w=1000)Today: [Cipressi nel Parco George L. Smith, Georgia, USA (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AutumnCypress_IT-IT8653466792_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SmilingSloth_PT-BR6480806367_UHD.jpg&w=1000)Today: [Bicho-preguiça de três dedos na Costa Rica (© Harry Collins/Getty Images)](https://www.bing.com/th?id=OHR.SmilingSloth_PT-BR6480806367_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AutumnCypress_PT-BR6434540619_UHD.jpg&w=1000)Today: [Ciprestes no Parque Estadual George L. Smith, Geórgia, EUA (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AutumnCypress_PT-BR6434540619_UHD.jpg)
 <br><br/>
