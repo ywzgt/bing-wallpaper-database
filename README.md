@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AutumnCypress_ZH-CN5099875619_UHD.jpg&w=1000)今日图片: &nbsp;[乔治·史密斯州立公园的柏树，佐治亚州，美国 (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AutumnCypress_ZH-CN5099875619_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MonsterDoor_ZH-CN6613337019_UHD.jpg&w=1000)今日图片: &nbsp;[祖卡里宫，罗马，意大利 (© Photon-Photos/Getty Images)](https://www.bing.com/th?id=OHR.MonsterDoor_ZH-CN6613337019_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SmilingSloth_EN-US2707836219_UHD.jpg&w=1000)Today: [Three-toed sloth in Costa Rica (© Harry Collins/Getty Images)](https://www.bing.com/th?id=OHR.SmilingSloth_EN-US2707836219_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AutumnCypress_EN-US2771131028_UHD.jpg&w=1000)Today: [Cypress trees in George L. Smith State Park, Georgia (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AutumnCypress_EN-US2771131028_UHD.jpg)
 <br><br/>
