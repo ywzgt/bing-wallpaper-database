@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.HeianJingu2024_JA-JP4866409141_UHD.jpg&w=1000)今日の壁紙: &nbsp;[平安神宮, 京都府 京都市 (© Ulana Switucha/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HeianJingu2024_JA-JP4866409141_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HottaiFalls2024_JA-JP5036595123_UHD.jpg&w=1000)今日の壁紙: &nbsp;[紅葉に包まれた法体の滝, 秋田県 由利本荘市 (© nattya3714/Getty Images)](https://www.bing.com/th?id=OHR.HottaiFalls2024_JA-JP5036595123_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MonsterDoor_FR-FR1619086814_UHD.jpg&w=1000)Today: [Palais Zuccari, Rome, Italie (© Photon-Photos/Getty Images)](https://www.bing.com/th?id=OHR.MonsterDoor_FR-FR1619086814_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MonsterDoor_IT-IT8784390686_UHD.jpg&w=1000)Today: [Palazzo Zuccari, Roma, Italia (© Photon-Photos/Getty Images)](https://www.bing.com/th?id=OHR.MonsterDoor_IT-IT8784390686_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AutumnCypress_PT-BR6434540619_UHD.jpg&w=1000)Today: [Ciprestes no Parque Estadual George L. Smith, Geórgia, EUA (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AutumnCypress_PT-BR6434540619_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MonsterDoor_PT-BR8050114747_UHD.jpg&w=1000)Today: [Palazzo Zuccari, Roma, Itália (© Photon-Photos/Getty Images)](https://www.bing.com/th?id=OHR.MonsterDoor_PT-BR8050114747_UHD.jpg)
 <br><br/>

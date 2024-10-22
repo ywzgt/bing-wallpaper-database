@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MonsterDoor_ZH-CN6613337019_UHD.jpg&w=1000)今日图片: &nbsp;[祖卡里宫，罗马，意大利 (© Photon-Photos/Getty Images)](https://www.bing.com/th?id=OHR.MonsterDoor_ZH-CN6613337019_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MadameSherriCastle_ZH-CN8101580548_UHD.jpg&w=1000)今日图片: &nbsp;[雪莉夫人森林和古堡遗迹，新罕布什尔州，美国 (© yggdrasill/Shutterstock)](https://www.bing.com/th?id=OHR.MadameSherriCastle_ZH-CN8101580548_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AutumnCypress_EN-US2771131028_UHD.jpg&w=1000)Today: [Cypress trees in George L. Smith State Park, Georgia (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AutumnCypress_EN-US2771131028_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MonsterDoor_EN-US2973387472_UHD.jpg&w=1000)Today: [Palazzo Zuccari, Rome, Italy (© Photon-Photos/Getty Images)](https://www.bing.com/th?id=OHR.MonsterDoor_EN-US2973387472_UHD.jpg)
 <br><br/>
