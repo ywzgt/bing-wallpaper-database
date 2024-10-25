@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.MontBlancMassif_JA-JP5454742573_UHD.jpg&w=1000)今日の壁紙: &nbsp;[シャモニー, フランス (© Simon Schöpf/Getty Images)](https://www.bing.com/th?id=OHR.MontBlancMassif_JA-JP5454742573_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BodieCalifornia_FR-FR2619483775_UHD.jpg&w=1000)Today: [Bodie State Historic Park, Mono County, Californie, États-Unis (© Julien McRoberts/Tetra Images, LLC/Alamy)](https://www.bing.com/th?id=OHR.BodieCalifornia_FR-FR2619483775_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MontBlancMassif_FR-FR3086355782_UHD.jpg&w=1000)Today: [Massif du Mont-Blanc, Chamonix (© Simon Schöpf/Getty Images)](https://www.bing.com/th?id=OHR.MontBlancMassif_FR-FR3086355782_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HumboldtUniversityLibrary_DE-DE9129729075_UHD.jpg&w=1000)Today: [Die Bibliothek der Humboldt-Universität in Berlin (© Hemis/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HumboldtUniversityLibrary_DE-DE9129729075_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MontBlancMassif_DE-DE0416304565_UHD.jpg&w=1000)Today: [Mont Blanc in Chamonix, Frankreich (© Simon Schöpf/Getty Images)](https://www.bing.com/th?id=OHR.MontBlancMassif_DE-DE0416304565_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BodieCalifornia_ES-ES5750296287_UHD.jpg&w=1000)Today: [Parque Histórico Estatal de Bodie, Condado de Mono, California, EE. UU. (© Julien McRoberts/Tetra Images, LLC/Alamy)](https://www.bing.com/th?id=OHR.BodieCalifornia_ES-ES5750296287_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MontBlancMassif_ES-ES6175226361_UHD.jpg&w=1000)Today: [Mont Blanc en Chamonix, Francia (© Simon Schöpf/Getty Images)](https://www.bing.com/th?id=OHR.MontBlancMassif_ES-ES6175226361_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BodieCalifornia_EN-GB1752364687_UHD.jpg&w=1000)Today: [Bodie State Historic Park, Mono County, California, USA (© Julien McRoberts/Tetra Images, LLC/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BodieCalifornia_EN-GB1752364687_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MontBlancMassif_EN-GB2071333210_UHD.jpg&w=1000)Today: [Mont Blanc in Chamonix, France (© Simon Schöpf/Getty Images)](https://www.bing.com/th?id=OHR.MontBlancMassif_EN-GB2071333210_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GhostForest_IT-IT8926574914_UHD.jpg&w=1000)Today: [Foresta fantasma, Nienhagen, Meclemburgo-Pomerania Occidentale, Germania (© mauritius images GmbH/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.GhostForest_IT-IT8926574914_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GiornataMondialeDellaPasta_IT-IT9004534121_UHD.jpg&w=1000)Today: [Isola di Procida, Golfo di Napoli, Campania, Italia (© RolfSt/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.GiornataMondialeDellaPasta_IT-IT9004534121_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.GreatOwl_PT-BR6294923796_UHD.jpg&w=1000)Today: [Coruja-de-chifre Grande (© Mark Newman/Getty Images)](https://www.bing.com/th?id=OHR.GreatOwl_PT-BR6294923796_UHD.jpg)
 <br><br/>
