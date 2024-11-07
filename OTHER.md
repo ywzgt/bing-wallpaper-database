@@ -1,3 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.AnserAlbifrons2024_JA-JP4172907824_UHD.jpg&w=1000)今日の壁紙: &nbsp;[マガンの群れ (© feathercollector/Shutterstock)](https://www.bing.com/th?id=OHR.AnserAlbifrons2024_JA-JP4172907824_UHD.jpg)
 <br><br/>
+![](https://www.bing.com/th?id=OHR.CanadaWolves_FR-FR6675938333_UHD.jpg&w=1000)Today: [Loups côtiers de l’île de Vancouver,  forêt pluviale du Grand Ours, Colombie-Britannique, Canada (© Nick Garbutt/Alamy)](https://www.bing.com/th?id=OHR.CanadaWolves_FR-FR6675938333_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.CanadaWolves_DE-DE4376564886_UHD.jpg&w=1000)Today: [Kanadische Küstenwölfe im Great Bear Rainforest, British Columbia, Kanada (© Nick Garbutt/Alamy)](https://www.bing.com/th?id=OHR.CanadaWolves_DE-DE4376564886_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.CanadaWolves_ES-ES1988457082_UHD.jpg&w=1000)Today: [Lobos costeros de Vancouver en la selva tropical del Great Bear, Columbia Británica, Canadá (© Nick Garbutt/Alamy)](https://www.bing.com/th?id=OHR.CanadaWolves_ES-ES1988457082_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.ShiShiBeach_EN-GB4724156220_UHD.jpg&w=1000)Today: [Shi Shi Beach in Olympic National Park, Washington, USA (© T.M. Schultze/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.ShiShiBeach_EN-GB4724156220_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.CanadaWolves_IT-IT3917855917_UHD.jpg&w=1000)Today: [Lupi di mare costieri di Vancouver nella Grande Foresta Pluviale dell'Orso, Columbia Britannica, Canada (© Nick Garbutt/Alamy)](https://www.bing.com/th?id=OHR.CanadaWolves_IT-IT3917855917_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.ShiShiBeach_PT-BR2103643981_UHD.jpg&w=1000)Today: [Praia de Shi Shi no Parque Nacional Olímpico, Washington, EUA (© T.M. Schultze/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.ShiShiBeach_PT-BR2103643981_UHD.jpg)
+<br><br/>
