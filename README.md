@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MoroccoMilkyWay_ZH-CN3544344290_UHD.jpg&w=1000)今日图片: &nbsp;[银河，阿伊特本哈杜杜，摩洛哥 (© Cavan Images/Getty Images)](https://www.bing.com/th?id=OHR.MoroccoMilkyWay_ZH-CN3544344290_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YucatanFlamingos_ZH-CN0721673752_UHD.jpg&w=1000)今日图片: &nbsp;[加勒比火烈鸟，尤卡坦半岛，墨西哥 (© Claudio Contreras/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.YucatanFlamingos_ZH-CN0721673752_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GlacialRivers_EN-US4356459123_UHD.jpg&w=1000)Today: [Aerial view of glacial rivers in Iceland (© rybarmarekk/Shutterstock)](https://www.bing.com/th?id=OHR.GlacialRivers_EN-US4356459123_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MoroccoMilkyWay_EN-US4411505209_UHD.jpg&w=1000)Today: [Milky Way, Aït Benhaddou, Morocco (© Cavan Images/Getty Images)](https://www.bing.com/th?id=OHR.MoroccoMilkyWay_EN-US4411505209_UHD.jpg)
 <br><br/>
