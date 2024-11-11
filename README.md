@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Banff24_ZH-CN1156176817_UHD.jpg&w=1000)今日图片: &nbsp;[班夫国家公园的日落，阿尔伯塔省，加拿大 (© fywPhoto 云卷云舒/Getty Images)](https://www.bing.com/th?id=OHR.Banff24_ZH-CN1156176817_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CoveArch_ZH-CN1281140578_UHD.jpg&w=1000)今日图片: &nbsp;[透过海湾拱门看到双拱门，拱门国家公园，犹他州，美国 (© Jeff Foott/Minden Pictures)](https://www.bing.com/th?id=OHR.CoveArch_ZH-CN1281140578_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_UHD.jpg&w=1000)Today: [Caribbean flamingos, Yucatán Peninsula, Mexico (© Claudio Contreras/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_UHD.jpg&w=1000)Today: [Mural Wall, Korean War Veterans Memorial, Washington, DC (© Steve Tulley/Alamy)](https://www.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_UHD.jpg)
 <br><br/>
