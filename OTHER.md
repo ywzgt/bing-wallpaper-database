@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Banff24_JA-JP2138489803_UHD.jpg&w=1000)今日の壁紙: &nbsp;[バンフ国立公園,カナダ アルバータ州 (© fywPhoto 云卷云舒/Getty Images)](https://www.bing.com/th?id=OHR.Banff24_JA-JP2138489803_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CoveArch_JA-JP2301146228_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アーチーズ国立公園, 米国 ユタ州 (© Jeff Foott/Minden Pictures)](https://www.bing.com/th?id=OHR.CoveArch_JA-JP2301146228_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.Banff24_FR-FR8236269164_UHD.jpg&w=1000)Today: [Parc national de Banff, Alberta, Canada (© fywPhoto 云卷云舒/Getty Images)](https://www.bing.com/th?id=OHR.Banff24_FR-FR8236269164_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.Banff24_ES-ES2715898472_UHD.jpg&w=1000)Today: [Parque Nacional de Banff, Alberta, Canadá  (© fywPhoto 云卷云舒/Getty Images)](https://www.bing.com/th?id=OHR.Banff24_ES-ES2715898472_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RemembranceSunday2024_EN-GB5545006303_UHD.jpg&w=1000)Today: [Aberystwyth war memorial, Wales (© ffotocymru/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.RemembranceSunday2024_EN-GB5545006303_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Banff24_EN-GB6552811708_UHD.jpg&w=1000)Today: [Banff National Park, Alberta, Canada (© fywPhoto 云卷云舒/Getty Images)](https://www.bing.com/th?id=OHR.Banff24_EN-GB6552811708_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.Banff24_IT-IT4414822450_UHD.jpg&w=1000)Today: [Tramonto al Parco Nazionale Banff, Alberta, Canada (© fywPhoto 云卷云舒/Getty Images)](https://www.bing.com/th?id=OHR.Banff24_IT-IT4414822450_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.YucatanFlamingos_PT-BR2968915702_UHD.jpg&w=1000)Today: [Flamingos caribenhos, Península Yucatán, México (© Claudio Contreras/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.YucatanFlamingos_PT-BR2968915702_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Banff24_PT-BR3167336781_UHD.jpg&w=1000)Today: [Pôr do sol no Parque Nacional Banff, Alberta, Canadá (© fywPhoto 云卷云舒/Getty Images)](https://www.bing.com/th?id=OHR.Banff24_PT-BR3167336781_UHD.jpg)
 <br><br/>
