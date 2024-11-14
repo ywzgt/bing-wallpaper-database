@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ManarolaItaly_ZH-CN2837915120_UHD.jpg&w=1000)今日图片: &nbsp;[马纳罗拉，五渔村国家公园，利古里亚，意大利 (© John_Silver/Shutterstock)](https://www.bing.com/th?id=OHR.ManarolaItaly_ZH-CN2837915120_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YiPengLanterns_ZH-CN5613043353_UHD.jpg&w=1000)今日图片: &nbsp;[义蓬灯节 ，清迈，泰国 (© tampatra/Getty Images)](https://www.bing.com/th?id=OHR.YiPengLanterns_ZH-CN5613043353_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.KelpForest_EN-US4745308334_UHD.jpg&w=1000)Today: [California sea lion in a forest of giant kelp, Baja California, Mexico (© Claudio Contreras/Minden Pictures)](https://www.bing.com/th?id=OHR.KelpForest_EN-US4745308334_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ManarolaItaly_EN-US4826543395_UHD.jpg&w=1000)Today: [Manarola, Cinque Terre National Park, Liguria, Italy (© John_Silver/Shutterstock)](https://www.bing.com/th?id=OHR.ManarolaItaly_EN-US4826543395_UHD.jpg)
 <br><br/>
