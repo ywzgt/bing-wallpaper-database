@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.RedStag_ZH-CN6403546321_UHD.jpg&w=1000)今日图片: &nbsp;[加里东林中的马鹿，阿夫力谷，苏格兰高地 (© Terry Whittaker/Alamy)](https://www.bing.com/th?id=OHR.RedStag_ZH-CN6403546321_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_ZH-CN6655235820_UHD.jpg&w=1000)今日图片: &nbsp;[波斯考尔灯塔，南威尔士，英国 (© Leighton Collins/Alamy)](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_ZH-CN6655235820_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.FrieslandNetherlands_EN-US3770890281_UHD.jpg&w=1000)Today: [Wadden Sea coast, near Moddergat, Friesland, Netherlands (© Ron ter Burg/Minden Pictures)](https://www.bing.com/th?id=OHR.FrieslandNetherlands_EN-US3770890281_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RedStag_EN-US3910525623_UHD.jpg&w=1000)Today: [Red deer stag in the Caledonian Forest, Glen Affric, Scottish Highlands (© Terry Whittaker/Alamy)](https://www.bing.com/th?id=OHR.RedStag_EN-US3910525623_UHD.jpg)
 <br><br/>
