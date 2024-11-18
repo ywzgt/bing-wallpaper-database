@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_ZH-CN6655235820_UHD.jpg&w=1000)今日图片: &nbsp;[波斯考尔灯塔，南威尔士，英国 (© Leighton Collins/Alamy)](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_ZH-CN6655235820_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TasmansArch_ZH-CN7062784426_UHD.jpg&w=1000)今日图片: &nbsp;[塔斯曼拱门，塔斯马尼亚州，澳大利亚 (© Gary Bell/Minden Pictures)](https://www.bing.com/th?id=OHR.TasmansArch_ZH-CN7062784426_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RedStag_EN-US3910525623_UHD.jpg&w=1000)Today: [Red deer stag in the Caledonian Forest, Glen Affric, Scottish Highlands (© Terry Whittaker/Alamy)](https://www.bing.com/th?id=OHR.RedStag_EN-US3910525623_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_EN-US4147042402_UHD.jpg&w=1000)Today: [Porthcawl Lighthouse, Wales (© Leighton Collins/Alamy)](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_EN-US4147042402_UHD.jpg)
 <br><br/>

@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_JA-JP3933854148_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ポースコール灯台, イギリス 南ウェールズ (© Leighton Collins/Alamy)](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_JA-JP3933854148_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TasmansArch_JA-JP4122919606_UHD.jpg&w=1000)今日の壁紙: &nbsp;[タスマン国立公園, オーストラリア タスマニア州 (© Gary Bell/Minden Pictures)](https://www.bing.com/th?id=OHR.TasmansArch_JA-JP4122919606_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_FR-FR3687906997_UHD.jpg&w=1000)Today: [Phare de Porthcawl, Pays de Galles, Royaume-Uni (© Leighton Collins/Alamy)](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_FR-FR3687906997_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_ES-ES1528982827_UHD.jpg&w=1000)Today: [Faro de Porthcawl, Gales del Sur, Reino Unido (© Leighton Collins/Alamy)](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_ES-ES1528982827_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RedStag_EN-GB6258351570_UHD.jpg&w=1000)Today: [Red deer stag in Caledonian Forest, Glen Affric, Scottish Highlands (© Terry Whittaker/Alamy)](https://www.bing.com/th?id=OHR.RedStag_EN-GB6258351570_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_EN-GB6491276513_UHD.jpg&w=1000)Today: [Porthcawl lighthouse, South Wales (© Leighton Collins/Alamy)](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_EN-GB6491276513_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_IT-IT6522253839_UHD.jpg&w=1000)Today: [Faro di Porthcawl, Galles meridionale, Regno Unito (© Leighton Collins/Alamy)](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_IT-IT6522253839_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RedStag_PT-BR8362159412_UHD.jpg&w=1000)Today: [Veado-vermelho na Floresta Caledoniana, Glen Affric, Terras Altas da Escócia (© Terry Whittaker/Alamy)](https://www.bing.com/th?id=OHR.RedStag_PT-BR8362159412_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_PT-BR8599692510_UHD.jpg&w=1000)Today: [Farol de Porthcawl, Sul do País de Gales, Reino Unido (© Leighton Collins/Alamy)](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_PT-BR8599692510_UHD.jpg)
 <br><br/>
