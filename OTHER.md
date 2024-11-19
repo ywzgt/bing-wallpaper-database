@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TasmansArch_JA-JP4122919606_UHD.jpg&w=1000)今日の壁紙: &nbsp;[タスマン国立公園, オーストラリア タスマニア州 (© Gary Bell/Minden Pictures)](https://www.bing.com/th?id=OHR.TasmansArch_JA-JP4122919606_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BeyondSaype_JA-JP4402963918_UHD.jpg&w=1000)今日の壁紙: &nbsp;[Saype によるランドアート「 Beyond Crisis 」, スイス (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.BeyondSaype_JA-JP4402963918_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TasmansArch_FR-FR3887612340_UHD.jpg&w=1000)Today: [Arche de Tasmans Tasmanie, Australie (© Gary Bell/Minden Pictures)](https://www.bing.com/th?id=OHR.TasmansArch_FR-FR3887612340_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TasmansArch_ES-ES1772649926_UHD.jpg&w=1000)Today: [Arco de Tasman, Tasmania, Australia (© Gary Bell/Minden Pictures)](https://www.bing.com/th?id=OHR.TasmansArch_ES-ES1772649926_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_EN-GB6491276513_UHD.jpg&w=1000)Today: [Porthcawl lighthouse, South Wales (© Leighton Collins/Alamy)](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_EN-GB6491276513_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TasmansArch_EN-GB6702107567_UHD.jpg&w=1000)Today: [Tasmans Arch, Tasmania, Australia (© Gary Bell/Minden Pictures)](https://www.bing.com/th?id=OHR.TasmansArch_EN-GB6702107567_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TasmansArch_IT-IT6908661148_UHD.jpg&w=1000)Today: [Tasmans Arch, Tasmania, Australia (© Gary Bell/Minden Pictures)](https://www.bing.com/th?id=OHR.TasmansArch_IT-IT6908661148_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_PT-BR8599692510_UHD.jpg&w=1000)Today: [Farol de Porthcawl, Sul do País de Gales, Reino Unido (© Leighton Collins/Alamy)](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_PT-BR8599692510_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TasmansArch_PT-BR8823523988_UHD.jpg&w=1000)Today: [Arco de Tasman, Tasmânia, Austrália (© Gary Bell/Minden Pictures)](https://www.bing.com/th?id=OHR.TasmansArch_PT-BR8823523988_UHD.jpg)
 <br><br/>
