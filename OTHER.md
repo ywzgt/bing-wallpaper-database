@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Xiaoxue2024_JA-JP4930643570_UHD.jpg&w=1000)今日の壁紙: &nbsp;[白糸の滝, 静岡県 富士宮市 (© Sean Pavone/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.Xiaoxue2024_JA-JP4930643570_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FibonacciAloe_JA-JP5597690966_UHD.jpg&w=1000)今日の壁紙: &nbsp;[カンガルー島のスパイラルアロエ, オーストラリア (© Michael Melford/Alamy)](https://www.bing.com/th?id=OHR.FibonacciAloe_JA-JP5597690966_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ZafraCastle_FR-FR2717876307_UHD.jpg&w=1000)Today: [Château de Zafra, Guadalajara, Espagne (© Eduard Gene/Getty Images)](https://www.bing.com/th?id=OHR.ZafraCastle_FR-FR2717876307_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ZafraCastle_ES-ES2585214053_UHD.jpg&w=1000)Today: [Castillo de Zafra, Provincia de Guadalajara (© Eduard Gene/Getty Images)](https://www.bing.com/th?id=OHR.ZafraCastle_ES-ES2585214053_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LionCubs_EN-GB7386144841_UHD.jpg&w=1000)Today: [Two lion cubs, South Africa (© Ruan Springorum/Getty Images)](https://www.bing.com/th?id=OHR.LionCubs_EN-GB7386144841_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ZafraCastle_EN-GB7885196184_UHD.jpg&w=1000)Today: [Castle of Zafra, Guadalajara province, Spain (© Eduard Gene/Getty Images)](https://www.bing.com/th?id=OHR.ZafraCastle_EN-GB7885196184_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ZafraCastle_IT-IT7473974060_UHD.jpg&w=1000)Today: [Castello di Zafra, provincia di Guadalajara, Spagna (© Eduard Gene/Getty Images)](https://www.bing.com/th?id=OHR.ZafraCastle_IT-IT7473974060_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LionCubs_PT-BR9649632612_UHD.jpg&w=1000)Today: [Dois filhotes de leão ao nascer do sol, África do Sul (© Ruan Springorum/Getty Images)](https://www.bing.com/th?id=OHR.LionCubs_PT-BR9649632612_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ZafraCastle_PT-BR0233064740_UHD.jpg&w=1000)Today: [Castelo de Zafra, província de Guadalajara, Espanha (© Eduard Gene/Getty Images)](https://www.bing.com/th?id=OHR.ZafraCastle_PT-BR0233064740_UHD.jpg)
 <br><br/>

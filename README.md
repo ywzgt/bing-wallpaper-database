@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ZafraCastle_ZH-CN8791148758_UHD.jpg&w=1000)今日图片: &nbsp;[萨夫拉城堡，瓜达拉哈拉省，西班牙 (© Eduard Gene/Getty Images)](https://www.bing.com/th?id=OHR.ZafraCastle_ZH-CN8791148758_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_UHD.jpg&w=1000)今日图片: &nbsp;[多叶芦荟，袋鼠岛，澳大利亚 (© Michael Melford/Alamy)](https://www.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LionCubs_EN-US4742616367_UHD.jpg&w=1000)Today: [Lion cubs at sunrise, South Africa (© Ruan Springorum/Getty Images)](https://www.bing.com/th?id=OHR.LionCubs_EN-US4742616367_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ZafraCastle_EN-US5032917939_UHD.jpg&w=1000)Today: [Castle of Zafra, Guadalajara province, Spain (© Eduard Gene/Getty Images)](https://www.bing.com/th?id=OHR.ZafraCastle_EN-US5032917939_UHD.jpg)
 <br><br/>
