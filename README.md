@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_UHD.jpg&w=1000)今日图片: &nbsp;[橄榄树林，伊特里亚山谷，普利亚，意大利 (© Massimo Santi/Shutterstock)](https://www.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_UHD.jpg&w=1000)今日图片: &nbsp;[秋天的巨人之墓，布永市，比利时 (© David Briard/Getty)](https://www.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AmboseliGiraffes_EN-US9072366924_UHD.jpg&w=1000)Today: [Masai giraffes, Amboseli National Park, Kenya (© Art Wolfe/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.AmboseliGiraffes_EN-US9072366924_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TrulliGrove_EN-US5919292259_UHD.jpg&w=1000)Today: [Olive grove, Valle d'Itria, Puglia, Italy (© Massimo Santi/Shutterstock)](https://www.bing.com/th?id=OHR.TrulliGrove_EN-US5919292259_UHD.jpg)
 <br><br/>
