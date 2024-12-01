@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.IcebergsAntarctica_ZH-CN2942178295_UHD.jpg&w=1000)今日图片: &nbsp;[南极洲的冰山 (© Art Wolfe/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.IcebergsAntarctica_ZH-CN2942178295_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SnowMoose_ZH-CN3364979952_UHD.jpg&w=1000)今日图片: &nbsp;[雌性驼鹿，德纳里国家公园，阿拉斯加州，美国 (© Cavan Images/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.SnowMoose_ZH-CN3364979952_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.KilchurnAutumn_EN-US6737063910_UHD.jpg&w=1000)Today: [Kilchurn Castle reflected in Loch Awe, Argyll and Bute, Scotland (© Tom Mackie/plainpicture)](https://www.bing.com/th?id=OHR.KilchurnAutumn_EN-US6737063910_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IcebergsAntarctica_EN-US6829804691_UHD.jpg&w=1000)Today: [Icebergs, Antarctica (© Art Wolfe/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.IcebergsAntarctica_EN-US6829804691_UHD.jpg)
 <br><br/>
