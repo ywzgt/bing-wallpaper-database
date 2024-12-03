@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.JaipurFort_ZH-CN3891828158_UHD.jpg&w=1000)今日图片: &nbsp;[Sattais Katcheri，琥珀堡，拉贾斯坦邦，印度 (© Yury Taranik/Shutterstock)](https://www.bing.com/th?id=OHR.JaipurFort_ZH-CN3891828158_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RhinosKenya_ZH-CN4422118541_UHD.jpg&w=1000)今日图片: &nbsp;[雄性白犀，纳库鲁湖，肯尼亚 (© Ingo Arndt/Minden Pictures)](https://www.bing.com/th?id=OHR.RhinosKenya_ZH-CN4422118541_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SnowMoose_EN-US6949674639_UHD.jpg&w=1000)Today: [Female moose, Denali National Park, Alaska (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.SnowMoose_EN-US6949674639_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JaipurFort_EN-US7275752190_UHD.jpg&w=1000)Today: [Sattais Katcheri (Court of 27 Pillars), Amber Fort, Rajasthan, India (© Yury Taranik/Shutterstock)](https://www.bing.com/th?id=OHR.JaipurFort_EN-US7275752190_UHD.jpg)
 <br><br/>
