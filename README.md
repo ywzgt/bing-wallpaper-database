@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MonoTufa_ZH-CN4998806540_UHD.jpg&w=1000)今日图片: &nbsp;[莫诺湖的石灰华地层，加利福尼亚州，美国 (© Susanna Patras/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MonoTufa_ZH-CN4998806540_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GreaterSnow2024_ZH-CN5929129591_UHD.jpg&w=1000)今日图片: &nbsp;[鸟瞰冰封的大海和悬崖上的灯塔，大连泊霞湾公园，辽宁省，中国 (© zhengshun tang/Getty Images)](https://www.bing.com/th?id=OHR.GreaterSnow2024_ZH-CN5929129591_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RhinosKenya_EN-US7514650014_UHD.jpg&w=1000)Today: [Male white rhinoceroses, Lake Nakuru, Kenya (© Ingo Arndt/Minden Pictures)](https://www.bing.com/th?id=OHR.RhinosKenya_EN-US7514650014_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MonoTufa_EN-US7607210506_UHD.jpg&w=1000)Today: [Tufa formations in Mono Lake, California (© Susanna Patras/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MonoTufa_EN-US7607210506_UHD.jpg)
 <br><br/>
