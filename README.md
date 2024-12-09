@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.GuanacosChile_ZH-CN7011761081_UHD.jpg&w=1000)今日图片: &nbsp;[两只原驼,托雷斯德尔帕恩国家公园 , 智利 (© Floris van Breugel/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.GuanacosChile_ZH-CN7011761081_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CornwallSnow_ZH-CN8407245245_UHD.jpg&w=1000)今日图片: &nbsp;[被雪覆盖的康沃尔天涯海角小径，康沃尔郡兰德恩德，英格兰 (© Josef FitzGerald-Patrick/Getty Images)](https://www.bing.com/th?id=OHR.CornwallSnow_ZH-CN8407245245_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_UHD.jpg&w=1000)Today: [Notre-Dame Cathedral, Paris, France (© Julien Fromentin/Getty Images)](https://www.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GuanacosChile_EN-US8209106662_UHD.jpg&w=1000)Today: [Guanacos, Torres del Paine National Park, Chile (© Floris van Breugel/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.GuanacosChile_EN-US8209106662_UHD.jpg)
 <br><br/>
