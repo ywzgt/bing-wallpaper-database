@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.WildPoinsettia_JA-JP9224856071_UHD.jpg&w=1000)今日の壁紙: &nbsp;[クリスマスを象徴する美しい植物 (© David Hosking/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.WildPoinsettia_JA-JP9224856071_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChristmasBudapest_JA-JP6583292404_UHD.jpg&w=1000)今日の壁紙: &nbsp;[聖イシュトヴァーン大聖堂, ハンガリー (© Calin Stan/Shutterstock)](https://www.bing.com/th?id=OHR.ChristmasBudapest_JA-JP6583292404_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.WildPoinsettia_FR-FR2758700807_UHD.jpg&w=1000)Today: [Poinsettia ou Fleur de Noël (© David Hosking/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.WildPoinsettia_FR-FR2758700807_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.WildPoinsettia_ES-ES7928941818_UHD.jpg&w=1000)Today: [Flor de Pascua o Flor de Navidad (© David Hosking/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.WildPoinsettia_ES-ES7928941818_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DolomitesSky_EN-GB4868872493_UHD.jpg&w=1000)Today: [Tre Cime di Lavaredo, Italy (© Daniel Maran/Getty Images)](https://www.bing.com/th?id=OHR.DolomitesSky_EN-GB4868872493_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WildPoinsettia_EN-GB5028659817_UHD.jpg&w=1000)Today: [Poinsettia or Christmas flower (© David Hosking/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.WildPoinsettia_EN-GB5028659817_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.WildPoinsettia_IT-IT8938739079_UHD.jpg&w=1000)Today: [Stella di Natale o fiore natalizio (© David Hosking/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.WildPoinsettia_IT-IT8938739079_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DolomitesSky_PT-BR2904816987_UHD.jpg&w=1000)Today: [Tre Cime di Lavaredo, Itália (© Daniel Maran/Getty Images)](https://www.bing.com/th?id=OHR.DolomitesSky_PT-BR2904816987_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WildPoinsettia_PT-BR3322413388_UHD.jpg&w=1000)Today: [Poinsétia ou Flor de Natal (© David Hosking/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.WildPoinsettia_PT-BR3322413388_UHD.jpg)
 <br><br/>
