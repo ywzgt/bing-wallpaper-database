@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ChristmasBudapest_JA-JP6583292404_UHD.jpg&w=1000)今日の壁紙: &nbsp;[聖イシュトヴァーン大聖堂, ハンガリー (© Calin Stan/Shutterstock)](https://www.bing.com/th?id=OHR.ChristmasBudapest_JA-JP6583292404_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NorthernHawkOwl_JA-JP7268842450_UHD.jpg&w=1000)今日の壁紙: &nbsp;[オナガフクロウ, カナダ (© pchoui/Getty Images)](https://www.bing.com/th?id=OHR.NorthernHawkOwl_JA-JP7268842450_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ChristmasBudapest_FR-FR0838567901_UHD.jpg&w=1000)Today: [Marché de Noël, basilique Saint-Étienne, Budapest, Hongrie (© Calin Stan/Shutterstock)](https://www.bing.com/th?id=OHR.ChristmasBudapest_FR-FR0838567901_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ChristmasBudapest_ES-ES8138996738_UHD.jpg&w=1000)Today: [Mercado navideño, Basílica de San Esteban, Budapest, Hungría (© Calin Stan/Shutterstock)](https://www.bing.com/th?id=OHR.ChristmasBudapest_ES-ES8138996738_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WildPoinsettia_EN-GB5028659817_UHD.jpg&w=1000)Today: [Poinsettia or Christmas flower (© David Hosking/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.WildPoinsettia_EN-GB5028659817_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChristmasBudapest_EN-GB5094460199_UHD.jpg&w=1000)Today: [Christmas market, St Stephen's Basilica, Budapest, Hungary (© Calin Stan/Shutterstock)](https://www.bing.com/th?id=OHR.ChristmasBudapest_EN-GB5094460199_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ChristmasBudapest_IT-IT6393045785_UHD.jpg&w=1000)Today: [Mercatino di Natale, Basilica di Santo Stefano, Budapest, Ungheria (© Calin Stan/Shutterstock)](https://www.bing.com/th?id=OHR.ChristmasBudapest_IT-IT6393045785_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WildPoinsettia_PT-BR3322413388_UHD.jpg&w=1000)Today: [Poinsétia ou Flor de Natal (© David Hosking/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.WildPoinsettia_PT-BR3322413388_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DiaNacionaldoForro_PT-BR8634835181_UHD.jpg&w=1000)Today: [Festival no nordeste do Brasil (Bahia) (© Franz Tagore Photographer/Getty Images)](https://www.bing.com/th?id=OHR.DiaNacionaldoForro_PT-BR8634835181_UHD.jpg)
 <br><br/>
