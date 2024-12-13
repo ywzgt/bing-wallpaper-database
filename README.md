@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ChristmasBudapest_ZH-CN8197439971_UHD.jpg&w=1000)今日图片: &nbsp;[圣诞市场，圣斯蒂芬大教堂，布达佩斯，匈牙利 (© Calin Stan/Shutterstock)](https://www.bing.com/th?id=OHR.ChristmasBudapest_ZH-CN8197439971_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN8408027305_UHD.jpg&w=1000)今日图片: &nbsp;[猛鸮，加拿大 (© pchoui/Getty Images)](https://www.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN8408027305_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WildPoinsettia_EN-US8728271702_UHD.jpg&w=1000)Today: [Wild poinsettia (aka Christmas flower) (© David Hosking/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.WildPoinsettia_EN-US8728271702_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChristmasBudapest_EN-US0865695821_UHD.jpg&w=1000)Today: [Christmas market, St. Stephen's Basilica, Budapest, Hungary (© Calin Stan/Shutterstock)](https://www.bing.com/th?id=OHR.ChristmasBudapest_EN-US0865695821_UHD.jpg)
 <br><br/>
