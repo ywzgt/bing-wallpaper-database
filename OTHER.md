@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.FestivusCranes_JA-JP9750730538_UHD.jpg&w=1000)今日の壁紙: &nbsp;[釧路湿原のタンチョウ, 北海道 (© Wirestock, Inc./Alamy)](https://www.bing.com/th?id=OHR.FestivusCranes_JA-JP9750730538_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TokyoTower2024_JA-JP2762394000_UHD.jpg&w=1000)今日の壁紙: &nbsp;[けやき坂のイルミネーション, 東京 (© Kinsei-TGS/Getty Images)](https://www.bing.com/th?id=OHR.TokyoTower2024_JA-JP2762394000_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CrystalPier_FR-FR4694395729_UHD.jpg&w=1000)Today: [Arbre de Noël à Crystal Pier, Pacific Beach, San Diego, Californie (© SamAntonioPhotography/Getty Images)](https://www.bing.com/th?id=OHR.CrystalPier_FR-FR4694395729_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CrystalPier_ES-ES1740304198_UHD.jpg&w=1000)Today: [Árbol de Navidad en Crystal Pier, Pacific Beach, San Diego, California, EE.UU. (© SamAntonioPhotography/Getty Images)](https://www.bing.com/th?id=OHR.CrystalPier_ES-ES1740304198_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BurningOfTheClocks2024_EN-GB6475088295_UHD.jpg&w=1000)Today: [Royal Pavilion, Brighton, England (© Michaelasbest/Shutterstock)](https://www.bing.com/th?id=OHR.BurningOfTheClocks2024_EN-GB6475088295_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CrystalPier_EN-GB6658264823_UHD.jpg&w=1000)Today: [Christmas tree at Crystal Pier, Pacific Beach, San Diego, California, USA (© SamAntonioPhotography/Getty Images)](https://www.bing.com/th?id=OHR.CrystalPier_EN-GB6658264823_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CrystalPier_IT-IT3144209474_UHD.jpg&w=1000)Today: [Albero di Natale al Crystal Pier, Pacific Beach, San Diego, California, USA (© SamAntonioPhotography/Getty Images)](https://www.bing.com/th?id=OHR.CrystalPier_IT-IT3144209474_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.InicioVerao2024_PT-BR9499376932_UHD.jpg&w=1000)Today: [Vista aérea da Ilha Cataguás em Angra dos Reis, Rio de Janeiro (© R.M. Nunes/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.InicioVerao2024_PT-BR9499376932_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CrystalPier_PT-BR2585040756_UHD.jpg&w=1000)Today: [Árvore de Natal no Crystal Pier, Pacific Beach, San Diego, Califórnia, EUA (© SamAntonioPhotography/Getty Images)](https://www.bing.com/th?id=OHR.CrystalPier_PT-BR2585040756_UHD.jpg)
 <br><br/>
