@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MouseholeXmas_ZH-CN3079184443_UHD.jpg&w=1000)今日图片: &nbsp;[莫斯霍尔港的圣诞灯饰，康沃尔，英格兰 (© ianwool/Getty Images)](https://www.bing.com/th?id=OHR.MouseholeXmas_ZH-CN3079184443_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LakeBledSnow_ZH-CN4118056813_UHD.jpg&w=1000)今日图片: &nbsp;[布莱德湖，斯洛文尼亚 (© Kesu01/Getty Images)](https://www.bing.com/th?id=OHR.LakeBledSnow_ZH-CN4118056813_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ReindeerTrio_EN-US1000272747_UHD.jpg&w=1000)Today: [Svalbard reindeer in Van Mijenfjorden NP, Norway (© Martin Zwick/REDA&CO/Universal Images Group via Getty Images)](https://www.bing.com/th?id=OHR.ReindeerTrio_EN-US1000272747_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MouseholeXmas_EN-US1272999190_UHD.jpg&w=1000)Today: [Christmas lights at Mousehole Harbour, Cornwall, England (© ianwool/Getty Images)](https://www.bing.com/th?id=OHR.MouseholeXmas_EN-US1272999190_UHD.jpg)
 <br><br/>
