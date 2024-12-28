@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_UHD.jpg&w=1000)今日图片: &nbsp;[一只绿海龟在太平洋中游泳，法国海外属地新喀里多尼亚 (© Damsea/Shutterstock)](https://www.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BorobudurBells_ZH-CN5291511365_UHD.jpg&w=1000)今日图片: &nbsp;[婆罗浮屠大佛寺，爪哇岛，印度尼西亚 (© Robertharding/Shutterstock)](https://www.bing.com/th?id=OHR.BorobudurBells_ZH-CN5291511365_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LakeBledSnow_EN-US5836531079_UHD.jpg&w=1000)Today: [Lake Bled, Slovenia (© Kesu01/Getty Images)](https://www.bing.com/th?id=OHR.LakeBledSnow_EN-US5836531079_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg&w=1000)Today: [A green sea turtle swims in the Pacific Ocean near the French special collectivity of New Caledonia (© Damsea/Shutterstock)](https://www.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg)
 <br><br/>
