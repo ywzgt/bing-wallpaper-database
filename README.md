@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BorobudurBells_ZH-CN5291511365_UHD.jpg&w=1000)今日图片: &nbsp;[婆罗浮屠大佛寺，爪哇岛，印度尼西亚 (© Robertharding/Shutterstock)](https://www.bing.com/th?id=OHR.BorobudurBells_ZH-CN5291511365_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MountFieldNP_ZH-CN6004420782_UHD.jpg&w=1000)今日图片: &nbsp;[多布森湖附近的塔斯马尼亚雪胶和班达尼植物，费尔德山国家公园，塔斯马尼亚，澳大利亚 (© Whitworth Images/Getty Images)](https://www.bing.com/th?id=OHR.MountFieldNP_ZH-CN6004420782_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg&w=1000)Today: [A green sea turtle swims in the Pacific Ocean near the French special collectivity of New Caledonia (© Damsea/Shutterstock)](https://www.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BorobudurBells_EN-US6354350828_UHD.jpg&w=1000)Today: [Borobudur Temple, Java, Indonesia (© Robertharding/Shutterstock)](https://www.bing.com/th?id=OHR.BorobudurBells_EN-US6354350828_UHD.jpg)
 <br><br/>
