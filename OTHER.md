@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.MountFieldNP_JA-JP6160592179_UHD.jpg&w=1000)今日の壁紙: &nbsp;[マウントフィールド国立公園, オーストラリア (© Whitworth Images/Getty Images)](https://www.bing.com/th?id=OHR.MountFieldNP_JA-JP6160592179_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BorobudurBells_FR-FR9771454901_UHD.jpg&w=1000)Today: [Temple de Borobudur, Java, Indonésie (© Robertharding/Shutterstock)](https://www.bing.com/th?id=OHR.BorobudurBells_FR-FR9771454901_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MountFieldNP_FR-FR0048358623_UHD.jpg&w=1000)Today: [Eucalyptus coccifera et pandanus, parc national de Mount Field, Tasmanie, Australie (© Whitworth Images/Getty Images)](https://www.bing.com/th?id=OHR.MountFieldNP_FR-FR0048358623_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BorobudurBells_DE-DE1793437311_UHD.jpg&w=1000)Today: [Borobudur TeBorobudur-Tempel, Java, Indonesien (© Robertharding/Shutterstock)](https://www.bing.com/th?id=OHR.BorobudurBells_DE-DE1793437311_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MountFieldNP_DE-DE4643713603_UHD.jpg&w=1000)Today: [Tasmanischer Schnee-Eukalyptus und Pandani-Pflanzen in der Nähe des Lake Dobson, Mount-Field-Nationalpark, Tasmanien, Australien (© Whitworth Images/Getty Images)](https://www.bing.com/th?id=OHR.MountFieldNP_DE-DE4643713603_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BorobudurBells_ES-ES2132252212_UHD.jpg&w=1000)Today: [Borobudur Temple, Java, Indonesia (© Robertharding/Shutterstock)](https://www.bing.com/th?id=OHR.BorobudurBells_ES-ES2132252212_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MountFieldNP_ES-ES3508020804_UHD.jpg&w=1000)Today: [Eucalipto de nieve de Tasmania y pandani de Tasmania cerca del lago Dobson, Parque Nacional Mount Field, Tasmania, Australia (© Whitworth Images/Getty Images)](https://www.bing.com/th?id=OHR.MountFieldNP_ES-ES3508020804_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BorobudurBells_EN-GB3331651821_UHD.jpg&w=1000)Today: [Borobudur temple, Java, Indonesia (© Robertharding/Shutterstock)](https://www.bing.com/th?id=OHR.BorobudurBells_EN-GB3331651821_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BorobudurBells_IT-IT2966743478_UHD.jpg&w=1000)Today: [Tempio di Borobudur, Giava, Indonesia (© Robertharding/Shutterstock)](https://www.bing.com/th?id=OHR.BorobudurBells_IT-IT2966743478_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MountFieldNP_IT-IT7967272422_UHD.jpg&w=1000)Today: [Piante di gomma delle nevi e pandani, Parco Nazionale di Mount Field, Tasmania, Australia (© Whitworth Images/Getty Images)](https://www.bing.com/th?id=OHR.MountFieldNP_IT-IT7967272422_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BorobudurBells_PT-BR9535309352_UHD.jpg&w=1000)Today: [Templo de Borobudur, Java, Indonésia (© Robertharding/Shutterstock)](https://www.bing.com/th?id=OHR.BorobudurBells_PT-BR9535309352_UHD.jpg)
 <br><br/>
