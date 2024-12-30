@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MountFieldNP_ZH-CN6004420782_UHD.jpg&w=1000)今日图片: &nbsp;[多布森湖附近的塔斯马尼亚雪胶和班达尼植物，费尔德山国家公园，塔斯马尼亚，澳大利亚 (© Whitworth Images/Getty Images)](https://www.bing.com/th?id=OHR.MountFieldNP_ZH-CN6004420782_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CANYE24_ZH-CN3884754296_UHD.jpg&w=1000)今日图片: &nbsp;[国会山上空的烟花，渥太华，加拿大 (© naibank/Getty Images)](https://www.bing.com/th?id=OHR.CANYE24_ZH-CN3884754296_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BorobudurBells_EN-US6354350828_UHD.jpg&w=1000)Today: [Borobudur Temple, Java, Indonesia (© Robertharding/Shutterstock)](https://www.bing.com/th?id=OHR.BorobudurBells_EN-US6354350828_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MountFieldNP_EN-US6905459745_UHD.jpg&w=1000)Today: [Tasmanian snow gum and pandani plants near Lake Dobson, Mount Field National Park, Tasmania, Australia (© Whitworth Images/Getty Images)](https://www.bing.com/th?id=OHR.MountFieldNP_EN-US6905459745_UHD.jpg)
 <br><br/>
