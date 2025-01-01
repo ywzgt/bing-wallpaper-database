@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.PolarBearSwim_ZH-CN1000349057_UHD.jpg&w=1000)今日图片: &nbsp;[在北极玩耍的北极熊 (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.PolarBearSwim_ZH-CN1000349057_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ArdezSwitzerland_ZH-CN5605305240_UHD.jpg&w=1000)今日图片: &nbsp;[阿尔德兹村上空的星轨，格劳宾登州，瑞士 (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.ArdezSwitzerland_ZH-CN5605305240_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RioNewYear_EN-US7216341802_UHD.jpg&w=1000)Today: [New Year's Eve fireworks over Copacabana Beach, Rio de Janeiro, Brazil (© Wagner Meier/Getty Images)](https://www.bing.com/th?id=OHR.RioNewYear_EN-US7216341802_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PolarBearSwim_EN-US7610036047_UHD.jpg&w=1000)Today: [Polar bears at play in the Arctic (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.PolarBearSwim_EN-US7610036047_UHD.jpg)
 <br><br/>
