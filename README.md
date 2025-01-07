@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BouldersNZ_ZH-CN6750253580_UHD.jpg&w=1000)今日图片: &nbsp;[日落时的摩拉基大圆石，南岛，新西兰 (© Douglas Pearson/eStock Photo)](https://www.bing.com/th?id=OHR.BouldersNZ_ZH-CN6750253580_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_UHD.jpg&w=1000)今日图片: &nbsp;[被雪覆盖的长城，中国 (© View Stock/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RavennaBasilica_EN-US9585765715_UHD.jpg&w=1000)Today: [Flooded crypt, Basilica of San Francesco, Ravenna, Italy (© Andrea Pucci/Getty Images)](https://www.bing.com/th?id=OHR.RavennaBasilica_EN-US9585765715_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BouldersNZ_EN-US0112829210_UHD.jpg&w=1000)Today: [Moeraki Boulders at sunset, South Island, New Zealand (© Douglas Pearson/eStock Photo)](https://www.bing.com/th?id=OHR.BouldersNZ_EN-US0112829210_UHD.jpg)
 <br><br/>
