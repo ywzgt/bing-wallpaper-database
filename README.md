@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_UHD.jpg&w=1000)今日图片: &nbsp;[被雪覆盖的长城，中国 (© View Stock/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NamibiaDunes_ZH-CN5102483490_UHD.jpg&w=1000)今日图片: &nbsp;[苏丝斯黎沙丘，纳米布沙漠，纳米比亚 (© Airpano/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.NamibiaDunes_ZH-CN5102483490_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BouldersNZ_EN-US0112829210_UHD.jpg&w=1000)Today: [Moeraki Boulders at sunset, South Island, New Zealand (© Douglas Pearson/eStock Photo)](https://www.bing.com/th?id=OHR.BouldersNZ_EN-US0112829210_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GreatWallStairs_EN-US0360405933_UHD.jpg&w=1000)Today: [Snow on the Great Wall of China (© View Stock/Alamy)](https://www.bing.com/th?id=OHR.GreatWallStairs_EN-US0360405933_UHD.jpg)
 <br><br/>
