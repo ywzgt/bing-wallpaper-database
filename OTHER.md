@@ -1,15 +1,3 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.GreatWallStairs_JA-JP2827072518_UHD.jpg&w=1000)今日の壁紙: &nbsp;[雪化粧した万里の長城, 中国 (© View Stock/Alamy)](https://www.bing.com/th?id=OHR.GreatWallStairs_JA-JP2827072518_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.GreatWallStairs_FR-FR2831168051_UHD.jpg&w=1000)Today: [La Grande Muraille enneigée, Chine (© View Stock/Alamy)](https://www.bing.com/th?id=OHR.GreatWallStairs_FR-FR2831168051_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.GreatWallStairs_DE-DE7232445822_UHD.jpg&w=1000)Today: [Schnee auf der Großen Mauer, China (© View Stock/Alamy)](https://www.bing.com/th?id=OHR.GreatWallStairs_DE-DE7232445822_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.GreatWallStairs_ES-ES6386971861_UHD.jpg&w=1000)Today: [Nieve en la Gran Muralla, China (© View Stock/Alamy)](https://www.bing.com/th?id=OHR.GreatWallStairs_ES-ES6386971861_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.BouldersNZ_EN-GB9218282319_UHD.jpg&w=1000)Today: [Moeraki Boulders, South Island, New Zealand (© Douglas Pearson/eStock Photo)](https://www.bing.com/th?id=OHR.BouldersNZ_EN-GB9218282319_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.GreatWallStairs_IT-IT6218183610_UHD.jpg&w=1000)Today: [Neve sulla Grande Muraglia Cinese, Cina (© View Stock/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.GreatWallStairs_IT-IT6218183610_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.BouldersNZ_PT-BR5423530847_UHD.jpg&w=1000)Today: [Seixos gigantes de Moeraki ao pôr do sol, Ilha do Sul, Nova Zelândia (© Douglas Pearson/eStock Photo)](https://www.bing.com/th?id=OHR.BouldersNZ_PT-BR5423530847_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NamibiaDunes_JA-JP9057669220_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ナミブ砂漠, ナミビア (© Airpano/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.NamibiaDunes_JA-JP9057669220_UHD.jpg)
 <br><br/>
