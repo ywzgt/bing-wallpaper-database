@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.CoastalWales_JA-JP4408975920_UHD.jpg&w=1000)今日の壁紙: &nbsp;[イニス・ランドウィン, ウェールズ (© Westend61 on Offset/Shutterstock)](https://www.bing.com/th?id=OHR.CoastalWales_JA-JP4408975920_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MuseumCourt_JA-JP4665250059_UHD.jpg&w=1000)今日の壁紙: &nbsp;[大英博物館, イギリス (© Cavan Images/Offset/Shutterstock)](https://www.bing.com/th?id=OHR.MuseumCourt_JA-JP4665250059_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CoastalWales_FR-FR2215820217_UHD.jpg&w=1000)Today: [Cottage et phare de Tŵr Mawr, Ynys Llanddwyn, Pays de Galles, Royaume-Uni (© Westend61 on Offset/Shutterstock)](https://www.bing.com/th?id=OHR.CoastalWales_FR-FR2215820217_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CoastalWales_ES-ES0632862256_UHD.jpg&w=1000)Today: [Faro de Tŵr Mawr, Ynys Llanddwyn, Gales, Reino Unido (© Westend61 on Offset/Shutterstock)](https://www.bing.com/th?id=OHR.CoastalWales_ES-ES0632862256_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CrescentTail_EN-GB8341655189_UHD.jpg&w=1000)Today: [Crescent-tail bigeye fish in the Great Barrier Reef, Australia (© Fred Bavendam/Minden Pictures)](https://www.bing.com/th?id=OHR.CrescentTail_EN-GB8341655189_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CoastalWales_EN-GB8139675046_UHD.jpg&w=1000)Today: [Cottage and Tŵr Mawr lighthouse, Ynys Llanddwyn, Wales (© Westend61 on Offset/Shutterstock)](https://www.bing.com/th?id=OHR.CoastalWales_EN-GB8139675046_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CoastalWales_IT-IT6663007380_UHD.jpg&w=1000)Today: [Cottage e faro di Tŵr Mawr, Ynys Llanddwyn, Galles, Regno Unito (© Westend61 on Offset/Shutterstock)](https://www.bing.com/th?id=OHR.CoastalWales_IT-IT6663007380_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AniversarioBelem_PT-BR6953225578_UHD.jpg&w=1000)Today: [Cidade de Belém, capital do estado do Pará (© luoman/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.AniversarioBelem_PT-BR6953225578_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CoastalWales_PT-BR5316082485_UHD.jpg&w=1000)Today: [Casa de campo e farol Tŵr Mawr, Ynys Llanddwyn, País de Gales, Reino Unido (© Westend61 on Offset/Shutterstock)](https://www.bing.com/th?id=OHR.CoastalWales_PT-BR5316082485_UHD.jpg)
 <br><br/>
