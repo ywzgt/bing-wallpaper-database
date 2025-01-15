@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.PointeDiable_ZH-CN0610493136_UHD.jpg&w=1000)今日图片: &nbsp;[Pointe du Diable，圣皮埃尔，留尼汪岛 (© MONTICO Lionel/Alamy)](https://www.bing.com/th?id=OHR.PointeDiable_ZH-CN0610493136_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PinnaclesPeaks_ZH-CN1603877182_UHD.jpg&w=1000)今日图片: &nbsp;[尖峰国家公园的高峰步道，圣贝尼托县，加利福尼亚州，美国 (© yhelfman/Getty Images)](https://www.bing.com/th?id=OHR.PinnaclesPeaks_ZH-CN1603877182_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_UHD.jpg&w=1000)Today: [Village of Zahara de la Sierra overlooking Zahara-El Gastor Reservoir, Cádiz province, Spain (© SEN LI/Getty Images)](https://www.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_UHD.jpg&w=1000)Today: [The Great Court of the British Museum, London, England (© Cavan Images/Offset/Shutterstock)](https://www.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_UHD.jpg)
 <br><br/>
