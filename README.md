@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.DutchSquirrel_ZH-CN3896893818_UHD.jpg&w=1000)今日图片: &nbsp;[欧亚红松鼠与毒蘑菇 (© Edwin Giesbers/Minden Pictures)](https://www.bing.com/th?id=OHR.DutchSquirrel_ZH-CN3896893818_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_UHD.jpg&w=1000)今日图片: &nbsp;[俯瞰那不勒斯湾和维苏威火山，意大利 (© ezypix/Getty Images)](https://www.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_UHD.jpg&w=1000)Today: [Neptune's Grotto, Sardinia, Italy (© Carlo Murenu/Getty Images)](https://www.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KingMemorial_EN-US1319830882_UHD.jpg&w=1000)Today: [Martin Luther King Jr. Memorial in Washington, DC (© Win McNamee/Getty Images)](https://www.bing.com/th?id=OHR.KingMemorial_EN-US1319830882_UHD.jpg)
 <br><br/>
