@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.CanyonSnow_ZH-CN3910130781_UHD.jpg&w=1000)今日图片: &nbsp;[琐罗亚斯德神庙，大峡谷国家公园，亚利桑那州，美国 (© Nick Lake/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CanyonSnow_ZH-CN3910130781_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LunarNewYearEve25Y_ZH-CN6059625695_UHD.jpg&w=1000)今日图片: &nbsp;[夜空中的烟花表演，长沙，湖南省，中国 (© Sino Images/Getty Images)](https://www.bing.com/th?id=OHR.LunarNewYearEve25Y_ZH-CN6059625695_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.FrostedBeech_EN-US8264026523_UHD.jpg&w=1000)Today: [European beech forest in Belgium (© Philippe Moes/Minden Pictures)](https://www.bing.com/th?id=OHR.FrostedBeech_EN-US8264026523_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CanyonSnow_EN-US8514636141_UHD.jpg&w=1000)Today: [Zoroaster Temple, Grand Canyon National Park, Arizona (© Nick Lake/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CanyonSnow_EN-US8514636141_UHD.jpg)
 <br><br/>
