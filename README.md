@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.FestungKonigsteinElbsandsteingebirge_ZH-CN2192655745_UHD.jpg&w=1000)今日图片: &nbsp;[国王岩堡垒 , 瑞士撒克逊, 德国 (© Bildagentur-online/Exss/Alamy)](https://www.bing.com/th?id=OHR.FestungKonigsteinElbsandsteingebirge_ZH-CN2192655745_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AustriaMarmot_ZH-CN2303743586_UHD.jpg&w=1000)今日图片: &nbsp;[年幼的高山土拨鼠 (© Jonas Fichtner-Pflaum/Getty Images)](https://www.bing.com/th?id=OHR.AustriaMarmot_ZH-CN2303743586_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_UHD.jpg&w=1000)Today: [Plains zebras at sunrise, Mokala National Park, South Africa (© EcoPrint/Shutterstock)](https://www.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_UHD.jpg&w=1000)Today: [National Museum of African American History & Culture, Washington, DC (© BrianPIrwin/Shutterstock)](https://www.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_UHD.jpg)
 <br><br/>
