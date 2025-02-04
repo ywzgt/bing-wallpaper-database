@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_UHD.jpg&w=1000)今日图片: &nbsp;[金桥，巴拿山，岘港，越南 (© Hien Phung Thu/Shutterstock)](https://www.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ScottishSheep_ZH-CN3051181797_UHD.jpg&w=1000)今日图片: &nbsp;[拱门群岛，瓦拉里基海滩，南岛，新西兰 (© Francesco Vaninetti/AWL/plainpicture)](https://www.bing.com/th?id=OHR.ScottishSheep_ZH-CN3051181797_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RibbleheadViaduct_EN-US0244245382_UHD.jpg&w=1000)Today: [Ribblehead Viaduct and Ingleborough mountain, North Yorkshire, England (© AWL Images/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.RibbleheadViaduct_EN-US0244245382_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GoldenBridge_EN-US3362533203_UHD.jpg&w=1000)Today: [Golden Bridge, Bà Nà Hills, Da Nang, Vietnam (© Hien Phung Thu/Shutterstock)](https://www.bing.com/th?id=OHR.GoldenBridge_EN-US3362533203_UHD.jpg)
 <br><br/>
