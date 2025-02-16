@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.HumpbackMother_JA-JP4098515390_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ザトウクジラの親子, トンガ (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.HumpbackMother_JA-JP4098515390_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YungangGrottoes_JA-JP4266553262_UHD.jpg&w=1000)今日の壁紙: &nbsp;[雲崗石窟, 中国 山西省 (© Eric Yang/Getty Images)](https://www.bing.com/th?id=OHR.YungangGrottoes_JA-JP4266553262_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.HumpbackMother_FR-FR6742238424_UHD.jpg&w=1000)Today: [Baleine à bosse et son baleineau, Tonga (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.HumpbackMother_FR-FR6742238424_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.HumpbackMother_ES-ES0131114853_UHD.jpg&w=1000)Today: [Madre y cría de ballena jorobada, Tonga (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.HumpbackMother_ES-ES0131114853_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BigGardenBirdwatch2025_EN-GB9755191158_UHD.jpg&w=1000)Today: [A kingfisher perched on a branch (© NJphoto/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BigGardenBirdwatch2025_EN-GB9755191158_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HumpbackMother_EN-GB6474861873_UHD.jpg&w=1000)Today: [Humpback whale mother and calf, Tonga (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.HumpbackMother_EN-GB6474861873_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.HumpbackMother_IT-IT2396976116_UHD.jpg&w=1000)Today: [Megattera con prole, Tonga (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.HumpbackMother_IT-IT2396976116_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Misotsuchi2025_PT-BR6356787037_UHD.jpg&w=1000)Today: [Pingentes de gelo em Misotsuchi, Chichibu, Japão (© watayu0821/Shutterstock)](https://www.bing.com/th?id=OHR.Misotsuchi2025_PT-BR6356787037_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HumpbackMother_PT-BR8222764895_UHD.jpg&w=1000)Today: [Mãe e filhote de baleia-jubarte, Tonga (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.HumpbackMother_PT-BR8222764895_UHD.jpg)
 <br><br/>
