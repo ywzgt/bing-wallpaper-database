@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.IceHoleOtter_ZH-CN0106321041_UHD.jpg&w=1000)今日图片: &nbsp;[欧亚水獭，莱利斯塔德，荷兰 (© Ernst Dirksen/Minden Pictures)](https://www.bing.com/th?id=OHR.IceHoleOtter_ZH-CN0106321041_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CanadaDeer_ZH-CN0631345798_UHD.jpg&w=1000)今日图片: &nbsp;[马鹿，加拿大 (© Delbars/Getty Images)](https://www.bing.com/th?id=OHR.CanadaDeer_ZH-CN0631345798_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BlueBelize_EN-US7787222240_UHD.jpg&w=1000)Today: [Great Blue Hole, Belize (© JamiesOnAMission/Shutterstock)](https://www.bing.com/th?id=OHR.BlueBelize_EN-US7787222240_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IceHoleOtter_EN-US7859051687_UHD.jpg&w=1000)Today: [European river otter, Lelystad, Netherlands (© Ernst Dirksen/Minden Pictures)](https://www.bing.com/th?id=OHR.IceHoleOtter_EN-US7859051687_UHD.jpg)
 <br><br/>
