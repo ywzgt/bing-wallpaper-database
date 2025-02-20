@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.CanadaDeer_ZH-CN0631345798_UHD.jpg&w=1000)今日图片: &nbsp;[马鹿，加拿大 (© Delbars/Getty Images)](https://www.bing.com/th?id=OHR.CanadaDeer_ZH-CN0631345798_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChampakaSarasi_ZH-CN0254940579_UHD.jpg&w=1000)今日图片: &nbsp;[希莫加附近的 Champaka Sarasi 池塘，卡纳塔克邦，印度 (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.ChampakaSarasi_ZH-CN0254940579_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.IceHoleOtter_EN-US7859051687_UHD.jpg&w=1000)Today: [European river otter, Lelystad, Netherlands (© Ernst Dirksen/Minden Pictures)](https://www.bing.com/th?id=OHR.IceHoleOtter_EN-US7859051687_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AdamsYosemite_EN-US7924059397_UHD.jpg&w=1000)Today: [Alpenglow on Half Dome, Yosemite National Park, California (© Matthew Kuhns/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AdamsYosemite_EN-US7924059397_UHD.jpg)
 <br><br/>
