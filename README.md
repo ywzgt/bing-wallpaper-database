@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ChampakaSarasi_ZH-CN0254940579_UHD.jpg&w=1000)今日图片: &nbsp;[希莫加附近的 Champaka Sarasi 池塘，卡纳塔克邦，印度 (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.ChampakaSarasi_ZH-CN0254940579_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.StLouisArch_ZH-CN0442955735_UHD.jpg&w=1000)今日图片: &nbsp;[圣路易斯拱门, 密苏里州, 美国 (© f11photo/Getty Images)](https://www.bing.com/th?id=OHR.StLouisArch_ZH-CN0442955735_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AdamsYosemite_EN-US7924059397_UHD.jpg&w=1000)Today: [Alpenglow on Half Dome, Yosemite National Park, California (© Matthew Kuhns/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AdamsYosemite_EN-US7924059397_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChampakaSarasi_EN-US0671131929_UHD.jpg&w=1000)Today: [Champaka Sarasi pond near Shivamogga, Karnataka, India (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.ChampakaSarasi_EN-US0671131929_UHD.jpg)
 <br><br/>
