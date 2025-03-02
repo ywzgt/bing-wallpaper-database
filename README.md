@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.EucalyptusForest_ZH-CN3052498076_UHD.jpg&w=1000)今日图片: &nbsp;[桉树，梅加龙谷，蓝山山脉国家公园，新南威尔士州，澳大利亚 (© Andrew Peacock/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.EucalyptusForest_ZH-CN3052498076_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HornbillPair_ZH-CN3380997666_UHD.jpg&w=1000)今日图片: &nbsp;[南黄弯嘴犀鸟，克鲁格国家公园 ，南非 (© Richard Du Toit/Minden Pictures)](https://www.bing.com/th?id=OHR.HornbillPair_ZH-CN3380997666_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SuffragetteCity_EN-US2883743791_UHD.jpg&w=1000)Today: [Dr. Anna Howard Shaw leading a suffrage parade in 1910s New York City (© Bettmann/Getty Images)](https://www.bing.com/th?id=OHR.SuffragetteCity_EN-US2883743791_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EucalyptusForest_EN-US3015819767_UHD.jpg&w=1000)Today: [Eucalyptus trees, Megalong Valley, Blue Mountains National Park, NSW, Australia (© Andrew Peacock/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.EucalyptusForest_EN-US3015819767_UHD.jpg)
 <br><br/>
