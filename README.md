@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.NevadaBigHorns_ZH-CN5987046965_UHD.jpg&w=1000)今日图片: &nbsp;[沙漠大角羊，内华达州火焰谷州立公园，美国 (© Rachid Dahnoun/Cavan Images)](https://www.bing.com/th?id=OHR.NevadaBigHorns_ZH-CN5987046965_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PlumBlossom_ZH-CN5888621119_UHD.jpg&w=1000)今日图片: &nbsp;[中国的梅花 (© zhikun sun/Getty Images)](https://www.bing.com/th?id=OHR.PlumBlossom_ZH-CN5888621119_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SuratThani_EN-US3326265231_UHD.jpg&w=1000)Today: [Aerial view of Khao Sok National Park, Surat Thani, Thailand (© Peetatham Kongkapech/Getty Images)](https://www.bing.com/th?id=OHR.SuratThani_EN-US3326265231_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NevadaBigHorns_EN-US3434258986_UHD.jpg&w=1000)Today: [Desert bighorn sheep in Valley of Fire State Park, Nevada (© Rachid Dahnoun/Cavan Images)](https://www.bing.com/th?id=OHR.NevadaBigHorns_EN-US3434258986_UHD.jpg)
 <br><br/>
