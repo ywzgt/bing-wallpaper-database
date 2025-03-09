@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ItalyClock_ZH-CN0846995743_UHD.jpg&w=1000)今日图片: &nbsp;[圣马可钟楼，威尼斯，意大利 (© scaliger/Getty Images)](https://www.bing.com/th?id=OHR.ItalyClock_ZH-CN0846995743_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NappingLion_ZH-CN1214312983_UHD.jpg&w=1000)今日图片: &nbsp;[在伊沙沙区里正在睡觉的狮子，伊丽莎白女王国家公园，乌干达 (© Gunter Nuyts/Getty Images)](https://www.bing.com/th?id=OHR.NappingLion_ZH-CN1214312983_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.FearlessWomen_EN-US7338738180_UHD.jpg&w=1000)Today: [Fearless Girl statue facing the New York Stock Exchange, New York City (© JOHANNES EISELE/AFP via Getty Images)](https://www.bing.com/th?id=OHR.FearlessWomen_EN-US7338738180_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ItalyClock_EN-US7397391355_UHD.jpg&w=1000)Today: [St. Mark's Clock Tower, Venice, Italy (© scaliger/Getty Images)](https://www.bing.com/th?id=OHR.ItalyClock_EN-US7397391355_UHD.jpg)
 <br><br/>
