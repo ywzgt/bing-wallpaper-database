@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TohokuEarthquake2025_JA-JP8965651144_UHD.jpg&w=1000)今日の壁紙: &nbsp;[追悼イベントの灯籠, 宮城県 名取市 (© Kuni Takahashi/寄稿者/Getty Images)](https://www.bing.com/th?id=OHR.TohokuEarthquake2025_JA-JP8965651144_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Omizutori2025_JA-JP2990990687_UHD.jpg&w=1000)今日の壁紙: &nbsp;[東大寺, 奈良県 奈良市 (© Chris Willson/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.Omizutori2025_JA-JP2990990687_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.NusaPenida_FR-FR6937590982_UHD.jpg&w=1000)Today: [Broken Beach à Nusa Penida, Bali, Indonésie (© joakimbkk/Getty Images)](https://www.bing.com/th?id=OHR.NusaPenida_FR-FR6937590982_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.NusaPenida_ES-ES7408212429_UHD.jpg&w=1000)Today: [Playa Rota en Nusa Penida, Bali, Indonesia (© joakimbkk/Getty Images)](https://www.bing.com/th?id=OHR.NusaPenida_ES-ES7408212429_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.NappingLion_EN-GB1135783379_UHD.jpg&w=1000)Today: [A lion sleeping in Ishasha Sector, Queen Elizabeth National Park, Uganda (© Gunter Nuyts/Getty Images)](https://www.bing.com/th?id=OHR.NappingLion_EN-GB1135783379_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NusaPenida_EN-GB1392461130_UHD.jpg&w=1000)Today: [Broken Beach in Nusa Penida, Bali, Indonesia (© joakimbkk/Getty Images)](https://www.bing.com/th?id=OHR.NusaPenida_EN-GB1392461130_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.NusaPenida_IT-IT9952682567_UHD.jpg&w=1000)Today: [Broken Beach, Nusa Penida, Bali, Indonesia (© joakimbkk/Getty Images)](https://www.bing.com/th?id=OHR.NusaPenida_IT-IT9952682567_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AndorinhaodeCascata_PT-BR6572671128_UHD.jpg&w=1000)Today: [Bando de andorinhões-velhos (Cypseloides senex) em frente às Cataratas do Iguaçu, Paraná (© Angelo Gandolfi/Minden PIctures)](https://www.bing.com/th?id=OHR.AndorinhaodeCascata_PT-BR6572671128_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NusaPenida_PT-BR7092841551_UHD.jpg&w=1000)Today: [Praia Quebrada em Nusa Penida, Bali, Indonésia (© joakimbkk/Getty Images)](https://www.bing.com/th?id=OHR.NusaPenida_PT-BR7092841551_UHD.jpg)
 <br><br/>
