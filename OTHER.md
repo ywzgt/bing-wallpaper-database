@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Omizutori2025_JA-JP2990990687_UHD.jpg&w=1000)今日の壁紙: &nbsp;[東大寺, 奈良県 奈良市 (© Chris Willson/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.Omizutori2025_JA-JP2990990687_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HoliColors_JA-JP6070846521_UHD.jpg&w=1000)今日の壁紙: &nbsp;[カラフルな色粉を投げ合う祭り, インド (© powerofforever/Getty Images)](https://www.bing.com/th?id=OHR.HoliColors_JA-JP6070846521_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ChateauLoire_FR-FR7082040465_UHD.jpg&w=1000)Today: [Château de Sully-sur-Loire, Centre-Val de Loire (© StockPhotoAstur/Shutterstock)](https://www.bing.com/th?id=OHR.ChateauLoire_FR-FR7082040465_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ChateauLoire_ES-ES7509416514_UHD.jpg&w=1000)Today: [Castillo de Sully-sur-Loire, Centro-Valle de Loira, Francia (© StockPhotoAstur/Shutterstock)](https://www.bing.com/th?id=OHR.ChateauLoire_ES-ES7509416514_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.NusaPenida_EN-GB1392461130_UHD.jpg&w=1000)Today: [Broken Beach in Nusa Penida, Bali, Indonesia (© joakimbkk/Getty Images)](https://www.bing.com/th?id=OHR.NusaPenida_EN-GB1392461130_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChateauLoire_EN-GB1678598719_UHD.jpg&w=1000)Today: [Château de Sully-sur-Loire, Center-Val de Loire, France (© StockPhotoAstur/Shutterstock)](https://www.bing.com/th?id=OHR.ChateauLoire_EN-GB1678598719_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ChateauLoire_IT-IT0010511029_UHD.jpg&w=1000)Today: [Castello di Sully-sur-Loire, Centre-Val de Loire, Francia (© StockPhotoAstur/Shutterstock)](https://www.bing.com/th?id=OHR.ChateauLoire_IT-IT0010511029_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.NusaPenida_PT-BR7092841551_UHD.jpg&w=1000)Today: [Praia Quebrada em Nusa Penida, Bali, Indonésia (© joakimbkk/Getty Images)](https://www.bing.com/th?id=OHR.NusaPenida_PT-BR7092841551_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChateauLoire_PT-BR8314992777_UHD.jpg&w=1000)Today: [Castelo de Sully-sur-Loire, Centro-Vale do Loire, França (© StockPhotoAstur/Shutterstock)](https://www.bing.com/th?id=OHR.ChateauLoire_PT-BR8314992777_UHD.jpg)
 <br><br/>
