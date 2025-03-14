@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BasqueDolmen_JA-JP6281411037_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ソルギネチェ・ドルメン, スペイン (© David Herraez Calzada/plainpicture)](https://www.bing.com/th?id=OHR.BasqueDolmen_JA-JP6281411037_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ForumRomanum_JA-JP6466904487_UHD.jpg&w=1000)今日の壁紙: &nbsp;[サートゥルヌス神殿, イタリア (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/th?id=OHR.ForumRomanum_JA-JP6466904487_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BasqueDolmen_FR-FR8212950561_UHD.jpg&w=1000)Today: [Dolmen de Sorginetxe, Pays Basque, Alava, Espagne (© David Herraez Calzada/plainpicture)](https://www.bing.com/th?id=OHR.BasqueDolmen_FR-FR8212950561_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BasqueDolmen_ES-ES7735714145_UHD.jpg&w=1000)Today: [Dolmen de Sorginetxe, País Vasco, Álava, España (© David Herraez Calzada/plainpicture)](https://www.bing.com/th?id=OHR.BasqueDolmen_ES-ES7735714145_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HoliColors_EN-GB1907650380_UHD.jpg&w=1000)Today: [Holi celebration in Jaipur, India (© powerofforever/Getty Images)](https://www.bing.com/th?id=OHR.HoliColors_EN-GB1907650380_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BasqueDolmen_EN-GB2189832080_UHD.jpg&w=1000)Today: [Dolmen of Sorginetxe, Basque Country, Alava, Spain (© David Herraez Calzada/plainpicture)](https://www.bing.com/th?id=OHR.BasqueDolmen_EN-GB2189832080_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BasqueDolmen_IT-IT0162501946_UHD.jpg&w=1000)Today: [Dolmen di Sorginetxe, Paesi Baschi, Alava, Spagna (© David Herraez Calzada/plainpicture)](https://www.bing.com/th?id=OHR.BasqueDolmen_IT-IT0162501946_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HoliColors_PT-BR8231295539_UHD.jpg&w=1000)Today: [Celebração de Holi em Jaipur, Índia (© powerofforever/Getty Images)](https://www.bing.com/th?id=OHR.HoliColors_PT-BR8231295539_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BasqueDolmen_PT-BR6370690979_UHD.jpg&w=1000)Today: [Dólmen de Sorginetxe, País Basco, Álava, Espanha (© David Herraez Calzada/plainpicture)](https://www.bing.com/th?id=OHR.BasqueDolmen_PT-BR6370690979_UHD.jpg)
 <br><br/>
