@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SedonaSpring_JA-JP0072901423_UHD.jpg&w=1000)今日の壁紙: &nbsp;[セドナ, 米国 アリゾナ州 (© Jim Ekstrand/Alamy)](https://www.bing.com/th?id=OHR.SedonaSpring_JA-JP0072901423_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BlackHeron_JA-JP0377876469_UHD.jpg&w=1000)今日の壁紙: &nbsp;[チョベ国立公園 , ボツワナ (© Paul Souders/Minden Pictures)](https://www.bing.com/th?id=OHR.BlackHeron_JA-JP0377876469_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SedonaSpring_FR-FR0140900404_UHD.jpg&w=1000)Today: [Formations rocheuses rouges, Sedona, Arizona, États-Unis (© Jim Ekstrand/Alamy)](https://www.bing.com/th?id=OHR.SedonaSpring_FR-FR0140900404_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SedonaSpring_ES-ES8257183608_UHD.jpg&w=1000)Today: [Formaciones rocosas, Sedona, Arizona, EE. UU. (© Jim Ekstrand/Alamy)](https://www.bing.com/th?id=OHR.SedonaSpring_ES-ES8257183608_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BeckettBridge_EN-GB2641883580_UHD.jpg&w=1000)Today: [Samuel Beckett Bridge, Dublin, Ireland (© Colm Keating/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BeckettBridge_EN-GB2641883580_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SedonaSpring_EN-GB2852810114_UHD.jpg&w=1000)Today: [Red rock formations, Sedona, Arizona, United States (© Jim Ekstrand/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.SedonaSpring_EN-GB2852810114_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SedonaSpring_IT-IT2929229885_UHD.jpg&w=1000)Today: [Formazioni rocciose rosse, Sedona, Arizona, USA (© Jim Ekstrand/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.SedonaSpring_IT-IT2929229885_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BeckettBridge_PT-BR3137652720_UHD.jpg&w=1000)Today: [Ponte Samuel Beckett, Dublin, Irlanda (© Colm Keating/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BeckettBridge_PT-BR3137652720_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SedonaSpring_PT-BR2515283879_UHD.jpg&w=1000)Today: [Formações de rocha vermelha, Sedona, Arizona, EUA (© Jim Ekstrand/Alamy)](https://www.bing.com/th?id=OHR.SedonaSpring_PT-BR2515283879_UHD.jpg)
 <br><br/>
