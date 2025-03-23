@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.NebraskaStorm_ZH-CN6944682381_UHD.jpg&w=1000)今日图片: &nbsp;[鲍曼附近日落时分的闪电和风暴云，布拉斯加州，美国 (© john finney photography/Getty Images)](https://www.bing.com/th?id=OHR.NebraskaStorm_ZH-CN6944682381_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ElephantGrass_ZH-CN7110191053_UHD.jpg&w=1000)今日图片: &nbsp;[沙漠象与小象在高高的草丛中觅食，纳米比亚 (© Christophe Courteau/Minden Pictures)](https://www.bing.com/th?id=OHR.ElephantGrass_ZH-CN7110191053_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CenoteLilies_EN-US1076301699_UHD.jpg&w=1000)Today: [Water lilies at the surface of Cenote Nicte-Ha, Tulum, Mexico (© Franco Banfi/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.CenoteLilies_EN-US1076301699_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NebraskaStorm_EN-US1163295363_UHD.jpg&w=1000)Today: [Lightning and storm clouds at sunset near Bowman, Nebraska (© john finney photography/Getty Images)](https://www.bing.com/th?id=OHR.NebraskaStorm_EN-US1163295363_UHD.jpg)
 <br><br/>
