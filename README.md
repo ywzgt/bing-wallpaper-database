@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ElephantGrass_ZH-CN7110191053_UHD.jpg&w=1000)今日图片: &nbsp;[沙漠象与小象在高高的草丛中觅食，纳米比亚 (© Christophe Courteau/Minden Pictures)](https://www.bing.com/th?id=OHR.ElephantGrass_ZH-CN7110191053_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GoldfinchSunflower_ZH-CN7276848190_UHD.jpg&w=1000)今日图片: &nbsp;[向日葵田里的红额金翅雀，德国 (© Juniors Bildarchiv GmbH/Alamy)](https://www.bing.com/th?id=OHR.GoldfinchSunflower_ZH-CN7276848190_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.NebraskaStorm_EN-US1163295363_UHD.jpg&w=1000)Today: [Lightning and storm clouds at sunset near Bowman, Nebraska (© john finney photography/Getty Images)](https://www.bing.com/th?id=OHR.NebraskaStorm_EN-US1163295363_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ElephantGrass_EN-US1398774650_UHD.jpg&w=1000)Today: [Desert elephant with calf feeding on tall grass, Namibia (© Christophe Courteau/Minden Pictures)](https://www.bing.com/th?id=OHR.ElephantGrass_EN-US1398774650_UHD.jpg)
 <br><br/>
