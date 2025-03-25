@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.HobbitHole_JA-JP0242283883_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ホビット穴, ニュージーランド (© Kim Petersen/Alamy)](https://www.bing.com/th?id=OHR.HobbitHole_JA-JP0242283883_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CrystalManatee_JA-JP0403735948_UHD.jpg&w=1000)今日の壁紙: &nbsp;[クリスタルリバーのマナティー, 米国 フロリダ州 (© Stephen Frink/Getty Images)](https://www.bing.com/th?id=OHR.CrystalManatee_JA-JP0403735948_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ProcrastinationD_FR-FR5977849258_UHD.jpg&w=1000)Today: [Marmottes des Alpes, Marmota Marmota, Hautes Pyrénées (© Yann Guichaoua-Photos/Getty Images)](https://www.bing.com/th?id=OHR.ProcrastinationD_FR-FR5977849258_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.HobbitHole_ES-ES0003424206_UHD.jpg&w=1000)Today: [Set de rodaje de Hobbiton, Waikato, Nueva Zelanda (© Kim Petersen/Alamy)](https://www.bing.com/th?id=OHR.HobbitHole_ES-ES0003424206_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SydneyHarbour_EN-GB4487505878_UHD.jpg&w=1000)Today: [Aerial view of Sydney Harbour, New South Wales, Australia (© jamenpercy/Getty Images)](https://www.bing.com/th?id=OHR.SydneyHarbour_EN-GB4487505878_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HobbitHole_EN-GB4657800200_UHD.jpg&w=1000)Today: [Hobbit-hole in Hobbiton Movie Set, Waikato, New Zealand (© Kim Petersen/Alamy)](https://www.bing.com/th?id=OHR.HobbitHole_EN-GB4657800200_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.HobbitHole_IT-IT4670453023_UHD.jpg&w=1000)Today: [Set cinematografico di Hobbiton, Waikato, Nuova Zelanda (© Kim Petersen/Alamy)](https://www.bing.com/th?id=OHR.HobbitHole_IT-IT4670453023_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ElephantGrass_PT-BR3216599628_UHD.jpg&w=1000)Today: [Elefante do deserto e filhote se alimentando de capim alto, Namíbia (© Christophe Courteau/Minden Pictures)](https://www.bing.com/th?id=OHR.ElephantGrass_PT-BR3216599628_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HobbitHole_PT-BR3505721591_UHD.jpg&w=1000)Today: [Buraco de Hobbit no set de filmagem de Hobbiton, Waikato, Nova Zelândia (© Kim Petersen/Alamy)](https://www.bing.com/th?id=OHR.HobbitHole_PT-BR3505721591_UHD.jpg)
 <br><br/>
