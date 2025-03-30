@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SydneyHarbour_JA-JP1159048271_UHD.jpg&w=1000)今日の壁紙: &nbsp;[シドニー・ハーバー, オーストラリア ニューサウスウェールズ州 (© jamenpercy/Getty Images)](https://www.bing.com/th?id=OHR.SydneyHarbour_JA-JP1159048271_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ItalyOstuni_JA-JP1339145959_UHD.jpg&w=1000)今日の壁紙: &nbsp;[夕暮れのオストゥーニ, イタリア プッリャ州 (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.ItalyOstuni_JA-JP1339145959_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ItalyClock_FR-FR5009254968_UHD.jpg&w=1000)Today: [Tour de l'horloge de Saint-Marc, Venise, Italie (© scaliger/Getty Images)](https://www.bing.com/th?id=OHR.ItalyClock_FR-FR5009254968_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.Clock_IT-IT7164959440_UHD.jpg&w=1000)Today: [Torre dell'Orologio e statua in marmo del Leone alato di San Marco, Piazza dei Signori, Padova, Veneto (© Alberto Masnovo/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.Clock_IT-IT7164959440_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CarrizoBloom_PT-BR8458116464_UHD.jpg&w=1000)Today: [Superfloração no Monumento Nacional Carrizo Plain, Califórnia, EUA (© Robb Hirsch/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CarrizoBloom_PT-BR8458116464_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SydneyHarbour_PT-BR9026745479_UHD.jpg&w=1000)Today: [Vista aérea do Porto de Sydney, Nova Gales do Sul, Austrália (© jamenpercy/Getty Images)](https://www.bing.com/th?id=OHR.SydneyHarbour_PT-BR9026745479_UHD.jpg)
 <br><br/>
