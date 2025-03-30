@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SydneyHarbour_ZH-CN8119451632_UHD.jpg&w=1000)今日图片: &nbsp;[悉尼港鸟瞰图，新南威尔士州，澳大利亚 (© jamenpercy/Getty Images)](https://www.bing.com/th?id=OHR.SydneyHarbour_ZH-CN8119451632_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ItalyOstuni_ZH-CN8306220080_UHD.jpg&w=1000)今日图片: &nbsp;[黄昏下的奥斯图尼, 普利亚, 意大利 (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.ItalyOstuni_ZH-CN8306220080_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CarrizoBloom_EN-US2504669059_UHD.jpg&w=1000)Today: [Superbloom in Carrizo Plain National Monument, California (© Robb Hirsch/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CarrizoBloom_EN-US2504669059_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SydneyHarbour_EN-US2885246621_UHD.jpg&w=1000)Today: [Aerial view of Sydney Harbour, New South Wales, Australia (© jamenpercy/Getty Images)](https://www.bing.com/th?id=OHR.SydneyHarbour_EN-US2885246621_UHD.jpg)
 <br><br/>
