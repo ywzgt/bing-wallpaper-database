@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.GaztelugatxeSunset_ZH-CN0553703567_UHD.jpg&w=1000)今日图片: &nbsp;[日落时分的加兹特鲁加特岛 , 巴斯克地区, 西班牙 (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.GaztelugatxeSunset_ZH-CN0553703567_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ShardLondon2025_ZH-CN0722863055_UHD.jpg&w=1000)今日图片: &nbsp;[碎片大厦，伦敦 (© Dennis Fischer Photography/Moment/Getty Images)](https://www.bing.com/th?id=OHR.ShardLondon2025_ZH-CN0722863055_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CherryBlossomDC_EN-US9897772834_UHD.jpg&w=1000)Today: [The National Cherry Blossom Festival in Washington, DC (© f11photo/Getty Images)](https://www.bing.com/th?id=OHR.CherryBlossomDC_EN-US9897772834_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GaztelugatxeSunset_EN-US9970203395_UHD.jpg&w=1000)Today: [Gaztelugatxe at sunset, Basque Country, Spain (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.GaztelugatxeSunset_EN-US9970203395_UHD.jpg)
 <br><br/>
