@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SpringDaffodils_ZH-CN6737270212_UHD.jpg&w=1000)今日图片: &nbsp;[春天的水仙花在清晨绽放 (© LedyX/Shutterstock)](https://www.bing.com/th?id=OHR.SpringDaffodils_ZH-CN6737270212_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BlueNaxos_ZH-CN7863097040_UHD.jpg&w=1000)今日图片: &nbsp;[纳克索斯岛的蓝色时刻，基克拉泽斯群岛，希腊 (© Sizun Eye/Getty Images)](https://www.bing.com/th?id=OHR.BlueNaxos_ZH-CN7863097040_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BeaverDay_EN-US0090956170_UHD.jpg&w=1000)Today: [North American beaver, Moran, Wyoming (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.BeaverDay_EN-US0090956170_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ParoTsechu_EN-US0177055246_UHD.jpg&w=1000)Today: [Women in traditional dress at the Paro Tshechu Festival in Bhutan (© Richard I'Anson/Getty Images)](https://www.bing.com/th?id=OHR.ParoTsechu_EN-US0177055246_UHD.jpg)
 <br><br/>
