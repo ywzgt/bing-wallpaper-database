@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SpaceFlight_JA-JP4398798070_UHD.jpg&w=1000)今日の壁紙: &nbsp;[キューポラから見た地球 (© NASA)](https://www.bing.com/th?id=OHR.SpaceFlight_JA-JP4398798070_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ThailandPagodas_JA-JP4544592836_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ワット・タン・サイ寺院, タイ (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.ThailandPagodas_JA-JP4544592836_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SpaceFlight_FR-FR9020944555_UHD.jpg&w=1000)Today: [Vue de la coupole de la Station spatiale internationale au-dessus de l'océan Pacifique Sud (© NASA)](https://www.bing.com/th?id=OHR.SpaceFlight_FR-FR9020944555_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SpaceFlight_IT-IT7664385047_UHD.jpg&w=1000)Today: [Vista dalla cupola della Stazione Spaziale Internazionale sopra l'Oceano Pacifico meridionale (© NASA)](https://www.bing.com/th?id=OHR.SpaceFlight_IT-IT7664385047_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TulipsWindmill_PT-BR1514723393_UHD.jpg&w=1000)Today: [Campo de Tulipas nos Países Baixos (© 1111IESPDJ/Getty Images)](https://www.bing.com/th?id=OHR.TulipsWindmill_PT-BR1514723393_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpaceFlight_PT-BR1652543641_UHD.jpg&w=1000)Today: [Vista da cúpula da Estação Espacial Internacional sobre o Oceano Pacífico Sul (© NASA)](https://www.bing.com/th?id=OHR.SpaceFlight_PT-BR1652543641_UHD.jpg)
 <br><br/>
