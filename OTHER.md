@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ThailandPagodas_JA-JP4544592836_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ワット・タン・サイ寺院, タイ (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.ThailandPagodas_JA-JP4544592836_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TakayamaFestival2025_JA-JP4780504174_UHD.jpg&w=1000)今日の壁紙: &nbsp;[精巧なからくり人形, 岐阜県 高山市 (© N. F. Photography/Shutterstock)](https://www.bing.com/th?id=OHR.TakayamaFestival2025_JA-JP4780504174_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ThailandPagodas_FR-FR9765190330_UHD.jpg&w=1000)Today: [Temple Wat Tang Sai à Ban Krut, Thaïlande (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.ThailandPagodas_FR-FR9765190330_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ThailandPagodas_IT-IT7756165601_UHD.jpg&w=1000)Today: [Tempio Wat Tang Sai a Ban Krut, Thailandia (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.ThailandPagodas_IT-IT7756165601_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SpaceFlight_PT-BR1652543641_UHD.jpg&w=1000)Today: [Vista da cúpula da Estação Espacial Internacional sobre o Oceano Pacífico Sul (© NASA)](https://www.bing.com/th?id=OHR.SpaceFlight_PT-BR1652543641_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AniversarioFortaleza_PT-BR2253033645_UHD.jpg&w=1000)Today: [Vista aérea da Praia de Iracema, Fortaleza, Ceará, Brasil (© stocklapse/Getty Images)](https://www.bing.com/th?id=OHR.AniversarioFortaleza_PT-BR2253033645_UHD.jpg)
 <br><br/>
