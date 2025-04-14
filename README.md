@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SpottedDolphins_ZH-CN1257100316_UHD.jpg&w=1000)今日图片: &nbsp;[圣玛丽亚岛附近的大西洋细吻海豚，亚速尔群岛，葡萄牙 (© Jordi Chias/Minden Pictures)](https://www.bing.com/th?id=OHR.SpottedDolphins_ZH-CN1257100316_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CerezoEnFlor_ZH-CN2951543796_UHD.jpg&w=1000)今日图片: &nbsp;[卡拉奥拉城堡，格拉纳达，西班牙 (© Ugo Mellone/eStock Photo)](https://www.bing.com/th?id=OHR.CerezoEnFlor_ZH-CN2951543796_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ThailandPagodas_EN-US8039751329_UHD.jpg&w=1000)Today: [Wat Tang Sai Temple in Ban Krut, Thailand (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.ThailandPagodas_EN-US8039751329_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpottedDolphins_EN-US0872892049_UHD.jpg&w=1000)Today: [Atlantic spotted dolphins near Santa Maria Island, Azores, Portugal (© Jordi Chias/Minden Pictures)](https://www.bing.com/th?id=OHR.SpottedDolphins_EN-US0872892049_UHD.jpg)
 <br><br/>
