@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TakayamaFestival2025_JA-JP4780504174_UHD.jpg&w=1000)今日の壁紙: &nbsp;[精巧なからくり人形, 岐阜県 高山市 (© N. F. Photography/Shutterstock)](https://www.bing.com/th?id=OHR.TakayamaFestival2025_JA-JP4780504174_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BeachArt_JA-JP4983678633_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ビーチに描かれた巨大な絵, フランス (© Hemis/Alamy)](https://www.bing.com/th?id=OHR.BeachArt_JA-JP4983678633_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SpottedDolphins_FR-FR1251975856_UHD.jpg&w=1000)Today: [Dauphins tachetés de l'Atlantique près de l'île de Santa Maria, Açores, Portugal (© Jordi Chias/Minden Pictures)](https://www.bing.com/th?id=OHR.SpottedDolphins_FR-FR1251975856_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SpottedDolphins_IT-IT7838462769_UHD.jpg&w=1000)Today: [Delfini nell'Atlantico, vicino all'isola di Santa Maria, Azzorre, Portogallo (© Jordi Chias/Minden Pictures)](https://www.bing.com/th?id=OHR.SpottedDolphins_IT-IT7838462769_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AniversarioFortaleza_PT-BR2253033645_UHD.jpg&w=1000)Today: [Vista aérea da Praia de Iracema, Fortaleza, Ceará, Brasil (© stocklapse/Getty Images)](https://www.bing.com/th?id=OHR.AniversarioFortaleza_PT-BR2253033645_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpottedDolphins_PT-BR4725039948_UHD.jpg&w=1000)Today: [Golfinhos-pintados-do-Atlântico perto da Ilha de Santa Maria, Açores, Portugal (© Jordi Chias/Minden Pictures)](https://www.bing.com/th?id=OHR.SpottedDolphins_PT-BR4725039948_UHD.jpg)
 <br><br/>
