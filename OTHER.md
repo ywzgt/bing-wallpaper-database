@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.KachinaBridge_JA-JP5136647433_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ナチュラル・ブリッジ国定公園, 米国 ユタ州 (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.KachinaBridge_JA-JP5136647433_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EcuadorBird_JA-JP5274741674_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アンデスイワドリ, エクアドル (© Kit Day/Alamy)](https://www.bing.com/th?id=OHR.EcuadorBird_JA-JP5274741674_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ToulouseBridge_FR-FR3626710676_UHD.jpg&w=1000)Today: [Pont sur la Garonne avec le Dôme de la Grave, Toulouse (© LOOK-foto/Image Professionals GmbH/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.ToulouseBridge_FR-FR3626710676_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MilanSpringCiliegi_IT-IT8049577261_UHD.jpg&w=1000)Today: [Duomo di Milano, Milano, Lombardia (© Tupungato/Getty Images)](https://www.bing.com/th?id=OHR.MilanSpringCiliegi_IT-IT8049577261_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BeachArt_PT-BR4894197418_UHD.jpg&w=1000)Today: [Arte na areia na Praia de Sauveterre por Zarpo, Les Sables-d'Olonne, Vendeia, França (© Hemis/Alamy)](https://www.bing.com/th?id=OHR.BeachArt_PT-BR4894197418_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FozdoIguacu2025_PT-BR5499701871_UHD.jpg&w=1000)Today: [Cartaratas do Iguaçu vistas de Foz do Iguaçu, Paraná, Brasil (© Stockfoto)](https://www.bing.com/th?id=OHR.FozdoIguacu2025_PT-BR5499701871_UHD.jpg)
 <br><br/>
