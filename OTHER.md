@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.EcuadorBird_JA-JP5274741674_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アンデスイワドリ, エクアドル (© Kit Day/Alamy)](https://www.bing.com/th?id=OHR.EcuadorBird_JA-JP5274741674_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GoremeTurkey_JA-JP0595841869_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ギョレメ国立公園, トルコ (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.GoremeTurkey_JA-JP0595841869_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.EcuadorBird_FR-FR4091583945_UHD.jpg&w=1000)Today: [Coq-de-roche péruvien, Écuateur (© Kit Day/Alamy)](https://www.bing.com/th?id=OHR.EcuadorBird_FR-FR4091583945_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PeabodyBaltimore_IT-IT8224367841_UHD.jpg&w=1000)Today: [Biblioteca George Peabody, Baltimore, Maryland, USA (© Wim Wiskerke/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.PeabodyBaltimore_IT-IT8224367841_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.FozdoIguacu2025_PT-BR5499701871_UHD.jpg&w=1000)Today: [Cartaratas do Iguaçu vistas de Foz do Iguaçu, Paraná, Brasil (© Stockfoto)](https://www.bing.com/th?id=OHR.FozdoIguacu2025_PT-BR5499701871_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EcuadorBird_PT-BR5045243813_UHD.jpg&w=1000)Today: [Galo-da-serra-andino, Equador (© Kit Day/Alamy)](https://www.bing.com/th?id=OHR.EcuadorBird_PT-BR5045243813_UHD.jpg)
 <br><br/>
