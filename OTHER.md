@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.GoremeTurkey_JA-JP0595841869_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ギョレメ国立公園, トルコ (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.GoremeTurkey_JA-JP0595841869_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ZionValley_JA-JP1023148962_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ザイオン国立公園, 米国 ユタ州 (© Simon Dannhauer/Getty Images)](https://www.bing.com/th?id=OHR.ZionValley_JA-JP1023148962_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BelfortLion_FR-FR4338393080_UHD.jpg&w=1000)Today: [Lion de Belfort, Bourgogne-Franche-Comté, France (© milosk50/Shutterstock)](https://www.bing.com/th?id=OHR.BelfortLion_FR-FR4338393080_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.GoremeTurkey_IT-IT1187292514_UHD.jpg&w=1000)Today: [Mongolfiere sopra il Parco Nazionale Storico di Göreme in Cappadocia, Turchia (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.GoremeTurkey_IT-IT1187292514_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.EcuadorBird_PT-BR5045243813_UHD.jpg&w=1000)Today: [Galo-da-serra-andino, Equador (© Kit Day/Alamy)](https://www.bing.com/th?id=OHR.EcuadorBird_PT-BR5045243813_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GoremeTurkey_PT-BR0414820680_UHD.jpg&w=1000)Today: [Balões sobre o Parque Nacional de Göreme, na Capadócia, Turquia (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.GoremeTurkey_PT-BR0414820680_UHD.jpg)
 <br><br/>
