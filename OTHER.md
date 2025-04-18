@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.GoremeTurkey_JA-JP0595841869_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ギョレメ国立公園, トルコ (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.GoremeTurkey_JA-JP0595841869_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.EcuadorBird_FR-FR4091583945_UHD.jpg&w=1000)Today: [Coq-de-roche péruvien, Écuateur (© Kit Day/Alamy)](https://www.bing.com/th?id=OHR.EcuadorBird_FR-FR4091583945_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BelfortLion_FR-FR4338393080_UHD.jpg&w=1000)Today: [Lion de Belfort, Bourgogne-Franche-Comté, France (© milosk50/Shutterstock)](https://www.bing.com/th?id=OHR.BelfortLion_FR-FR4338393080_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.EcuadorBird_DE-DE1431082236_UHD.jpg&w=1000)Today: [Andenfelsenhähne, Ecuador (© Kit Day/Alamy)](https://www.bing.com/th?id=OHR.EcuadorBird_DE-DE1431082236_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GoremeTurkey_DE-DE1882170025_UHD.jpg&w=1000)Today: [Heißluftballons über dem Nationalpark Göreme in Kappadokien, Türkei (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.GoremeTurkey_DE-DE1882170025_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CastroUrdiales_ES-ES0758582290_UHD.jpg&w=1000)Today: [Iglesia de Santa María de la Asunción, Castro-Urdiales, Cantabria, España (© Fotokon/Shutterstock)](https://www.bing.com/th?id=OHR.CastroUrdiales_ES-ES0758582290_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GoremeTurkey_ES-ES9181227420_UHD.jpg&w=1000)Today: [Globos aerostáticos sobre el Parque Nacional Histórico de Göreme en la Capadocia, Turquía (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.GoremeTurkey_ES-ES9181227420_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.EcuadorBird_EN-GB6287056261_UHD.jpg&w=1000)Today: [Andean cocks-of-the-rock, Ecuador (© Kit Day/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.EcuadorBird_EN-GB6287056261_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GoremeTurkey_EN-GB5053201310_UHD.jpg&w=1000)Today: [Hot air balloons over Göreme Historical National Park in Cappadocia, Türkiye (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.GoremeTurkey_EN-GB5053201310_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PeabodyBaltimore_IT-IT8224367841_UHD.jpg&w=1000)Today: [Biblioteca George Peabody, Baltimore, Maryland, USA (© Wim Wiskerke/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.PeabodyBaltimore_IT-IT8224367841_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GoremeTurkey_IT-IT1187292514_UHD.jpg&w=1000)Today: [Mongolfiere sopra il Parco Nazionale Storico di Göreme in Cappadocia, Turchia (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.GoremeTurkey_IT-IT1187292514_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.EcuadorBird_PT-BR5045243813_UHD.jpg&w=1000)Today: [Galo-da-serra-andino, Equador (© Kit Day/Alamy)](https://www.bing.com/th?id=OHR.EcuadorBird_PT-BR5045243813_UHD.jpg)
 <br><br/>
