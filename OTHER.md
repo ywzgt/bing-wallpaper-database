@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BunnyLove_JA-JP1230746476_UHD.jpg&w=1000)今日の壁紙: &nbsp;[野生の子ウサギ (© Fiona McAllister Photography/Getty Images)](https://www.bing.com/th?id=OHR.BunnyLove_JA-JP1230746476_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JoshuaStars_JA-JP1506519282_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ジョシュア・ツリー国立公園の天の川, 米国 カリフォルニア州 (© Chao Zhang/Getty Images)](https://www.bing.com/th?id=OHR.JoshuaStars_JA-JP1506519282_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BunnyLove_FR-FR9891527833_UHD.jpg&w=1000)Today: [Lapins de Garenne au printemps (© Fiona McAllister Photography/Getty Images)](https://www.bing.com/th?id=OHR.BunnyLove_FR-FR9891527833_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BunnyLove_IT-IT3916580301_UHD.jpg&w=1000)Today: [Coniglietti selvatici in primavera (© Fiona McAllister Photography/Getty Images)](https://www.bing.com/th?id=OHR.BunnyLove_IT-IT3916580301_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ZionValley_PT-BR8868751465_UHD.jpg&w=1000)Today: [Parque Nacional Zion, Utah, EUA (© Simon Dannhauer/Getty Images)](https://www.bing.com/th?id=OHR.ZionValley_PT-BR8868751465_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BunnyLove_PT-BR9190228390_UHD.jpg&w=1000)Today: [Coelhos selvagens no outono (© Fiona McAllister Photography/Getty Images)](https://www.bing.com/th?id=OHR.BunnyLove_PT-BR9190228390_UHD.jpg)
 <br><br/>
