@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.JoshuaStars_JA-JP1506519282_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ジョシュア・ツリー国立公園の天の川, 米国 カリフォルニア州 (© Chao Zhang/Getty Images)](https://www.bing.com/th?id=OHR.JoshuaStars_JA-JP1506519282_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YellowstoneSpring_JA-JP1684502274_UHD.jpg&w=1000)今日の壁紙: &nbsp;[イエローストーン国立公園, 米国 ワイオミング州 (© Ajith Kumar/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneSpring_JA-JP1684502274_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.JoshuaStars_FR-FR1134604793_UHD.jpg&w=1000)Today: [Arbres de Josué sous la Voie lactée, Californie, États-Unis (© Chao Zhang/Getty Images)](https://www.bing.com/th?id=OHR.JoshuaStars_FR-FR1134604793_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PitiglianoPasquetta_IT-IT4003845136_UHD.jpg&w=1000)Today: [Pitigliano al tramonto, Provincia di Grosseto, Toscana (© Ivoha/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.PitiglianoPasquetta_IT-IT4003845136_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BunnyLove_PT-BR9190228390_UHD.jpg&w=1000)Today: [Coelhos selvagens no outono (© Fiona McAllister Photography/Getty Images)](https://www.bing.com/th?id=OHR.BunnyLove_PT-BR9190228390_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AniversarioBrasilia_PT-BR0404109011_UHD.jpg&w=1000)Today: [Aniversário de Brasília, DF (© Cro Magnon/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.AniversarioBrasilia_PT-BR0404109011_UHD.jpg)
 <br><br/>
