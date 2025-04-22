@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.YellowstoneSpring_JA-JP1684502274_UHD.jpg&w=1000)今日の壁紙: &nbsp;[イエローストーン国立公園, 米国 ワイオミング州 (© Ajith Kumar/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneSpring_JA-JP1684502274_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GlobeTheatre_JA-JP1842538883_UHD.jpg&w=1000)今日の壁紙: &nbsp;[シェイクスピアズ・グローブ, イギリス ロンドン (© Peter Dazeley/Getty Images)](https://www.bing.com/th?id=OHR.GlobeTheatre_JA-JP1842538883_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.YellowstoneSpring_FR-FR1648362010_UHD.jpg&w=1000)Today: [Grand Prismatic Spring, parc national de Yellowstone, Wyoming, États-Unis (© Ajith Kumar/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneSpring_FR-FR1648362010_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.YellowstoneSpring_IT-IT1564316273_UHD.jpg&w=1000)Today: [Grande sorgente prismatica, Parco Nazionale di Yellowstone, Wyoming, USA (© Ajith Kumar/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneSpring_IT-IT1564316273_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AniversarioBrasilia_PT-BR0404109011_UHD.jpg&w=1000)Today: [Aniversário de Brasília, DF (© Cro Magnon/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.AniversarioBrasilia_PT-BR0404109011_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YellowstoneSpring_PT-BR0628932864_UHD.jpg&w=1000)Today: [Grande Fonte Prismática, Parque Nacional de Yellowstone, Wyoming, EUA (© Ajith Kumar/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneSpring_PT-BR0628932864_UHD.jpg)
 <br><br/>

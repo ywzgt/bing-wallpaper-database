@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.YellowstoneSpring_ZH-CN2643482467_UHD.jpg&w=1000)今日图片: &nbsp;[大棱镜彩泉，黄石国家公园，怀俄明州，美国 (© Ajith Kumar/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneSpring_ZH-CN2643482467_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BeachChairsSteinwarder_ZH-CN2947390092_UHD.jpg&w=1000)今日图片: &nbsp;[海利根港斯坦沃德海滩上的沙滩椅，石勒苏益格-荷尔斯泰因州，德国 (© Frank Lukasseck/eStock Photo)](https://www.bing.com/th?id=OHR.BeachChairsSteinwarder_ZH-CN2947390092_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.JoshuaStars_EN-US2563220033_UHD.jpg&w=1000)Today: [Joshua trees under the Milky Way, California (© Chao Zhang/Getty Images)](https://www.bing.com/th?id=OHR.JoshuaStars_EN-US2563220033_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YellowstoneSpring_EN-US2710865870_UHD.jpg&w=1000)Today: [Grand Prismatic Spring, Yellowstone National Park, Wyoming (© Ajith Kumar/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneSpring_EN-US2710865870_UHD.jpg)
 <br><br/>
