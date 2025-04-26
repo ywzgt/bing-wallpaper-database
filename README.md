@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BrucePeninsula_ZH-CN3258296517_UHD.jpg&w=1000)今日图片: &nbsp;[印第安头湾, 布鲁斯半岛国家公园, 安大略, 加拿大 (© Maurice Prokaziuk/Getty Images)](https://www.bing.com/th?id=OHR.BrucePeninsula_ZH-CN3258296517_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RedwoodGrove_ZH-CN3339576686_UHD.jpg&w=1000)今日图片: &nbsp;[红木国家公园和州立公园, 加利福尼亚州, 美国 (© Bob Pool/Getty Images)](https://www.bing.com/th?id=OHR.RedwoodGrove_ZH-CN3339576686_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MagellanicPenguin_EN-US3332048594_UHD.jpg&w=1000)Today: [Magellanic penguins, Volunteer Point, Falkland Islands (© imageBROKER/Matthias Graben/Getty Images)](https://www.bing.com/th?id=OHR.MagellanicPenguin_EN-US3332048594_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RedwoodGrove_EN-US3412092024_UHD.jpg&w=1000)Today: [Grove of redwoods in Redwood National and State Parks, California (© Bob Pool/Getty Images)](https://www.bing.com/th?id=OHR.RedwoodGrove_EN-US3412092024_UHD.jpg)
 <br><br/>
