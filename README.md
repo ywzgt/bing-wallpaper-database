@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.RedwoodGrove_ZH-CN3339576686_UHD.jpg&w=1000)今日图片: &nbsp;[红木国家公园和州立公园, 加利福尼亚州, 美国 (© Bob Pool/Getty Images)](https://www.bing.com/th?id=OHR.RedwoodGrove_ZH-CN3339576686_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OrangeImpala_ZH-CN3417660107_UHD.jpg&w=1000)今日图片: &nbsp;[莫雷米野生动物保护区的高角羚，博茨瓦纳 (© Paul Souders/Getty Images)](https://www.bing.com/th?id=OHR.OrangeImpala_ZH-CN3417660107_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RedwoodGrove_EN-US3412092024_UHD.jpg&w=1000)Today: [Grove of redwoods in Redwood National and State Parks, California (© Bob Pool/Getty Images)](https://www.bing.com/th?id=OHR.RedwoodGrove_EN-US3412092024_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KilaueaCaldera_EN-US7764962675_UHD.jpg&w=1000)Today: [Halema'uma'u Crater's lava lake, Kīlauea Caldera, Hawai'i Volcanoes National Park, Hawaii (© Stephen Matera/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.KilaueaCaldera_EN-US7764962675_UHD.jpg)
 <br><br/>
