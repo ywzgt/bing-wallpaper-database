@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.RedwoodGrove_JA-JP2501396373_UHD.jpg&w=1000)今日の壁紙: &nbsp;[レッドウッド国立公園, 米国 カリフォルニア州 (© Bob Pool/Getty Images)](https://www.bing.com/th?id=OHR.RedwoodGrove_JA-JP2501396373_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OrangeImpala_JA-JP2688977471_UHD.jpg&w=1000)今日の壁紙: &nbsp;[インパラ, ボツワナ (© Paul Souders/Getty Images)](https://www.bing.com/th?id=OHR.OrangeImpala_JA-JP2688977471_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.RedwoodGrove_FR-FR2313979234_UHD.jpg&w=1000)Today: [Bosquet de séquoias côtiers dans les parcs nationaux de Redwood, Californie, États-Unis (© Bob Pool/Getty Images)](https://www.bing.com/th?id=OHR.RedwoodGrove_FR-FR2313979234_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.RedwoodGrove_IT-IT2059060159_UHD.jpg&w=1000)Today: [Bosco di sequoie nel Redwood National and State Parks, California, USA (© Bob Pool/Getty Images)](https://www.bing.com/th?id=OHR.RedwoodGrove_IT-IT2059060159_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BrucePeninsula_PT-BR5440463539_UHD.jpg&w=1000)Today: [Indian Head Cove, Parque Nacional da Península Bruce, Ontário, Canadá (© Maurice Prokaziuk/Getty Images)](https://www.bing.com/th?id=OHR.BrucePeninsula_PT-BR5440463539_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RedwoodGrove_PT-BR8053391438_UHD.jpg&w=1000)Today: [Bosque de sequoias no Parque Nacional de Redwood, Califórnia, EUA (© Bob Pool/Getty Images)](https://www.bing.com/th?id=OHR.RedwoodGrove_PT-BR8053391438_UHD.jpg)
 <br><br/>
