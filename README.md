@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.OrangeImpala_ZH-CN3417660107_UHD.jpg&w=1000)今日图片: &nbsp;[莫雷米野生动物保护区的高角羚，博茨瓦纳 (© Paul Souders/Getty Images)](https://www.bing.com/th?id=OHR.OrangeImpala_ZH-CN3417660107_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_UHD.jpg&w=1000)今日图片: &nbsp;[维朗德里城堡，卢瓦尔河谷，法国 (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.KilaueaCaldera_EN-US7764962675_UHD.jpg&w=1000)Today: [Halema'uma'u Crater's lava lake, Kīlauea Caldera, Hawai'i Volcanoes National Park, Hawaii (© Stephen Matera/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.KilaueaCaldera_EN-US7764962675_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OrangeImpala_EN-US3494359572_UHD.jpg&w=1000)Today: [Impala with red-billed oxpecker in Moremi Game Reserve, Botswana (© Paul Souders/Getty Images)](https://www.bing.com/th?id=OHR.OrangeImpala_EN-US3494359572_UHD.jpg)
 <br><br/>

@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.OrangeImpala_JA-JP2688977471_UHD.jpg&w=1000)今日の壁紙: &nbsp;[インパラ, ボツワナ (© Paul Souders/Getty Images)](https://www.bing.com/th?id=OHR.OrangeImpala_JA-JP2688977471_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GardensVillandry_JA-JP2835269741_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ヴィランドリー城, フランス (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.GardensVillandry_JA-JP2835269741_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.OrangeImpala_FR-FR4270664002_UHD.jpg&w=1000)Today: [Impala dans la réserve de Moremi, Botswana (© Paul Souders/Getty Images)](https://www.bing.com/th?id=OHR.OrangeImpala_FR-FR4270664002_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.LagoDiGardaVillaRomana_IT-IT2119836247_UHD.jpg&w=1000)Today: [Grotte di Catullo, Sirmione, Provincia di Brescia, Lombardia (© AlagnaMarco/Getty Images)](https://www.bing.com/th?id=OHR.LagoDiGardaVillaRomana_IT-IT2119836247_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RedwoodGrove_PT-BR8053391438_UHD.jpg&w=1000)Today: [Bosque de sequoias no Parque Nacional de Redwood, Califórnia, EUA (© Bob Pool/Getty Images)](https://www.bing.com/th?id=OHR.RedwoodGrove_PT-BR8053391438_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DunasMaranhenses_PT-BR7731502605_UHD.jpg&w=1000)Today: [Parque Nacional dos Lençóis Maranhenses, Maranhão (© WhyNotTrip/Shutterstock)](https://www.bing.com/th?id=OHR.DunasMaranhenses_PT-BR7731502605_UHD.jpg)
 <br><br/>
