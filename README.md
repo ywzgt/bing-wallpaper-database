@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.PinkPlumeria_ZH-CN3890147555_UHD.jpg&w=1000)今日图片: &nbsp;[鸡蛋花，夏威夷，美国 (© Miranda Jans/Getty Images)](https://www.bing.com/th?id=OHR.PinkPlumeria_ZH-CN3890147555_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BrazilHeron_ZH-CN7200229300_UHD.jpg&w=1000)今日图片: &nbsp;[维多利亚睡莲上的绿鹭，潘塔纳尔 ，巴西 (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.BrazilHeron_ZH-CN7200229300_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ColtraneBand_EN-US3561448385_UHD.jpg&w=1000)Today: [Jazz saxophonist John Coltrane and band performing in 1961 in London, England (© Popperfoto/Getty Images)](https://www.bing.com/th?id=OHR.ColtraneBand_EN-US3561448385_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PinkPlumeria_EN-US3595771407_UHD.jpg&w=1000)Today: [Plumeria flowers, Hawaii (© Miranda Jans/Getty Images)](https://www.bing.com/th?id=OHR.PinkPlumeria_EN-US3595771407_UHD.jpg)
 <br><br/>
