@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BrazilHeron_ZH-CN7200229300_UHD.jpg&w=1000)今日图片: &nbsp;[维多利亚睡莲上的绿鹭，潘塔纳尔 ，巴西 (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.BrazilHeron_ZH-CN7200229300_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ArchesGalaxy_ZH-CN0954505086_UHD.jpg&w=1000)今日图片: &nbsp;[拱门国家公园双拱门映衬下的银河，犹他州，美国 (© Adventure_Photo/Getty Images)](https://www.bing.com/th?id=OHR.ArchesGalaxy_ZH-CN0954505086_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PinkPlumeria_EN-US3595771407_UHD.jpg&w=1000)Today: [Plumeria flowers, Hawaii (© Miranda Jans/Getty Images)](https://www.bing.com/th?id=OHR.PinkPlumeria_EN-US3595771407_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BrazilHeron_EN-US5602369723_UHD.jpg&w=1000)Today: [Striated heron on a Victoria water lily, Pantanal, Brazil (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.BrazilHeron_EN-US5602369723_UHD.jpg)
 <br><br/>
