@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.FlyoverNamibia_ZH-CN2114171516_UHD.jpg&w=1000)今日图片: &nbsp;[一架超轻型飞机飞越纳米比亚沙漠 (© Burt Johnson/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.FlyoverNamibia_ZH-CN2114171516_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_UHD.jpg&w=1000)今日图片: &nbsp;[邓路斯城堡，安特里姆郡，北爱尔兰 (© DieterMeyrl/Getty Images)](https://www.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CincoFlags_EN-US5873749093_UHD.jpg&w=1000)Today: [Paper flags strung over a street in San Miguel de Allende, Mexico (© William Zinn/Getty Images)](https://www.bing.com/th?id=OHR.CincoFlags_EN-US5873749093_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FlyoverNamibia_EN-US6033011196_UHD.jpg&w=1000)Today: [An ultralight aircraft flying over the sands of Namibia (© Burt Johnson/Alamy)](https://www.bing.com/th?id=OHR.FlyoverNamibia_EN-US6033011196_UHD.jpg)
 <br><br/>
