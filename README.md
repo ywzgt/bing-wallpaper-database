@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_UHD.jpg&w=1000)今日图片: &nbsp;[邓路斯城堡，安特里姆郡，北爱尔兰 (© DieterMeyrl/Getty Images)](https://www.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RhyoliteDonkeys_ZH-CN2626127533_UHD.jpg&w=1000)今日图片: &nbsp;[Rhyolite附近山谷中的驴子，内华达州，美国 (© Moelyn Photos/Getty Images)](https://www.bing.com/th?id=OHR.RhyoliteDonkeys_ZH-CN2626127533_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.FlyoverNamibia_EN-US6033011196_UHD.jpg&w=1000)Today: [An ultralight aircraft flying over the sands of Namibia (© Burt Johnson/Alamy)](https://www.bing.com/th?id=OHR.FlyoverNamibia_EN-US6033011196_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DunluceIreland_EN-US6236791025_UHD.jpg&w=1000)Today: [Dunluce Castle, County Antrim, Northern Ireland (© DieterMeyrl/Getty Images)](https://www.bing.com/th?id=OHR.DunluceIreland_EN-US6236791025_UHD.jpg)
 <br><br/>
