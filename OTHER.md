@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MinnesotaRotunda_JA-JP1387558437_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ミネソタ州会議事堂, 米国ミネソタ州 (© lavin photography/Getty Images)](https://www.bing.com/th?id=OHR.MinnesotaRotunda_JA-JP1387558437_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LeopardMother_JA-JP1562347472_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ヒョウの母子, ボツワナ (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.LeopardMother_JA-JP1562347472_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MinnesotaRotunda_FR-FR7400861841_UHD.jpg&w=1000)Today: [Capitole de l'État du Minnesota, St. Paul, États-Unis (© lavin photography/Getty Images)](https://www.bing.com/th?id=OHR.MinnesotaRotunda_FR-FR7400861841_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MinnesotaRotunda_IT-IT5434409102_UHD.jpg&w=1000)Today: [Campidoglio del Minnesota, St. Paul, Minnesota, USA (© lavin photography/Getty Images)](https://www.bing.com/th?id=OHR.MinnesotaRotunda_IT-IT5434409102_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.FumacinhaBahia_PT-BR0440078650_UHD.jpg&w=1000)Today: [Cachoeira Fumacinha, Parque Nacional da Chapada Diamantina, Ibicoara, BA (© Pulsar Imagens/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.FumacinhaBahia_PT-BR0440078650_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MinnesotaRotunda_PT-BR2639700452_UHD.jpg&w=1000)Today: [Capitólio do Estado de Minnesota, St. Paul, Minnesota, EUA (© lavin photography/Getty Images)](https://www.bing.com/th?id=OHR.MinnesotaRotunda_PT-BR2639700452_UHD.jpg)
 <br><br/>
