@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TorresChile_ZH-CN6319613148_UHD.jpg&w=1000)今日图片: &nbsp;[百内国家公园, 巴塔哥尼亚, 智利 (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.TorresChile_ZH-CN6319613148_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SardiniaFlavia_ZH-CN6784449568_UHD.jpg&w=1000)今日图片: &nbsp;[弗拉维亚港, 苏尔西斯-伊格莱西恩特, 撒丁岛, 意大利 (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.SardiniaFlavia_ZH-CN6784449568_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.IrisGarden_EN-US6778843108_UHD.jpg&w=1000)Today: [An iris garden in Tokyo, Japan (© M.Arai/Getty Images)](https://www.bing.com/th?id=OHR.IrisGarden_EN-US6778843108_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TorresChile_EN-US6814348961_UHD.jpg&w=1000)Today: [Torres del Paine National Park, Patagonia, Chile (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.TorresChile_EN-US6814348961_UHD.jpg)
 <br><br/>
