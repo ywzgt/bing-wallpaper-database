@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.SardiniaFlavia_JA-JP0105936575_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ポルト・フラビア, イタリア (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.SardiniaFlavia_JA-JP0105936575_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CannesFilmFestival_FR-FR6520718255_UHD.jpg&w=1000)Today: [Baie de Cannes au crépuscule, Côte d'Azur (© Jean-Pierre Pieuchot/Getty Images)](https://www.bing.com/th?id=OHR.CannesFilmFestival_FR-FR6520718255_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SardiniaFlavia_FR-FR6461309996_UHD.jpg&w=1000)Today: [Porto Flavia, Sulcis-Iglesiente, Sardaigne, Italie (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.SardiniaFlavia_FR-FR6461309996_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TorresChile_DE-DE8890780027_UHD.jpg&w=1000)Today: [Nationalpark Torres del Paine, Patagonien, Chile (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.TorresChile_DE-DE8890780027_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SardiniaFlavia_DE-DE3762608321_UHD.jpg&w=1000)Today: [Porto Flavia, Sulcis-Iglesiente, Sardinien, Italien (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.SardiniaFlavia_DE-DE3762608321_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TorresChile_ES-ES1426138638_UHD.jpg&w=1000)Today: [Parque Nacional Torres del Paine, Patagonia, Chile (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.TorresChile_ES-ES1426138638_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SardiniaFlavia_ES-ES1538171491_UHD.jpg&w=1000)Today: [Porto Flavia, Sulcis-Iglesiente, Cerdeña, Italia (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.SardiniaFlavia_ES-ES1538171491_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TorresChile_EN-GB5907633390_UHD.jpg&w=1000)Today: [Torres del Paine National Park, Patagonia, Chile (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.TorresChile_EN-GB5907633390_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SardiniaFlavia_EN-GB6078302531_UHD.jpg&w=1000)Today: [Porto Flavia, Sulcis-Iglesiente, Sardinia, Italy (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.SardiniaFlavia_EN-GB6078302531_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TorresChile_IT-IT3039649288_UHD.jpg&w=1000)Today: [Parco Nazionale Torres del Paine, Patagonia, Cile (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.TorresChile_IT-IT3039649288_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SardiniaFlavia_IT-IT8830916850_UHD.jpg&w=1000)Today: [Porto Flavia, Iglesias, Sardegna (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.SardiniaFlavia_IT-IT8830916850_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TorresChile_PT-BR4534692189_UHD.jpg&w=1000)Today: [Parque Nacional Torres del Paine, Patagônia, Chile (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.TorresChile_PT-BR4534692189_UHD.jpg)
 <br><br/>
