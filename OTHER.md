@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SardiniaFlavia_JA-JP0105936575_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ポルト・フラビア, イタリア (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.SardiniaFlavia_JA-JP0105936575_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LondonParliament_JA-JP1032400760_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ウェストミンスター宮殿とビッグ・ベン, イギリス (© Puthipong Worasaran/Getty Images)](https://www.bing.com/th?id=OHR.LondonParliament_JA-JP1032400760_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SardiniaFlavia_FR-FR6461309996_UHD.jpg&w=1000)Today: [Porto Flavia, Sulcis-Iglesiente, Sardaigne, Italie (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.SardiniaFlavia_FR-FR6461309996_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SardiniaFlavia_IT-IT8830916850_UHD.jpg&w=1000)Today: [Porto Flavia, Iglesias, Sardegna (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.SardiniaFlavia_IT-IT8830916850_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TorresChile_PT-BR4534692189_UHD.jpg&w=1000)Today: [Parque Nacional Torres del Paine, Patagônia, Chile (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.TorresChile_PT-BR4534692189_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SardiniaFlavia_PT-BR4719192725_UHD.jpg&w=1000)Today: [Porto Flavia, Sulcis-Iglesiente, Sardenha, Itália (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.SardiniaFlavia_PT-BR4719192725_UHD.jpg)
 <br><br/>
