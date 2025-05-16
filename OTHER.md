@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.Arashiyama2025_JA-JP6326802936_UHD.jpg&w=1000)今日の壁紙: &nbsp;[保津川沿いに走るトロッコ列車, 京都 (© Alvin Huang/Getty Images)](https://www.bing.com/th?id=OHR.Arashiyama2025_JA-JP6326802936_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LondonParliament_FR-FR8667949776_UHD.jpg&w=1000)Today: [Big Ben et le Parlement, Palais de Westminster, Londres, Angleterre (© Puthipong Worasaran/Getty Images)](https://www.bing.com/th?id=OHR.LondonParliament_FR-FR8667949776_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GreenMacaw_FR-FR5042488002_UHD.jpg&w=1000)Today: [Ara de Buffon, Mexique (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.GreenMacaw_FR-FR5042488002_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LondonParliament_DE-DE1178909686_UHD.jpg&w=1000)Today: [Big Ben und Westminster-Palast, London, England (© Puthipong Worasaran/Getty Images)](https://www.bing.com/th?id=OHR.LondonParliament_DE-DE1178909686_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GreenMacaw_DE-DE4297947779_UHD.jpg&w=1000)Today: [Bechsteinara, Mexiko (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.GreenMacaw_DE-DE4297947779_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SanIsidroMadrid_ES-ES1627425280_UHD.jpg&w=1000)Today: [Plaza Mayor de Madrid, España (© Songquan Deng/Shutterstock)](https://www.bing.com/th?id=OHR.SanIsidroMadrid_ES-ES1627425280_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GreenMacaw_ES-ES6043560768_UHD.jpg&w=1000)Today: [Guacamayo verde, México (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.GreenMacaw_ES-ES6043560768_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LondonParliament_EN-GB2684954699_UHD.jpg&w=1000)Today: [Big Ben and Parliament, Palace of Westminster, London, England (© Puthipong Worasaran/Getty Images)](https://www.bing.com/th?id=OHR.LondonParliament_EN-GB2684954699_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GreenMacaw_EN-GB2974819132_UHD.jpg&w=1000)Today: [Great green macaw, Mexico (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.GreenMacaw_EN-GB2974819132_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LeopardMother_IT-IT3189476011_UHD.jpg&w=1000)Today: [Madre leopardo con il suo cucciolo, Riserva di Jao, Botswana (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.LeopardMother_IT-IT3189476011_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Arashiyama2025_IT-IT8185963195_UHD.jpg&w=1000)Today: [Un treno che corre lungo il fiume Hozugawa ad Arashiyama, Kyoto, Giappone (© Alvin Huang/Getty Images)](https://www.bing.com/th?id=OHR.Arashiyama2025_IT-IT8185963195_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.LondonParliament_PT-BR5394020420_UHD.jpg&w=1000)Today: [Big Ben e Parlamento, Palácio de Westminster, Londres, Inglaterra (© Puthipong Worasaran/Getty Images)](https://www.bing.com/th?id=OHR.LondonParliament_PT-BR5394020420_UHD.jpg)
 <br><br/>
