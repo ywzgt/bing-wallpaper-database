@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Arashiyama2025_JA-JP6326802936_UHD.jpg&w=1000)今日の壁紙: &nbsp;[保津川沿いに走るトロッコ列車, 京都 (© Alvin Huang/Getty Images)](https://www.bing.com/th?id=OHR.Arashiyama2025_JA-JP6326802936_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VeniceLagoon_JA-JP6789116059_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ヴェネツィアの潟, イタリア (© Dimitri Weber/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.VeniceLagoon_JA-JP6789116059_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.GreenMacaw_FR-FR5042488002_UHD.jpg&w=1000)Today: [Ara de Buffon, Mexique (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.GreenMacaw_FR-FR5042488002_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.Arashiyama2025_IT-IT8185963195_UHD.jpg&w=1000)Today: [Un treno che corre lungo il fiume Hozugawa ad Arashiyama, Kyoto, Giappone (© Alvin Huang/Getty Images)](https://www.bing.com/th?id=OHR.Arashiyama2025_IT-IT8185963195_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LondonParliament_PT-BR5394020420_UHD.jpg&w=1000)Today: [Big Ben e Parlamento, Palácio de Westminster, Londres, Inglaterra (© Puthipong Worasaran/Getty Images)](https://www.bing.com/th?id=OHR.LondonParliament_PT-BR5394020420_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GreenMacaw_PT-BR8455225327_UHD.jpg&w=1000)Today: [Arara-verde, México (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.GreenMacaw_PT-BR8455225327_UHD.jpg)
 <br><br/>
