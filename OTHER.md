@@ -7,7 +7,7 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.GreenMacaw_ES-ES6043560768_UHD.jpg&w=1000)Today: [Guacamayo verde, México (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.GreenMacaw_ES-ES6043560768_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GreenMacaw_EN-GB2974819132_UHD.jpg&w=1000)Today: [Great green macaw, Mexico (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.GreenMacaw_EN-GB2974819132_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GreenMacaw_EN-GB3705576652_UHD.jpg&w=1000)Today: [Great green macaw, Mexico (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.GreenMacaw_EN-GB3705576652_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.Arashiyama2025_IT-IT8185963195_UHD.jpg&w=1000)Today: [Un treno che corre lungo il fiume Hozugawa ad Arashiyama, Kyoto, Giappone (© Alvin Huang/Getty Images)](https://www.bing.com/th?id=OHR.Arashiyama2025_IT-IT8185963195_UHD.jpg)
 <br><br/>
