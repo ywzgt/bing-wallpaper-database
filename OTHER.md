@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.VeniceLagoon_JA-JP6789116059_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ヴェネツィアの潟, イタリア (© Dimitri Weber/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.VeniceLagoon_JA-JP6789116059_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DufyRoom_JA-JP7244878631_UHD.jpg&w=1000)今日の壁紙: &nbsp;[巨大壁画 電気の精, フランス (© BERTRAND GUAY/AFP via Getty Images)](https://www.bing.com/th?id=OHR.DufyRoom_JA-JP7244878631_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.VeniceLagoon_FR-FR5243058604_UHD.jpg&w=1000)Today: [Delta de la lagune vénitienne, Italie (© Dimitri Weber/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.VeniceLagoon_FR-FR5243058604_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.VeniceLagoon_IT-IT7176917574_UHD.jpg&w=1000)Today: [Delta nella Laguna di Venezia, Veneto   (© Dimitri Weber/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.VeniceLagoon_IT-IT7176917574_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GreenMacaw_PT-BR8455225327_UHD.jpg&w=1000)Today: [Arara-verde, México (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.GreenMacaw_PT-BR8455225327_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VeniceLagoon_PT-BR8587771940_UHD.jpg&w=1000)Today: [Delta na Lagoa de Veneza, Itália (© Dimitri Weber/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.VeniceLagoon_PT-BR8587771940_UHD.jpg)
 <br><br/>

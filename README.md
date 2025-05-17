@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.VeniceLagoon_ZH-CN3791408491_UHD.jpg&w=1000)今日图片: &nbsp;[威尼斯潟湖中的三角洲, 意大利 (© Dimitri Weber/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.VeniceLagoon_ZH-CN3791408491_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ToulouseBridge_ZH-CN3930246927_UHD.jpg&w=1000)今日图片: &nbsp;[加龙河对面的圣皮埃尔桥，图卢兹，法国 (© Image Professionals GmbH/Alamy)](https://www.bing.com/th?id=OHR.ToulouseBridge_ZH-CN3930246927_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GreenMacaw_EN-US1646325635_UHD.jpg&w=1000)Today: [Great green macaw, Mexico (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.GreenMacaw_EN-US1646325635_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VeniceLagoon_EN-US3686079353_UHD.jpg&w=1000)Today: [A delta in the Venetian Lagoon, Italy (© Dimitri Weber/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.VeniceLagoon_EN-US3686079353_UHD.jpg)
 <br><br/>
