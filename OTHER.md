@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.DufyRoom_JA-JP7244878631_UHD.jpg&w=1000)今日の壁紙: &nbsp;[巨大壁画 電気の精, フランス (© BERTRAND GUAY/AFP via Getty Images)](https://www.bing.com/th?id=OHR.DufyRoom_JA-JP7244878631_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MountHamilton_JA-JP7427709229_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ハミルトン山, 米国 カリフォルニア州 (© Jeffrey Lewis/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MountHamilton_JA-JP7427709229_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.DufyRoom_FR-FR5402586518_UHD.jpg&w=1000)Today: [« La Fée Électricité » de Raoul Dufy, Musée d'art moderne, Paris (© Bertrand Guay/AFP via Getty Images)](https://www.bing.com/th?id=OHR.DufyRoom_FR-FR5402586518_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.DufyRoom_IT-IT9020627686_UHD.jpg&w=1000)Today: ["La Fata Elettricità" di Raoul Dufy, Museo d'Arte Moderna, Parigi, Francia (© BERTRAND GUAY/AFP via Getty Images)](https://www.bing.com/th?id=OHR.DufyRoom_IT-IT9020627686_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.VeniceLagoon_PT-BR8587771940_UHD.jpg&w=1000)Today: [Delta na Lagoa de Veneza, Itália (© Dimitri Weber/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.VeniceLagoon_PT-BR8587771940_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DufyRoom_PT-BR8646491338_UHD.jpg&w=1000)Today: [“A Fada da Eletricidade” por Raoul Dufy, Museu de Arte Moderna, Paris, França (© BERTRAND GUAY/AFP via Getty Images)](https://www.bing.com/th?id=OHR.DufyRoom_PT-BR8646491338_UHD.jpg)
 <br><br/>
