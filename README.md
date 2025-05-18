@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ToulouseBridge_ZH-CN3930246927_UHD.jpg&w=1000)今日图片: &nbsp;[加龙河对面的圣皮埃尔桥，图卢兹，法国 (© Image Professionals GmbH/Alamy)](https://www.bing.com/th?id=OHR.ToulouseBridge_ZH-CN3930246927_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MountHamilton_ZH-CN4280549129_UHD.jpg&w=1000)今日图片: &nbsp;[汉密尔顿山, 旧金山湾区, 加利福尼亚, 美国 (© Jeffrey Lewis/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MountHamilton_ZH-CN4280549129_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.VeniceLagoon_EN-US3686079353_UHD.jpg&w=1000)Today: [A delta in the Venetian Lagoon, Italy (© Dimitri Weber/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.VeniceLagoon_EN-US3686079353_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DufyRoom_EN-US3759763345_UHD.jpg&w=1000)Today: ['The Spirit of Electricity' by Raoul Dufy, Museum of Modern Art, Paris, France (© BERTRAND GUAY/AFP via Getty Images)](https://www.bing.com/th?id=OHR.DufyRoom_EN-US3759763345_UHD.jpg)
 <br><br/>
