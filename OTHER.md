@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.MountHamilton_JA-JP7427709229_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ハミルトン山, 米国 カリフォルニア州 (© Jeffrey Lewis/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MountHamilton_JA-JP7427709229_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DufyRoom_FR-FR5402586518_UHD.jpg&w=1000)Today: [« La Fée Électricité » de Raoul Dufy, Musée d'art moderne, Paris (© Bertrand Guay/AFP via Getty Images)](https://www.bing.com/th?id=OHR.DufyRoom_FR-FR5402586518_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RolandGarros_FR-FR5445830165_UHD.jpg&w=1000)Today: [Faucon de Harris sur le court Suzanne-Lenglen, stade Roland-Garros, Paris (© Jacques Demarthon/Getty Images)](https://www.bing.com/th?id=OHR.RolandGarros_FR-FR5445830165_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BerlinHistoryMuseum_DE-DE3052163032_UHD.jpg&w=1000)Today: [Pei-Bau des Deutschen Historischen Museums in Berlin (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.BerlinHistoryMuseum_DE-DE3052163032_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MountHamilton_DE-DE9789117728_UHD.jpg&w=1000)Today: [Mount Hamilton, San Francisco Bay Area, Kalifornien, USA (© Jeffrey Lewis/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MountHamilton_DE-DE9789117728_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DufyRoom_ES-ES6280339322_UHD.jpg&w=1000)Today: ['The Spirit of Electricity' de Raoul Dufy, Museo de Arte Moderno, París, Francia (© BERTRAND GUAY/AFP via Getty Images)](https://www.bing.com/th?id=OHR.DufyRoom_ES-ES6280339322_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MountHamilton_ES-ES6396197692_UHD.jpg&w=1000)Today: [Monte Hamilton, Área de la Bahía de San Francisco, California, EE. UU. (© Jeffrey Lewis/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MountHamilton_ES-ES6396197692_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DufyRoom_EN-GB0919090410_UHD.jpg&w=1000)Today: ['The Spirit of Electricity' by Raoul Dufy, Museum of Modern Art, Paris, France (© BERTRAND GUAY/AFP via Getty Images)](https://www.bing.com/th?id=OHR.DufyRoom_EN-GB0919090410_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MountHamilton_EN-GB1454932686_UHD.jpg&w=1000)Today: [Mount Hamilton, San Francisco Bay Area, California, United States (© Jeffrey Lewis/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MountHamilton_EN-GB1454932686_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DufyRoom_IT-IT9020627686_UHD.jpg&w=1000)Today: ["La Fata Elettricità" di Raoul Dufy, Museo d'Arte Moderna, Parigi, Francia (© BERTRAND GUAY/AFP via Getty Images)](https://www.bing.com/th?id=OHR.DufyRoom_IT-IT9020627686_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OrecchioDiDionisoSiracusa_IT-IT7033157310_UHD.jpg&w=1000)Today: [Orecchio di Dionisio, Siracusa, Sicilia (© Jan Wlodarczyk/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.OrecchioDiDionisoSiracusa_IT-IT7033157310_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.DufyRoom_PT-BR8646491338_UHD.jpg&w=1000)Today: [“A Fada da Eletricidade” por Raoul Dufy, Museu de Arte Moderna, Paris, França (© BERTRAND GUAY/AFP via Getty Images)](https://www.bing.com/th?id=OHR.DufyRoom_PT-BR8646491338_UHD.jpg)
 <br><br/>
