@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MountHamilton_JA-JP7427709229_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ハミルトン山, 米国 カリフォルニア州 (© Jeffrey Lewis/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MountHamilton_JA-JP7427709229_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HoneyBeeLavender_JA-JP7794664698_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ラベンダーの花にミツバチ (© Anthony Brown/Alamy)](https://www.bing.com/th?id=OHR.HoneyBeeLavender_JA-JP7794664698_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.RolandGarros_FR-FR5445830165_UHD.jpg&w=1000)Today: [Faucon de Harris sur le court Suzanne-Lenglen, stade Roland-Garros, Paris (© Jacques Demarthon/Getty Images)](https://www.bing.com/th?id=OHR.RolandGarros_FR-FR5445830165_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.OrecchioDiDionisoSiracusa_IT-IT7033157310_UHD.jpg&w=1000)Today: [Orecchio di Dionisio, Siracusa, Sicilia (© Jan Wlodarczyk/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.OrecchioDiDionisoSiracusa_IT-IT7033157310_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DufyRoom_PT-BR8646491338_UHD.jpg&w=1000)Today: [“A Fada da Eletricidade” por Raoul Dufy, Museu de Arte Moderna, Paris, França (© BERTRAND GUAY/AFP via Getty Images)](https://www.bing.com/th?id=OHR.DufyRoom_PT-BR8646491338_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TiradentesMinasGerais_PT-BR9045751128_UHD.jpg&w=1000)Today: [Vista aérea ao nascer do sol em Tiradentes, Minas Gerais (© Martinelli73/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.TiradentesMinasGerais_PT-BR9045751128_UHD.jpg)
 <br><br/>
