@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.HoneyBeeLavender_JA-JP7794664698_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ラベンダーの花にミツバチ (© Anthony Brown/Alamy)](https://www.bing.com/th?id=OHR.HoneyBeeLavender_JA-JP7794664698_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SongyangTeaGarden_JA-JP8102249895_UHD.jpg&w=1000)今日の壁紙: &nbsp;[楊家堂村の茶園, 中国 浙江省 (© feng xu/Getty Images)](https://www.bing.com/th?id=OHR.SongyangTeaGarden_JA-JP8102249895_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.HoneyBeeLavender_FR-FR5663317705_UHD.jpg&w=1000)Today: [Abeille sur des fleurs de lavande (© Anthony Brown/Alamy)](https://www.bing.com/th?id=OHR.HoneyBeeLavender_FR-FR5663317705_UHD.jpg)
 <br><br/>
@@ -9,7 +9,7 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.HoneyBeeLavender_EN-GB1571293701_UHD.jpg&w=1000)Today: [Honey bee on lavender flowers (© Anthony Brown/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HoneyBeeLavender_EN-GB1571293701_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HoneyBeeLavender_IT-IT7564514094_UHD.jpg&w=1000)Today: [Ape da miele su fiori di lavanda (© Anthony Brown/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HoneyBeeLavender_IT-IT7564514094_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HoneyBeeLavender_IT-IT3599671311_UHD.jpg&w=1000)Today: [Ape da miele su fiori di lavanda (© Anthony Brown/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HoneyBeeLavender_IT-IT3599671311_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TiradentesMinasGerais_PT-BR9045751128_UHD.jpg&w=1000)Today: [Vista aérea ao nascer do sol em Tiradentes, Minas Gerais (© Martinelli73/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.TiradentesMinasGerais_PT-BR9045751128_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HoneyBeeLavender_PT-BR9232518610_UHD.jpg&w=1000)Today: [Abelha sobre flores de lavanda (© Anthony Brown/Alamy)](https://www.bing.com/th?id=OHR.HoneyBeeLavender_PT-BR9232518610_UHD.jpg)
 <br><br/>
