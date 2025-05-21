@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.SongyangTeaGarden_JA-JP8102249895_UHD.jpg&w=1000)今日の壁紙: &nbsp;[楊家堂村の茶園, 中国 浙江省 (© feng xu/Getty Images)](https://www.bing.com/th?id=OHR.SongyangTeaGarden_JA-JP8102249895_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HoneyBeeLavender_FR-FR5663317705_UHD.jpg&w=1000)Today: [Abeille sur des fleurs de lavande (© Anthony Brown/Alamy)](https://www.bing.com/th?id=OHR.HoneyBeeLavender_FR-FR5663317705_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SongyangTeaGarden_FR-FR7139710446_UHD.jpg&w=1000)Today: [Jardin de thé au village de Yangjiatang, comté de Songyang, Chine (© feng xu/Getty Images)](https://www.bing.com/th?id=OHR.SongyangTeaGarden_FR-FR7139710446_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HoneyBeeLavender_DE-DE5467752918_UHD.jpg&w=1000)Today: [Honigbiene auf Lavendelblüte (© Anthony Brown/Alamy)](https://www.bing.com/th?id=OHR.HoneyBeeLavender_DE-DE5467752918_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SongyangTeaGarden_DE-DE9062718883_UHD.jpg&w=1000)Today: [Teegarten im Dorf Yangjiatang, Kreis Songyang, China (© feng xu/Getty Images)](https://www.bing.com/th?id=OHR.SongyangTeaGarden_DE-DE9062718883_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HoneyBeeLavender_ES-ES6507436350_UHD.jpg&w=1000)Today: [Abeja melífera en flores de lavanda (© Anthony Brown/Alamy)](https://www.bing.com/th?id=OHR.HoneyBeeLavender_ES-ES6507436350_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SongyangTeaGarden_ES-ES6785967738_UHD.jpg&w=1000)Today: [Jardín de té en la aldea de Yangjiatang, condado de Songyang, China (© feng xu/Getty Images)](https://www.bing.com/th?id=OHR.SongyangTeaGarden_ES-ES6785967738_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HoneyBeeLavender_EN-GB1571293701_UHD.jpg&w=1000)Today: [Honey bee on lavender flowers (© Anthony Brown/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HoneyBeeLavender_EN-GB1571293701_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SongyangTeaGarden_EN-GB1249285284_UHD.jpg&w=1000)Today: [Tea garden at Yangjiatang Village, Songyang County, China (© feng xu/Getty Images)](https://www.bing.com/th?id=OHR.SongyangTeaGarden_EN-GB1249285284_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HoneyBeeLavender_IT-IT3599671311_UHD.jpg&w=1000)Today: [Ape da miele su fiori di lavanda (© Anthony Brown/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HoneyBeeLavender_IT-IT3599671311_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SongyangTeaGarden_IT-IT7668449954_UHD.jpg&w=1000)Today: [Giardino del tè nel villaggio di Yangjiatang, contea di Songyang, Cina (© feng xu/Getty Images)](https://www.bing.com/th?id=OHR.SongyangTeaGarden_IT-IT7668449954_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.HoneyBeeLavender_PT-BR9232518610_UHD.jpg&w=1000)Today: [Abelha sobre flores de lavanda (© Anthony Brown/Alamy)](https://www.bing.com/th?id=OHR.HoneyBeeLavender_PT-BR9232518610_UHD.jpg)
 <br><br/>
