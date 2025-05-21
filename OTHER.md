@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SongyangTeaGarden_JA-JP8102249895_UHD.jpg&w=1000)今日の壁紙: &nbsp;[楊家堂村の茶園, 中国 浙江省 (© feng xu/Getty Images)](https://www.bing.com/th?id=OHR.SongyangTeaGarden_JA-JP8102249895_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BaobabAvenue_JA-JP8303382337_UHD.jpg&w=1000)今日の壁紙: &nbsp;[バオバブの巨木, マダガスカル (© Framalicious/Shutterstock)](https://www.bing.com/th?id=OHR.BaobabAvenue_JA-JP8303382337_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SongyangTeaGarden_FR-FR7139710446_UHD.jpg&w=1000)Today: [Jardin de thé au village de Yangjiatang, comté de Songyang, Chine (© feng xu/Getty Images)](https://www.bing.com/th?id=OHR.SongyangTeaGarden_FR-FR7139710446_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SongyangTeaGarden_IT-IT7668449954_UHD.jpg&w=1000)Today: [Giardino del tè nel villaggio di Yangjiatang, contea di Songyang, Cina (© feng xu/Getty Images)](https://www.bing.com/th?id=OHR.SongyangTeaGarden_IT-IT7668449954_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HoneyBeeLavender_PT-BR9232518610_UHD.jpg&w=1000)Today: [Abelha sobre flores de lavanda (© Anthony Brown/Alamy)](https://www.bing.com/th?id=OHR.HoneyBeeLavender_PT-BR9232518610_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SongyangTeaGarden_PT-BR1905535535_UHD.jpg&w=1000)Today: [Jardim de chá na Vila Yangjiatang, Condado de Songyang, China (© feng xu/Getty Images)](https://www.bing.com/th?id=OHR.SongyangTeaGarden_PT-BR1905535535_UHD.jpg)
 <br><br/>
