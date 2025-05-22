@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BaobabAvenue_JA-JP8303382337_UHD.jpg&w=1000)今日の壁紙: &nbsp;[バオバブの巨木, マダガスカル (© Framalicious/Shutterstock)](https://www.bing.com/th?id=OHR.BaobabAvenue_JA-JP8303382337_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ButterflyTurtle_JA-JP8547745457_UHD.jpg&w=1000)今日の壁紙: &nbsp;[モンキヨコクビガメ, エクアドル (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.ButterflyTurtle_JA-JP8547745457_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BaobabAvenue_FR-FR7374715565_UHD.jpg&w=1000)Today: [Baobabs au coucher du soleil, allée des Baobabs, Madagascar (© Framalicious/Shutterstock)](https://www.bing.com/th?id=OHR.BaobabAvenue_FR-FR7374715565_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BaobabAvenue_IT-IT7755407638_UHD.jpg&w=1000)Today: [Alberi di baobab al tramonto, Viale dei Baobab, Madagascar (© Framalicious/Shutterstock)](https://www.bing.com/th?id=OHR.BaobabAvenue_IT-IT7755407638_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SongyangTeaGarden_PT-BR1905535535_UHD.jpg&w=1000)Today: [Jardim de chá na Vila Yangjiatang, Condado de Songyang, China (© feng xu/Getty Images)](https://www.bing.com/th?id=OHR.SongyangTeaGarden_PT-BR1905535535_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BaobabAvenue_PT-BR2482029960_UHD.jpg&w=1000)Today: [Baobás ao pôr-do-sol, Avenida dos Baobás, Madagascar (© Framalicious/Shutterstock)](https://www.bing.com/th?id=OHR.BaobabAvenue_PT-BR2482029960_UHD.jpg)
 <br><br/>
