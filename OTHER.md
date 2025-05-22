@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.BaobabAvenue_JA-JP8303382337_UHD.jpg&w=1000)今日の壁紙: &nbsp;[バオバブの巨木, マダガスカル (© Framalicious/Shutterstock)](https://www.bing.com/th?id=OHR.BaobabAvenue_JA-JP8303382337_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SongyangTeaGarden_FR-FR7139710446_UHD.jpg&w=1000)Today: [Jardin de thé au village de Yangjiatang, comté de Songyang, Chine (© feng xu/Getty Images)](https://www.bing.com/th?id=OHR.SongyangTeaGarden_FR-FR7139710446_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BaobabAvenue_FR-FR7374715565_UHD.jpg&w=1000)Today: [Baobabs au coucher du soleil, allée des Baobabs, Madagascar (© Framalicious/Shutterstock)](https://www.bing.com/th?id=OHR.BaobabAvenue_FR-FR7374715565_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SongyangTeaGarden_DE-DE9062718883_UHD.jpg&w=1000)Today: [Teegarten im Dorf Yangjiatang, Kreis Songyang, China (© feng xu/Getty Images)](https://www.bing.com/th?id=OHR.SongyangTeaGarden_DE-DE9062718883_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BaobabAvenue_DE-DE3139251925_UHD.jpg&w=1000)Today: [Affenbrotbäume bei Sonnenuntergang, Baobab-Allee, Madagaskar (© Framalicious/Shutterstock)](https://www.bing.com/th?id=OHR.BaobabAvenue_DE-DE3139251925_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SongyangTeaGarden_ES-ES6785967738_UHD.jpg&w=1000)Today: [Jardín de té en la aldea de Yangjiatang, condado de Songyang, China (© feng xu/Getty Images)](https://www.bing.com/th?id=OHR.SongyangTeaGarden_ES-ES6785967738_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BaobabAvenue_ES-ES6995432921_UHD.jpg&w=1000)Today: [Árboles baobab al atardecer, Avenida de los Baobabs, Madagascar (© Framalicious/Shutterstock)](https://www.bing.com/th?id=OHR.BaobabAvenue_ES-ES6995432921_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SongyangTeaGarden_EN-GB1249285284_UHD.jpg&w=1000)Today: [Tea garden at Yangjiatang Village, Songyang County, China (© feng xu/Getty Images)](https://www.bing.com/th?id=OHR.SongyangTeaGarden_EN-GB1249285284_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HayFestival2025_EN-GB4662242459_UHD.jpg&w=1000)Today: [A bookshop in Hay-on-Wye, Wales, June 1997 (© Epics/Contributor/Hulton Archive/Getty Images)](https://www.bing.com/th?id=OHR.HayFestival2025_EN-GB4662242459_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SongyangTeaGarden_IT-IT7668449954_UHD.jpg&w=1000)Today: [Giardino del tè nel villaggio di Yangjiatang, contea di Songyang, Cina (© feng xu/Getty Images)](https://www.bing.com/th?id=OHR.SongyangTeaGarden_IT-IT7668449954_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BaobabAvenue_IT-IT7755407638_UHD.jpg&w=1000)Today: [Alberi di baobab al tramonto, Viale dei Baobab, Madagascar (© Framalicious/Shutterstock)](https://www.bing.com/th?id=OHR.BaobabAvenue_IT-IT7755407638_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SongyangTeaGarden_PT-BR1905535535_UHD.jpg&w=1000)Today: [Jardim de chá na Vila Yangjiatang, Condado de Songyang, China (© feng xu/Getty Images)](https://www.bing.com/th?id=OHR.SongyangTeaGarden_PT-BR1905535535_UHD.jpg)
 <br><br/>
