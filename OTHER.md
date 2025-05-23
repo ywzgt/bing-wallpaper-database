@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ButterflyTurtle_JA-JP8547745457_UHD.jpg&w=1000)今日の壁紙: &nbsp;[モンキヨコクビガメ, エクアドル (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.ButterflyTurtle_JA-JP8547745457_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IrisSanguinea2025_JA-JP5445202799_UHD.jpg&w=1000)今日の壁紙: &nbsp;[水郷佐原あやめパーク, 千葉県 香取市 (© MIXA/Getty Images)](https://www.bing.com/th?id=OHR.IrisSanguinea2025_JA-JP5445202799_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ButterflyTurtle_FR-FR7508748446_UHD.jpg&w=1000)Today: [Tortue cistude avec un papillon flambeau sur le nez, Amazonie Équatorienne (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.ButterflyTurtle_FR-FR7508748446_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ButterflyTurtle_IT-IT7843435777_UHD.jpg&w=1000)Today: [Una Farfalla Julia sul naso di una Tartaruga Amazzonica, Regione amazzonica, Ecuador (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.ButterflyTurtle_IT-IT7843435777_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BaobabAvenue_PT-BR2482029960_UHD.jpg&w=1000)Today: [Baobás ao pôr-do-sol, Avenida dos Baobás, Madagascar (© Framalicious/Shutterstock)](https://www.bing.com/th?id=OHR.BaobabAvenue_PT-BR2482029960_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ButterflyTurtle_PT-BR4108571272_UHD.jpg&w=1000)Today: [Borboleta Julia no nariz de uma tartaruga de orelha amarela, Região Amazônica, Equador (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.ButterflyTurtle_PT-BR4108571272_UHD.jpg)
 <br><br/>
