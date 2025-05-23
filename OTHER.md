@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.ButterflyTurtle_JA-JP8547745457_UHD.jpg&w=1000)今日の壁紙: &nbsp;[モンキヨコクビガメ, エクアドル (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.ButterflyTurtle_JA-JP8547745457_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BaobabAvenue_FR-FR7374715565_UHD.jpg&w=1000)Today: [Baobabs au coucher du soleil, allée des Baobabs, Madagascar (© Framalicious/Shutterstock)](https://www.bing.com/th?id=OHR.BaobabAvenue_FR-FR7374715565_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ButterflyTurtle_FR-FR7508748446_UHD.jpg&w=1000)Today: [Tortue cistude avec un papillon flambeau sur le nez, Amazonie Équatorienne (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.ButterflyTurtle_FR-FR7508748446_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BaobabAvenue_DE-DE3139251925_UHD.jpg&w=1000)Today: [Affenbrotbäume bei Sonnenuntergang, Baobab-Allee, Madagaskar (© Framalicious/Shutterstock)](https://www.bing.com/th?id=OHR.BaobabAvenue_DE-DE3139251925_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ButterflyTurtle_DE-DE3016646216_UHD.jpg&w=1000)Today: [Julia-Falter auf der Nase einer Terekay-Schienenschildkröte, Amazonasgebiet, Ecuador (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.ButterflyTurtle_DE-DE3016646216_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BaobabAvenue_ES-ES6995432921_UHD.jpg&w=1000)Today: [Árboles baobab al atardecer, Avenida de los Baobabs, Madagascar (© Framalicious/Shutterstock)](https://www.bing.com/th?id=OHR.BaobabAvenue_ES-ES6995432921_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ButterflyTurtle_ES-ES7080957238_UHD.jpg&w=1000)Today: [Una mariposa Julia en la nariz de una tortuga de río, Región Amazónica, Ecuador (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.ButterflyTurtle_ES-ES7080957238_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HayFestival2025_EN-GB4662242459_UHD.jpg&w=1000)Today: [A bookshop in Hay-on-Wye, Wales, June 1997 (© Epics/Contributor/Hulton Archive/Getty Images)](https://www.bing.com/th?id=OHR.HayFestival2025_EN-GB4662242459_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ButterflyTurtle_EN-GB1506456980_UHD.jpg&w=1000)Today: [A Julia butterfly on the nose of a yellow-spotted river turtle, Amazon Region, Ecuador (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.ButterflyTurtle_EN-GB1506456980_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BaobabAvenue_IT-IT7755407638_UHD.jpg&w=1000)Today: [Alberi di baobab al tramonto, Viale dei Baobab, Madagascar (© Framalicious/Shutterstock)](https://www.bing.com/th?id=OHR.BaobabAvenue_IT-IT7755407638_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ButterflyTurtle_IT-IT7843435777_UHD.jpg&w=1000)Today: [Una Farfalla Julia sul naso di una Tartaruga Amazzonica, Regione amazzonica, Ecuador (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.ButterflyTurtle_IT-IT7843435777_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BaobabAvenue_PT-BR2482029960_UHD.jpg&w=1000)Today: [Baobás ao pôr-do-sol, Avenida dos Baobás, Madagascar (© Framalicious/Shutterstock)](https://www.bing.com/th?id=OHR.BaobabAvenue_PT-BR2482029960_UHD.jpg)
 <br><br/>
