@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.JotunheimenPark_ZH-CN7417034574_UHD.jpg&w=1000)今日图片: &nbsp;[挪威尤通黑门山国家公园 (© Marisa Estivill/Shutterstock)](https://www.bing.com/th?id=OHR.JotunheimenPark_ZH-CN7417034574_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ButchartFlowers_ZH-CN6692930571_UHD.jpg&w=1000)今日图片: &nbsp;[布伦特伍德湾的布查特花园，不列颠哥伦比亚省，加拿大 (© 2009fotofriends/Shutterstock)](https://www.bing.com/th?id=OHR.ButchartFlowers_ZH-CN6692930571_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ButterflyTurtle_EN-US4083359630_UHD.jpg&w=1000)Today: [A Julia butterfly on the nose of a yellow-spotted river turtle, Amazon Region, Ecuador (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.ButterflyTurtle_EN-US4083359630_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JotunheimenPark_EN-US4200824377_UHD.jpg&w=1000)Today: [Jotunheimen National Park in Norway (© Marisa Estivill/Shutterstock)](https://www.bing.com/th?id=OHR.JotunheimenPark_EN-US4200824377_UHD.jpg)
 <br><br/>
