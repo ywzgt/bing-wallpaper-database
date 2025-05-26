@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.JotunheimenPark_JA-JP7956990214_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ヨトゥンヘイメン国立公園, ノルウェー (© Marisa Estivill/Shutterstock)](https://www.bing.com/th?id=OHR.JotunheimenPark_JA-JP7956990214_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MonaValePool_JA-JP0665807696_UHD.jpg&w=1000)今日の壁紙: &nbsp;[モナベール・ロックプール, オーストラリア (© jamenpercy/Getty Images)](https://www.bing.com/th?id=OHR.MonaValePool_JA-JP0665807696_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.StorksMeadow_FR-FR7891953780_UHD.jpg&w=1000)Today: [Cigognes blanches dans un champ de meules de foin (© Buchet Jean-marc/Wirestock/Adobe Stock)](https://www.bing.com/th?id=OHR.StorksMeadow_FR-FR7891953780_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MountHamilton_IT-IT9272623470_UHD.jpg&w=1000)Today: [Mount Hamilton, Baia di San Francisco, California, USA (© Jeffrey Lewis/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MountHamilton_IT-IT9272623470_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ButchartFlowers_PT-BR7345483854_UHD.jpg&w=1000)Today: [Jardins de Butchart em Brentwood Bay, Colúmbia Britânica, Canadá (© 2009fotofriends/Shutterstock)](https://www.bing.com/th?id=OHR.ButchartFlowers_PT-BR7345483854_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Arashiyama2025_PT-BR6176827383_UHD.jpg&w=1000)Today: [Trem ao longo do rio Hozugawa em Arashiyama, Quioto, Japão (© Alvin Huang/Getty Images)](https://www.bing.com/th?id=OHR.Arashiyama2025_PT-BR6176827383_UHD.jpg)
 <br><br/>
