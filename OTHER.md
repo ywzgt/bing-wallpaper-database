@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MonaValePool_JA-JP0665807696_UHD.jpg&w=1000)今日の壁紙: &nbsp;[モナベール・ロックプール, オーストラリア (© jamenpercy/Getty Images)](https://www.bing.com/th?id=OHR.MonaValePool_JA-JP0665807696_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KelpOtter_JA-JP0838803999_UHD.jpg&w=1000)今日の壁紙: &nbsp;[海藻に巻かれたラッコ, 米国 アラスカ州 (© Gerry Ellis/Minden Pictures)](https://www.bing.com/th?id=OHR.KelpOtter_JA-JP0838803999_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MonaValePool_FR-FR8065557035_UHD.jpg&w=1000)Today: [Piscine naturelle de Mona Vale, Sidney, Nouvelle-Galles du Sud, Australie (© jamenpercy/Getty Images)](https://www.bing.com/th?id=OHR.MonaValePool_FR-FR8065557035_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.OmbrelliMassa_IT-IT4285785207_UHD.jpg&w=1000)Today: [Ombrelloni simmetrici visti dall'alto, Massa, Toscana (© Abstract Aerial Art/DigitalVision)](https://www.bing.com/th?id=OHR.OmbrelliMassa_IT-IT4285785207_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Arashiyama2025_PT-BR6176827383_UHD.jpg&w=1000)Today: [Trem ao longo do rio Hozugawa em Arashiyama, Quioto, Japão (© Alvin Huang/Getty Images)](https://www.bing.com/th?id=OHR.Arashiyama2025_PT-BR6176827383_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DiaMataAtlantica2025_PT-BR6905728982_UHD.jpg&w=1000)Today: [Rio da Mata Atlântica em Pernambuco (© Pollyana Ventura/Getty Images)](https://www.bing.com/th?id=OHR.DiaMataAtlantica2025_PT-BR6905728982_UHD.jpg)
 <br><br/>
