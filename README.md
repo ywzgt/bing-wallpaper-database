@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.KelpOtter_ZH-CN8297228161_UHD.jpg&w=1000)今日图片: &nbsp;[一只海獭漂浮在阿拉斯加海洋国家野生动物保护区的海藻床上，美国 (© Gerry Ellis/Minden Pictures)](https://www.bing.com/th?id=OHR.KelpOtter_ZH-CN8297228161_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MiravetSpain_ZH-CN8584568741_UHD.jpg&w=1000)今日图片: &nbsp;[米拉韦特，埃布罗河，加泰罗尼亚塔，西班牙 (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.MiravetSpain_ZH-CN8584568741_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MonaValePool_EN-US4805820773_UHD.jpg&w=1000)Today: [Mona Vale Rockpool, Sydney, Australia (© jamenpercy/Getty Images)](https://www.bing.com/th?id=OHR.MonaValePool_EN-US4805820773_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KelpOtter_EN-US4867923884_UHD.jpg&w=1000)Today: [Sea otter floating in a kelp bed in Alaska Maritime National Wildlife Refuge (© Gerry Ellis/Minden Pictures)](https://www.bing.com/th?id=OHR.KelpOtter_EN-US4867923884_UHD.jpg)
 <br><br/>
