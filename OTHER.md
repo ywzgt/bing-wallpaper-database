@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.KelpOtter_JA-JP0838803999_UHD.jpg&w=1000)今日の壁紙: &nbsp;[海藻に巻かれたラッコ, 米国 アラスカ州 (© Gerry Ellis/Minden Pictures)](https://www.bing.com/th?id=OHR.KelpOtter_JA-JP0838803999_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MonaValePool_FR-FR8065557035_UHD.jpg&w=1000)Today: [Piscine naturelle de Mona Vale, Sidney, Nouvelle-Galles du Sud, Australie (© jamenpercy/Getty Images)](https://www.bing.com/th?id=OHR.MonaValePool_FR-FR8065557035_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KelpOtter_FR-FR8247286249_UHD.jpg&w=1000)Today: [Loutre de mer au milieu de varech, refuge faunique national maritime d'Alaska, États-Unis (© Gerry Ellis/Minden Pictures)](https://www.bing.com/th?id=OHR.KelpOtter_FR-FR8247286249_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MonaValePool_DE-DE2862421756_UHD.jpg&w=1000)Today: [Mona Vale Ozean-Pool, Sydney, Australien (© jamenpercy/Getty Images)](https://www.bing.com/th?id=OHR.MonaValePool_DE-DE2862421756_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KelpOtter_DE-DE1256617925_UHD.jpg&w=1000)Today: [Seeotter in einem Seetangbett schwimmend im Alaska Maritime National Wildlife Refuge, USA (© Gerry Ellis/Minden Pictures)(© Gerry Ellis/Minden Pictures)](https://www.bing.com/th?id=OHR.KelpOtter_DE-DE1256617925_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MonaValePool_ES-ES7840857605_UHD.jpg&w=1000)Today: [Mona Vale rockpool, Sídney, Australia (© jamenpercy/Getty Images)](https://www.bing.com/th?id=OHR.MonaValePool_ES-ES7840857605_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KelpOtter_ES-ES7948164932_UHD.jpg&w=1000)Today: [Nutria marina flotando en un lecho de algas en el Refugio Nacional de Vida Silvestre Marítimo de Alaska, EE. UU. (© Gerry Ellis/Minden Pictures)](https://www.bing.com/th?id=OHR.KelpOtter_ES-ES7948164932_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MonaValePool_EN-GB2284881837_UHD.jpg&w=1000)Today: [Mona Vale rockpool, Sydney, Australia (© jamenpercy/Getty Images)](https://www.bing.com/th?id=OHR.MonaValePool_EN-GB2284881837_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KelpOtter_EN-GB3307429854_UHD.jpg&w=1000)Today: [Sea otter floating in a kelp bed in Alaska Maritime National Wildlife Refuge, United States (© Gerry Ellis/Minden Pictures)](https://www.bing.com/th?id=OHR.KelpOtter_EN-GB3307429854_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.OmbrelliMassa_IT-IT4285785207_UHD.jpg&w=1000)Today: [Ombrelloni simmetrici visti dall'alto, Massa, Toscana (© Abstract Aerial Art/DigitalVision)](https://www.bing.com/th?id=OHR.OmbrelliMassa_IT-IT4285785207_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KelpOtter_IT-IT4372349313_UHD.jpg&w=1000)Today: [Lontra marina nell'Alaska Maritime National Wildlife Refuge, USA (© Gerry Ellis/Minden Pictures)](https://www.bing.com/th?id=OHR.KelpOtter_IT-IT4372349313_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.DiaMataAtlantica2025_PT-BR6905728982_UHD.jpg&w=1000)Today: [Rio da Mata Atlântica em Pernambuco (© Pollyana Ventura/Getty Images)](https://www.bing.com/th?id=OHR.DiaMataAtlantica2025_PT-BR6905728982_UHD.jpg)
 <br><br/>
