@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MiravetSpain_JA-JP1110549507_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ミラベット, スペイン カタルーニャ州 (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.MiravetSpain_JA-JP1110549507_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LittlePigeonRiver_JA-JP4939584633_UHD.jpg&w=1000)今日の壁紙: &nbsp;[グレート・スモーキー山脈国立公園, 米国 テネシー州 (© GreenStock/Getty Images)](https://www.bing.com/th?id=OHR.LittlePigeonRiver_JA-JP4939584633_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MiravetSpain_FR-FR8451258933_UHD.jpg&w=1000)Today: [Miravet sur le fleuve Èbre, Tarragone, Catalogne, Espagne (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.MiravetSpain_FR-FR8451258933_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MiravetSpain_IT-IT4503014691_UHD.jpg&w=1000)Today: [Miravet sul fiume Ebro, Tarragona, Catalogna, Spagna (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.MiravetSpain_IT-IT4503014691_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.KelpOtter_PT-BR7205269839_UHD.jpg&w=1000)Today: [Lontra-marinha flutuando entre algas no Refúgio Nacional de Vida Selvagem Marinha do Alasca, EUA (© Gerry Ellis/Minden Pictures)](https://www.bing.com/th?id=OHR.KelpOtter_PT-BR7205269839_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MiravetSpain_PT-BR7483184425_UHD.jpg&w=1000)Today: [Miravet às margens do rio Ebro, Tarragona, Catalunha, Espanha (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.MiravetSpain_PT-BR7483184425_UHD.jpg)
 <br><br/>
