@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.LittlePigeonRiver_JA-JP4939584633_UHD.jpg&w=1000)今日の壁紙: &nbsp;[グレート・スモーキー山脈国立公園, 米国 テネシー州 (© GreenStock/Getty Images)](https://www.bing.com/th?id=OHR.LittlePigeonRiver_JA-JP4939584633_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MiravetSpain_FR-FR8451258933_UHD.jpg&w=1000)Today: [Miravet sur le fleuve Èbre, Tarragone, Catalogne, Espagne (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.MiravetSpain_FR-FR8451258933_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LittlePigeonRiver_FR-FR4616803123_UHD.jpg&w=1000)Today: [Little Pigeon River, Parc national des Great Smoky Mountains, Tennessee, États-Unis (© GreenStock/Getty Images)](https://www.bing.com/th?id=OHR.LittlePigeonRiver_FR-FR4616803123_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GoetheSchiller_DE-DE0833691040_UHD.jpg&w=1000)Today: [Goethe-Schiller-Denkmal in Weimar, Thüringen (© Robert Ruidl/iStock/Getty Images)](https://www.bing.com/th?id=OHR.GoetheSchiller_DE-DE0833691040_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LittlePigeonRiver_DE-DE2665002576_UHD.jpg&w=1000)Today: [Little Pigeon River, Great-Smoky-Mountains-Nationalpark, Tennessee, USA (© GreenStock/Getty Images)](https://www.bing.com/th?id=OHR.LittlePigeonRiver_DE-DE2665002576_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MiravetSpain_ES-ES8030054546_UHD.jpg&w=1000)Today: [Miravet en el río Ebro, Tarragona, Cataluña, España (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.MiravetSpain_ES-ES8030054546_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CanaryIslandDay_ES-ES5813844536_UHD.jpg&w=1000)Today: [Atardecer en el Parque Nacional del Teide, Santa Cruz de Tenerife, España (© DiegoJose/Adobe Stock)](https://www.bing.com/th?id=OHR.CanaryIslandDay_ES-ES5813844536_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MiravetSpain_EN-GB3438322242_UHD.jpg&w=1000)Today: [Miravet on the Ebro river, Tarragona, Catalonia, Spain (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.MiravetSpain_EN-GB3438322242_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LittlePigeonRiver_EN-GB1104081209_UHD.jpg&w=1000)Today: [Little Pigeon River, Great Smoky Mountains National Park, Tennessee, United States (© GreenStock/Getty Images)](https://www.bing.com/th?id=OHR.LittlePigeonRiver_EN-GB1104081209_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MiravetSpain_IT-IT4503014691_UHD.jpg&w=1000)Today: [Miravet sul fiume Ebro, Tarragona, Catalogna, Spagna (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.MiravetSpain_IT-IT4503014691_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LittlePigeonRiver_IT-IT1807202812_UHD.jpg&w=1000)Today: [Fiume Little Pigeon, Parco Nazionale delle Great Smoky Mountains, Tennessee, USA (© GreenStock/Getty Images)](https://www.bing.com/th?id=OHR.LittlePigeonRiver_IT-IT1807202812_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MiravetSpain_PT-BR7483184425_UHD.jpg&w=1000)Today: [Miravet às margens do rio Ebro, Tarragona, Catalunha, Espanha (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.MiravetSpain_PT-BR7483184425_UHD.jpg)
 <br><br/>
