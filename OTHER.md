@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.LittlePigeonRiver_JA-JP4939584633_UHD.jpg&w=1000)今日の壁紙: &nbsp;[グレート・スモーキー山脈国立公園, 米国 テネシー州 (© GreenStock/Getty Images)](https://www.bing.com/th?id=OHR.LittlePigeonRiver_JA-JP4939584633_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SwedenReserve_JA-JP5195008647_UHD.jpg&w=1000)今日の壁紙: &nbsp;[クヌートイスモッセン自然保護区, スウェーデン (© Sven Halling/DEEPOL/plainpicture)](https://www.bing.com/th?id=OHR.SwedenReserve_JA-JP5195008647_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.LittlePigeonRiver_FR-FR4616803123_UHD.jpg&w=1000)Today: [Little Pigeon River, Parc national des Great Smoky Mountains, Tennessee, États-Unis (© GreenStock/Getty Images)](https://www.bing.com/th?id=OHR.LittlePigeonRiver_FR-FR4616803123_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.LittlePigeonRiver_IT-IT1807202812_UHD.jpg&w=1000)Today: [Fiume Little Pigeon, Parco Nazionale delle Great Smoky Mountains, Tennessee, USA (© GreenStock/Getty Images)](https://www.bing.com/th?id=OHR.LittlePigeonRiver_IT-IT1807202812_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MiravetSpain_PT-BR7483184425_UHD.jpg&w=1000)Today: [Miravet às margens do rio Ebro, Tarragona, Catalunha, Espanha (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.MiravetSpain_PT-BR7483184425_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LittlePigeonRiver_PT-BR7889046917_UHD.jpg&w=1000)Today: [Rio Little Pigeon, Parque Nacional das Grandes Montanhas Fumegantes, Tennessee, EUA (© GreenStock/Getty Images)](https://www.bing.com/th?id=OHR.LittlePigeonRiver_PT-BR7889046917_UHD.jpg)
 <br><br/>
