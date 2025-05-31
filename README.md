@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.DuanwuFestivalY25_ZH-CN7343005503_UHD.jpg&w=1000)今日图片: &nbsp;[用彩色丝线串成的香囊，端午节前夕的庙会上，吉林省吉林市，中国 (© Visual China Group/Getty Images)](https://www.bing.com/th?id=OHR.DuanwuFestivalY25_ZH-CN7343005503_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GrandeTerreReef_ZH-CN7463701309_UHD.jpg&w=1000)今日图片: &nbsp;[格朗特尔岛附近的堡礁，法属新喀里多尼亚 (© Karsten Wrobel/Getty Images)](https://www.bing.com/th?id=OHR.GrandeTerreReef_ZH-CN7463701309_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LittlePigeonRiver_EN-US1765916005_UHD.jpg&w=1000)Today: [Little Pigeon River, Great Smoky Mountains National Park, Tennessee (© GreenStock/Getty Images)](https://www.bing.com/th?id=OHR.LittlePigeonRiver_EN-US1765916005_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SwedenReserve_EN-US8234763267_UHD.jpg&w=1000)Today: [Knuthöjdsmossen, a nature reserve in Sweden (© Sven Halling/DEEPOL/plainpicture)](https://www.bing.com/th?id=OHR.SwedenReserve_EN-US8234763267_UHD.jpg)
 <br><br/>
