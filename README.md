@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.EchinaceaButterfly_ZH-CN7877489878_UHD.jpg&w=1000)今日图片: &nbsp;[一只停在紫锥菊上的灰蝶，洛克菲勒州立公园，纽约 (© Marianne A. Campolongo/Alamy)](https://www.bing.com/th?id=OHR.EchinaceaButterfly_ZH-CN7877489878_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BicyclesUtrecht_ZH-CN8016028978_UHD.jpg&w=1000)今日图片: &nbsp;[乌得勒支桥上的自行车，荷兰 (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.BicyclesUtrecht_ZH-CN8016028978_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GrandeTerreReef_EN-US8351815569_UHD.jpg&w=1000)Today: [Barrier reef off the island of Grande Terre in the French overseas territory of New Caledonia (© Karsten Wrobel/Getty Images)](https://www.bing.com/th?id=OHR.GrandeTerreReef_EN-US8351815569_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EchinaceaButterfly_EN-US8404044892_UHD.jpg&w=1000)Today: [Skipper butterfly on a coneflower, Rockefeller State Park Preserve, New York (© Marianne A. Campolongo/Alamy)](https://www.bing.com/th?id=OHR.EchinaceaButterfly_EN-US8404044892_UHD.jpg)
 <br><br/>
