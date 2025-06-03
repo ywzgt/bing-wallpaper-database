@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BicyclesUtrecht_ZH-CN8016028978_UHD.jpg&w=1000)今日图片: &nbsp;[乌得勒支桥上的自行车，荷兰 (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.BicyclesUtrecht_ZH-CN8016028978_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_UHD.jpg&w=1000)今日图片: &nbsp;[卡拉卢纳海滩, 撒丁岛, 意大利 (© guenterguni/Getty Images)](https://www.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.EchinaceaButterfly_EN-US8404044892_UHD.jpg&w=1000)Today: [Skipper butterfly on a coneflower, Rockefeller State Park Preserve, New York (© Marianne A. Campolongo/Alamy)](https://www.bing.com/th?id=OHR.EchinaceaButterfly_EN-US8404044892_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BicyclesUtrecht_EN-US8449213938_UHD.jpg&w=1000)Today: [Bicycles on a bridge in Utrecht, Netherlands (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.BicyclesUtrecht_EN-US8449213938_UHD.jpg)
 <br><br/>
