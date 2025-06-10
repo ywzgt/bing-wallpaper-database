@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AerialEverglades_JA-JP6124375299_UHD.jpg&w=1000)今日の壁紙: &nbsp;[エバーグレーズ国立公園, 米国 フロリダ州 (© Robert DelVecchio - OcuDrone/Getty Images)](https://www.bing.com/th?id=OHR.AerialEverglades_JA-JP6124375299_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Hydrangea2025_JA-JP6293958044_UHD.jpg&w=1000)今日の壁紙: &nbsp;[あじさいの丘, 静岡県 賀茂郡 (© Tommy Tsutsui/Getty Images)](https://www.bing.com/th?id=OHR.Hydrangea2025_JA-JP6293958044_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AerialEverglades_FR-FR3171066688_UHD.jpg&w=1000)Today: [Vue aérienne du parc national des Everglades, Floride, États-Unis (© Robert DelVecchio - OcuDrone/Getty Images)](https://www.bing.com/th?id=OHR.AerialEverglades_FR-FR3171066688_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AmalfiCampania_IT-IT5052027567_UHD.jpg&w=1000)Today: [Vista di Amalfi, Salerno, Campania (© elxeneize/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.AmalfiCampania_IT-IT5052027567_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DubrovnikTwilight_PT-BR8704767990_UHD.jpg&w=1000)Today: [Cidade Antiga de Dubrovnik, Dalmácia, Croácia (© bluejayphoto/Getty Images)](https://www.bing.com/th?id=OHR.DubrovnikTwilight_PT-BR8704767990_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AerialEverglades_PT-BR5098908500_UHD.jpg&w=1000)Today: [Vista aérea do Parque Nacional Everglades, Flórida, EUA (© Robert DelVecchio - OcuDrone/Getty Images)](https://www.bing.com/th?id=OHR.AerialEverglades_PT-BR5098908500_UHD.jpg)
 <br><br/>
