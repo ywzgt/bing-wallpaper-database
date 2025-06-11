@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Hydrangea2025_JA-JP6293958044_UHD.jpg&w=1000)今日の壁紙: &nbsp;[あじさいの丘, 静岡県 賀茂郡 (© Tommy Tsutsui/Getty Images)](https://www.bing.com/th?id=OHR.Hydrangea2025_JA-JP6293958044_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BigBendChisos_JA-JP6210752580_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ビッグ・ベンド国立公園, 米国 テキサス州 (© Dean Fikar/Getty Images)](https://www.bing.com/th?id=OHR.BigBendChisos_JA-JP6210752580_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.FlamingosNamibia_FR-FR3406043223_UHD.jpg&w=1000)Today: [Flamants roses, Lüderitz, Namibie (© Karine Aigner/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.FlamingosNamibia_FR-FR3406043223_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.FlamingosNamibia_IT-IT6908243385_UHD.jpg&w=1000)Today: [Fenicotteri maggiori, Lüderitz, Namibia (© Karine Aigner/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.FlamingosNamibia_IT-IT6908243385_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AerialEverglades_PT-BR5098908500_UHD.jpg&w=1000)Today: [Vista aérea do Parque Nacional Everglades, Flórida, EUA (© Robert DelVecchio - OcuDrone/Getty Images)](https://www.bing.com/th?id=OHR.AerialEverglades_PT-BR5098908500_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FlamingosNamibia_PT-BR5557739797_UHD.jpg&w=1000)Today: [Flamingos-rosados em Lüderitz, Namíbia (© Karine Aigner/TANDEM Stills + Motion)  (© Karine Aigner/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.FlamingosNamibia_PT-BR5557739797_UHD.jpg)
 <br><br/>
