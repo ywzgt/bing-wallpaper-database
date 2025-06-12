@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BigBendChisos_JA-JP6210752580_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ビッグ・ベンド国立公園, 米国 テキサス州 (© Dean Fikar/Getty Images)](https://www.bing.com/th?id=OHR.BigBendChisos_JA-JP6210752580_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SanMiguelAzores_JA-JP3142066706_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ヴィラ・フランカ・ド・カンポ島, ポルトガル (© ARoxo/Getty Images)](https://www.bing.com/th?id=OHR.SanMiguelAzores_JA-JP3142066706_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BigBendChisos_FR-FR3569892339_UHD.jpg&w=1000)Today: [Chisos Mountains, Parc national de Big Bend, Texas, État-Unis (© Dean Fikar/Getty Images)](https://www.bing.com/th?id=OHR.BigBendChisos_FR-FR3569892339_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BigBendChisos_IT-IT7015361266_UHD.jpg&w=1000)Today: [Monti Chisos, Parco Nazionale Big Bend, Texas, USA (© Dean Fikar/Getty Images)](https://www.bing.com/th?id=OHR.BigBendChisos_IT-IT7015361266_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.FlamingosNamibia_PT-BR5557739797_UHD.jpg&w=1000)Today: [Flamingos-rosados em Lüderitz, Namíbia (© Karine Aigner/TANDEM Stills + Motion)  (© Karine Aigner/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.FlamingosNamibia_PT-BR5557739797_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DiaDosNamoradosMacaws_PT-BR5812210481_UHD.jpg&w=1000)Today: [Araras-vermelhas no Buraco das Araras, perto de Bonito, Mato Grosso do Sul, Brasil (© Schafer & Hill/Getty Images)](https://www.bing.com/th?id=OHR.DiaDosNamoradosMacaws_PT-BR5812210481_UHD.jpg)
 <br><br/>
