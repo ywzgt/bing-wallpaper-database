@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SanMiguelAzores_JA-JP3142066706_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ヴィラ・フランカ・ド・カンポ島, ポルトガル (© ARoxo/Getty Images)](https://www.bing.com/th?id=OHR.SanMiguelAzores_JA-JP3142066706_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NikkoToshoguShrine_JA-JP2939521159_UHD.jpg&w=1000)今日の壁紙: &nbsp;[日光東照宮, 栃木県 日光市 (© Pavel Nesvadba/shutterstock)](https://www.bing.com/th?id=OHR.NikkoToshoguShrine_JA-JP2939521159_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SanMiguelAzores_FR-FR4225614562_UHD.jpg&w=1000)Today: [Îlot de Vila Franca do Campo, île de São Miguel, Açores, Portugal (© ARoxo/Getty Images)](https://www.bing.com/th?id=OHR.SanMiguelAzores_FR-FR4225614562_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SanMiguelAzores_IT-IT5812547329_UHD.jpg&w=1000)Today: [Isolotto di Vila Franca, Isola di São Miguel, Azzorre, Portogallo (© ARoxo/Getty Images)](https://www.bing.com/th?id=OHR.SanMiguelAzores_IT-IT5812547329_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DiaDosNamoradosMacaws_PT-BR5812210481_UHD.jpg&w=1000)Today: [Araras-vermelhas no Buraco das Araras, perto de Bonito, Mato Grosso do Sul, Brasil (© Schafer & Hill/Getty Images)](https://www.bing.com/th?id=OHR.DiaDosNamoradosMacaws_PT-BR5812210481_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SanMiguelAzores_PT-BR2658684793_UHD.jpg&w=1000)Today: [Ilhéu de Vila Franca, Ilha de São Miguel, Açores, Portugal (© ARoxo/Getty Images)](https://www.bing.com/th?id=OHR.SanMiguelAzores_PT-BR2658684793_UHD.jpg)
 <br><br/>
