@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.RheaDad_JA-JP7457572073_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ダーウィンレアの父子, チリ (© Ignacio Yufera/Minden Pictures)](https://www.bing.com/th?id=OHR.RheaDad_JA-JP7457572073_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SeaTurtleBrazil_JA-JP7521430958_UHD.jpg&w=1000)今日の壁紙: &nbsp;[碧い海に舞うウミガメ, ブラジル (© João Vianna/Getty Images)](https://www.bing.com/th?id=OHR.SeaTurtleBrazil_JA-JP7521430958_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.RheaDad_FR-FR4814094029_UHD.jpg&w=1000)Today: [Nandou de Darwin mâle avec ses petits, parc national Torres del Paine, Patagonie, Chili (© Ignacio Yufera/Minden Pictures)](https://www.bing.com/th?id=OHR.RheaDad_FR-FR4814094029_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.RheaDad_IT-IT4866399219_UHD.jpg&w=1000)Today: [Maschio adulto di Rhea pennata con pulcini, Parco Nazionale Torres del Paine, Patagonia, Cile (© Ignacio Yufera/Minden Pictures)](https://www.bing.com/th?id=OHR.RheaDad_IT-IT4866399219_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DolomitiEstate_PT-BR0683088540_UHD.jpg&w=1000)Today: [Cinco Torres, Dolomitas, Itália (© usabin/Getty Images)](https://www.bing.com/th?id=OHR.DolomitiEstate_PT-BR0683088540_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RheaDad_PT-BR0280530641_UHD.jpg&w=1000)Today: [Macho de nandu-de-darwin com filhotes, Parque Nacional Torres del Paine, Patagônia, Chile (© Ignacio Yufera/Minden Pictures)](https://www.bing.com/th?id=OHR.RheaDad_PT-BR0280530641_UHD.jpg)
 <br><br/>
