@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.RheaDad_JA-JP7457572073_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ダーウィンレアの父子, チリ (© Ignacio Yufera/Minden Pictures)](https://www.bing.com/th?id=OHR.RheaDad_JA-JP7457572073_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DolomitiEstate_FR-FR4432604258_UHD.jpg&w=1000)Today: [Cinque Torri, Dolomites, Italie (© usabin/Getty Images)](https://www.bing.com/th?id=OHR.DolomitiEstate_FR-FR4432604258_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RheaDad_FR-FR4814094029_UHD.jpg&w=1000)Today: [Nandou de Darwin mâle avec ses petits, parc national Torres del Paine, Patagonie, Chili (© Ignacio Yufera/Minden Pictures)](https://www.bing.com/th?id=OHR.RheaDad_FR-FR4814094029_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DolomitiEstate_DE-DE7890492022_UHD.jpg&w=1000)Today: [Cinque Torri, Dolomiten, Italien (© usabin/Getty Images)](https://www.bing.com/th?id=OHR.DolomitiEstate_DE-DE7890492022_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WatertowerMannheim_DE-DE8334179684_UHD.jpg&w=1000)Today: [Wasserturm, Mannheim, Baden-Württemberg (© no_limit_pictures/Getty Images)](https://www.bing.com/th?id=OHR.WatertowerMannheim_DE-DE8334179684_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DolomitiEstate_ES-ES8254189997_UHD.jpg&w=1000)Today: [Cinque Torri, Dolomitas, Italia (© usabin/Getty Images)](https://www.bing.com/th?id=OHR.DolomitiEstate_ES-ES8254189997_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RheaDad_ES-ES9999398761_UHD.jpg&w=1000)Today: [Macho adulto de ñandú con polluelos, Parque Nacional Torres del Paine, Patagonia, Chile (© Ignacio Yufera/Minden Pictures)](https://www.bing.com/th?id=OHR.RheaDad_ES-ES9999398761_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TroopingTheColour2025_EN-GB7387782428_UHD.jpg&w=1000)Today: [Trooping the Colour procession along The Mall in London, England, on June 16, 2007 (© Tim Graham Photo Library/Getty Images)](https://www.bing.com/th?id=OHR.TroopingTheColour2025_EN-GB7387782428_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RheaDad_EN-GB7667641809_UHD.jpg&w=1000)Today: [Lesser rhea adult male with chicks, Torres del Paine National Park, Patagonia, Chile (© Ignacio Yufera/Minden Pictures)](https://www.bing.com/th?id=OHR.RheaDad_EN-GB7667641809_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DolomitiEstate_IT-IT5883847806_UHD.jpg&w=1000)Today: [Cinque Torri, Dolomiti, Cortina d’Ampezzo, Belluno, Veneto (© usabin/Getty Images)](https://www.bing.com/th?id=OHR.DolomitiEstate_IT-IT5883847806_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RheaDad_IT-IT4866399219_UHD.jpg&w=1000)Today: [Maschio adulto di Rhea pennata con pulcini, Parco Nazionale Torres del Paine, Patagonia, Cile (© Ignacio Yufera/Minden Pictures)](https://www.bing.com/th?id=OHR.RheaDad_IT-IT4866399219_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.DolomitiEstate_PT-BR0683088540_UHD.jpg&w=1000)Today: [Cinco Torres, Dolomitas, Itália (© usabin/Getty Images)](https://www.bing.com/th?id=OHR.DolomitiEstate_PT-BR0683088540_UHD.jpg)
 <br><br/>
