@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AsianSwallowtail_ZH-CN7442263508_UHD.jpg&w=1000)今日图片: &nbsp;[红花石蒜上的柑橘凤蝶 (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.AsianSwallowtail_ZH-CN7442263508_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WinterBegins_ZH-CN7638411804_UHD.jpg&w=1000)今日图片: &nbsp;[圣卡塔琳娜州的海滩, 巴西 (© CaioCarvalhoPhotography/Getty Images)](https://www.bing.com/th?id=OHR.WinterBegins_ZH-CN7638411804_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CumberlandOaks_EN-US1850139942_UHD.jpg&w=1000)Today: [Maritime forest in Cumberland Island National Seashore, Georgia (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CumberlandOaks_EN-US1850139942_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AsianSwallowtail_EN-US1924189362_UHD.jpg&w=1000)Today: [Asian swallowtail butterfly on a red spider lily (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.AsianSwallowtail_EN-US1924189362_UHD.jpg)
 <br><br/>
