@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.FireflySeason2025_JA-JP3057846302_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ホタルが光る森, 岡山県 (© JGalione/Getty Images)](https://www.bing.com/th?id=OHR.FireflySeason2025_JA-JP3057846302_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IcelandSolstice_JA-JP9258082333_UHD.jpg&w=1000)今日の壁紙: &nbsp;[セリャラントスフォス, アイスランド  (© Tom Mackie/AWL/plainpicture)](https://www.bing.com/th?id=OHR.IcelandSolstice_JA-JP9258082333_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.WinterBegins_FR-FR5821587665_UHD.jpg&w=1000)Today: [Plage à Santa Catarina, Brésil (© CaioCarvalhoPhotography/Getty Images)](https://www.bing.com/th?id=OHR.WinterBegins_FR-FR5821587665_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.WinterBegins_IT-IT6219104998_UHD.jpg&w=1000)Today: [Spiaggia a Santa Catarina, Brasile (© CaioCarvalhoPhotography/Getty Images)](https://www.bing.com/th?id=OHR.WinterBegins_IT-IT6219104998_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AsianSwallowtail_PT-BR4054073154_UHD.jpg&w=1000)Today: [Borboleta sobre lírio-da-aranha-vermelha (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.AsianSwallowtail_PT-BR4054073154_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IcelandSolstice_PT-BR2763816413_UHD.jpg&w=1000)Today: [Cascata de Seljalandsfoss ao entardecer, na Islândia (© Tom Mackie/AWL/plainpicture)](https://www.bing.com/th?id=OHR.IcelandSolstice_PT-BR2763816413_UHD.jpg)
 <br><br/>
