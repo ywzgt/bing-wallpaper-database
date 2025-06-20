@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.IcelandSolstice_JA-JP9258082333_UHD.jpg&w=1000)今日の壁紙: &nbsp;[セリャラントスフォス, アイスランド  (© Tom Mackie/AWL/plainpicture)](https://www.bing.com/th?id=OHR.IcelandSolstice_JA-JP9258082333_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WinterBegins_FR-FR5821587665_UHD.jpg&w=1000)Today: [Plage à Santa Catarina, Brésil (© CaioCarvalhoPhotography/Getty Images)](https://www.bing.com/th?id=OHR.WinterBegins_FR-FR5821587665_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SerengetiGiraffe_FR-FR9630201314_UHD.jpg&w=1000)Today: [Girafe Masaï et son girafon, parc national du Serengeti, Tanzanie (© Alberto Cassani/Getty Images)](https://www.bing.com/th?id=OHR.SerengetiGiraffe_FR-FR9630201314_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WinterBegins_DE-DE2019737039_UHD.jpg&w=1000)Today: [Strand in Santa Catarina, Brasilien (© CaioCarvalhoPhotography/Getty Images)](https://www.bing.com/th?id=OHR.WinterBegins_DE-DE2019737039_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SerengetiGiraffe_DE-DE4851504112_UHD.jpg&w=1000)Today: [Massai-Giraffenmutter pflegt ihr Kalb im Serengeti-Nationalpark, Tansania (© Alberto Cassani/Getty Images)](https://www.bing.com/th?id=OHR.SerengetiGiraffe_DE-DE4851504112_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WinterBegins_ES-ES0401089663_UHD.jpg&w=1000)Today: [Playa en Santa Catarina, Brasil (© CaioCarvalhoPhotography/Getty Images)](https://www.bing.com/th?id=OHR.WinterBegins_ES-ES0401089663_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IcelandSolstice_ES-ES0482972208_UHD.jpg&w=1000)Today: [Cascada de Seljalandsfoss al atardecer, Islandia (© Tom Mackie/AWL/plainpicture)](https://www.bing.com/th?id=OHR.IcelandSolstice_ES-ES0482972208_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DolomitiEstate_EN-GB8739058818_UHD.jpg&w=1000)Today: [Cinque Torri, Dolomites, Italy (© usabin/Getty Images)](https://www.bing.com/th?id=OHR.DolomitiEstate_EN-GB8739058818_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SerengetiGiraffe_EN-GB8989082610_UHD.jpg&w=1000)Today: [Masai giraffe mother grooming her calf in the Serengeti, Tanzania (© Alberto Cassani/Getty Images)](https://www.bing.com/th?id=OHR.SerengetiGiraffe_EN-GB8989082610_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WinterBegins_IT-IT6219104998_UHD.jpg&w=1000)Today: [Spiaggia a Santa Catarina, Brasile (© CaioCarvalhoPhotography/Getty Images)](https://www.bing.com/th?id=OHR.WinterBegins_IT-IT6219104998_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SaleTrapani_IT-IT6306427374_UHD.jpg&w=1000)Today: [Riserva Naturale Orientata Saline di Trapani e Paceco, Trapani, Sicilia (© RobertoGennaro/E+)](https://www.bing.com/th?id=OHR.SaleTrapani_IT-IT6306427374_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.IcelandSolstice_PT-BR2763816413_UHD.jpg&w=1000)Today: [Cascata de Seljalandsfoss ao entardecer, na Islândia (© Tom Mackie/AWL/plainpicture)](https://www.bing.com/th?id=OHR.IcelandSolstice_PT-BR2763816413_UHD.jpg)
 <br><br/>
