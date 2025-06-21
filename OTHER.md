@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SerengetiGiraffe_JA-JP9470836014_UHD.jpg&w=1000)今日の壁紙: &nbsp;[マサイキリンの母子, タンザニア (© Alberto Cassani/Getty Images)](https://www.bing.com/th?id=OHR.SerengetiGiraffe_JA-JP9470836014_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AmazonEcuador_JA-JP9558319744_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アマゾン熱帯雨林, エクアドル (© Mark Fox/Getty Images)](https://www.bing.com/th?id=OHR.AmazonEcuador_JA-JP9558319744_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AntibesMusic_FR-FR0026620746_UHD.jpg&w=1000)Today: [Littoral de la Côte d’Azur à Antibes (© StockByM/Getty Images)](https://www.bing.com/th?id=OHR.AntibesMusic_FR-FR0026620746_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.IcelandSolstice_IT-IT6375034077_UHD.jpg&w=1000)Today: [Cascate di Seljalandsfoss al tramonto, Islanda (© Tom Mackie/AWL/plainpicture)](https://www.bing.com/th?id=OHR.IcelandSolstice_IT-IT6375034077_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WinterBegins_PT-BR2647021709_UHD.jpg&w=1000)Today: [Praia em Santa Catarina (© CaioCarvalhoPhotography/Getty Images)](https://www.bing.com/th?id=OHR.WinterBegins_PT-BR2647021709_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SerengetiGiraffe_PT-BR2390228127_UHD.jpg&w=1000)Today: [Girafa-masai cuidando seu filhote no Serengeti, Tanzânia (© Alberto Cassani/Getty Images)](https://www.bing.com/th?id=OHR.SerengetiGiraffe_PT-BR2390228127_UHD.jpg)
 <br><br/>
