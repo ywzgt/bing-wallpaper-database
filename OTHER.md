@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AmazonEcuador_JA-JP9558319744_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アマゾン熱帯雨林, エクアドル (© Mark Fox/Getty Images)](https://www.bing.com/th?id=OHR.AmazonEcuador_JA-JP9558319744_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DresdenElbe_JA-JP9615629760_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ドレスデン, ドイツ (© Sean Pavone/Getty Images)](https://www.bing.com/th?id=OHR.DresdenElbe_JA-JP9615629760_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AmazonEcuador_FR-FR0161902785_UHD.jpg&w=1000)Today: [Forêt amazonienne, Équateur (© Mark Fox/Getty Images)](https://www.bing.com/th?id=OHR.AmazonEcuador_FR-FR0161902785_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AmazonEcuador_IT-IT6428077520_UHD.jpg&w=1000)Today: [Foresta Amazzonica, Ecuador (© Mark Fox/Getty Images)](https://www.bing.com/th?id=OHR.AmazonEcuador_IT-IT6428077520_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SerengetiGiraffe_PT-BR2390228127_UHD.jpg&w=1000)Today: [Girafa-masai cuidando seu filhote no Serengeti, Tanzânia (© Alberto Cassani/Getty Images)](https://www.bing.com/th?id=OHR.SerengetiGiraffe_PT-BR2390228127_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AmazonEcuador_PT-BR8954239087_UHD.jpg&w=1000)Today: [Floresta Amazônica, Equador (© Mark Fox/Getty Images)](https://www.bing.com/th?id=OHR.AmazonEcuador_PT-BR8954239087_UHD.jpg)
 <br><br/>
