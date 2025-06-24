@@ -7,7 +7,7 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.DelicateArch_ES-ES1233867011_UHD.jpg&w=1000)Today: [Delicate Arch, Parque nacional de los Arcos, Utah, EE. UU. (© mmac72/Getty Images)](https://www.bing.com/th?id=OHR.DelicateArch_ES-ES1233867011_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DelicateArch_EN-GB9851304724_UHD.jpg&w=1000)Today: [Delicate Arch, Arches National Park, Utah (© mmac72/Getty Images)](https://www.bing.com/th?id=OHR.DelicateArch_EN-GB9851304724_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DelicateArch_EN-GB4483043956_UHD.jpg&w=1000)Today: [Delicate Arch, Arches National Park, Utah, United States (© mmac72/Getty Images)](https://www.bing.com/th?id=OHR.DelicateArch_EN-GB4483043956_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.DelicateArch_IT-IT6581270768_UHD.jpg&w=1000)Today: [Delicate Arch, Parco Nazionale degli Arches, Utah, USA (© mmac72/Getty Images)](https://www.bing.com/th?id=OHR.DelicateArch_IT-IT6581270768_UHD.jpg)
 <br><br/>
