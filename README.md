@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.DelicateArch_ZH-CN8971667580_UHD.jpg&w=1000)今日图片: &nbsp;[精致拱门, 拱门国家公园, 犹他州, 美国 (© mmac72/Getty Images)](https://www.bing.com/th?id=OHR.DelicateArch_ZH-CN8971667580_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GlastonburyScenic_ZH-CN9162571249_UHD.jpg&w=1000)今日图片: &nbsp;[格拉斯顿伯里托尔上的圣迈克尔塔, 格拉斯顿伯里, 萨默塞特郡, 英格兰 (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.GlastonburyScenic_ZH-CN9162571249_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DresdenElbe_EN-US2259441179_UHD.jpg&w=1000)Today: [The Elbe in Dresden, Germany (© Sean Pavone/Getty Images)](https://www.bing.com/th?id=OHR.DresdenElbe_EN-US2259441179_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DelicateArch_EN-US2369284902_UHD.jpg&w=1000)Today: [Delicate Arch, Arches National Park, Utah (© mmac72/Getty Images)](https://www.bing.com/th?id=OHR.DelicateArch_EN-US2369284902_UHD.jpg)
 <br><br/>
