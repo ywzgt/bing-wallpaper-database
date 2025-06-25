@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.GlastonburyScenic_JA-JP9733045581_UHD.jpg&w=1000)今日の壁紙: &nbsp;[グラストンベリー・トー, イングランド (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.GlastonburyScenic_JA-JP9733045581_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HorseheadRock_JA-JP9769020996_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ホースヘッド・ロック, オーストラリア ニューサウスウェールズ州 (© Philip Thurston/Getty Images)](https://www.bing.com/th?id=OHR.HorseheadRock_JA-JP9769020996_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.GlastonburyScenic_FR-FR0937508877_UHD.jpg&w=1000)Today: [Tour Saint-Michel, colline Glastonbury Tor, Somerset, Angleterre (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.GlastonburyScenic_FR-FR0937508877_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.GlastonburyScenic_IT-IT6655365731_UHD.jpg&w=1000)Today: [Torre della chiesa di San Michele sulla Glastonbury Tor, Glastonbury, Somerset, Inghilterra (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.GlastonburyScenic_IT-IT6655365731_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Araraquara_PT-BR8567454542_UHD.jpg&w=1000)Today: [Araraquara, São Paulo (© Dante Laurini Jr. Imagens/Getty Images)](https://www.bing.com/th?id=OHR.Araraquara_PT-BR8567454542_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GlastonburyScenic_PT-BR6042557726_UHD.jpg&w=1000)Today: [Torre da Igreja de São Miguel no Glastonbury Tor, Glastonbury, Somerset, Inglaterra (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.GlastonburyScenic_PT-BR6042557726_UHD.jpg)
 <br><br/>
