@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.ShetlandGannets_JA-JP3345232589_UHD.jpg&w=1000)今日の壁紙: &nbsp;[魚を狙うシロカツオドリ, スコットランド (© Richard Shucksmith/Minden Pictures)](https://www.bing.com/th?id=OHR.ShetlandGannets_JA-JP3345232589_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HorseheadRock_FR-FR1124567196_UHD.jpg&w=1000)Today: [Voie lactée, Horse Head Rock, Nouvelle-Galles du Sud, Australie (© Philip Thurston/Getty Images)](https://www.bing.com/th?id=OHR.HorseheadRock_FR-FR1124567196_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SplendidFrog_FR-FR6442943512_UHD.jpg&w=1000)Today: [Grenouille Cruziohyla calcarifer (© Jan Stria/Shutterstock)](https://www.bing.com/th?id=OHR.SplendidFrog_FR-FR6442943512_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HorseheadRock_DE-DE6717487152_UHD.jpg&w=1000)Today: [Die Milchstraße über Horse Head Rock, Neusüdwales, Australien (© Philip Thurston/Getty Images)](https://www.bing.com/th?id=OHR.HorseheadRock_DE-DE6717487152_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SplendidFrog_DE-DE7801241876_UHD.jpg&w=1000)Today: [Prachtgreiffrosch (© Jan Stria/Shutterstock)](https://www.bing.com/th?id=OHR.SplendidFrog_DE-DE7801241876_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HorseheadRock_ES-ES1398658009_UHD.jpg&w=1000)Today: [La Vía Láctea sobre Horse Head Rock, Nueva Gales del Sur, Australia (© Philip Thurston/Getty Images)](https://www.bing.com/th?id=OHR.HorseheadRock_ES-ES1398658009_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SplendidFrog_ES-ES0147065495_UHD.jpg&w=1000)Today: [Rana de hoja espléndida (© Jan Stria/Shutterstock)](https://www.bing.com/th?id=OHR.SplendidFrog_ES-ES0147065495_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HorseheadRock_EN-GB7257455536_UHD.jpg&w=1000)Today: [The Milky Way over Horse Head Rock, New South Wales, Australia (© Philip Thurston/Getty Images)](https://www.bing.com/th?id=OHR.HorseheadRock_EN-GB7257455536_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SplendidFrog_EN-GB1133553624_UHD.jpg&w=1000)Today: [Splendid leaf frog (© Jan Stria/Shutterstock)](https://www.bing.com/th?id=OHR.SplendidFrog_EN-GB1133553624_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HorseheadRock_IT-IT0871929651_UHD.jpg&w=1000)Today: [La Via Lattea sopra Horse Head Rock, Nuovo Galles del Sud, Australia (© Philip Thurston/Getty Images)](https://www.bing.com/th?id=OHR.HorseheadRock_IT-IT0871929651_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MaroonClownfish_IT-IT1939766498_UHD.jpg&w=1000)Today: [Pesce pagliaccio, Milne Bay, Papua Nuova Guinea (© Fred Bavendam/Nature Picture Library)](https://www.bing.com/th?id=OHR.MaroonClownfish_IT-IT1939766498_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.HorseheadRock_PT-BR5419648033_UHD.jpg&w=1000)Today: [Via Láctea sobre a Horse Head Rock, Nova Gales do Sul, Austrália (© Philip Thurston/Getty Images)](https://www.bing.com/th?id=OHR.HorseheadRock_PT-BR5419648033_UHD.jpg)
 <br><br/>
