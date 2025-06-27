@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ShetlandGannets_JA-JP3345232589_UHD.jpg&w=1000)今日の壁紙: &nbsp;[魚を狙うシロカツオドリ, スコットランド (© Richard Shucksmith/Minden Pictures)](https://www.bing.com/th?id=OHR.ShetlandGannets_JA-JP3345232589_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PrideParade_JA-JP3577767759_UHD.jpg&w=1000)今日の壁紙: &nbsp;[風になびくプライドフラッグ, 米国 ニューヨーク州 (© Alan Schein/Getty Images)](https://www.bing.com/th?id=OHR.PrideParade_JA-JP3577767759_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SplendidFrog_FR-FR6442943512_UHD.jpg&w=1000)Today: [Grenouille Cruziohyla calcarifer (© Jan Stria/Shutterstock)](https://www.bing.com/th?id=OHR.SplendidFrog_FR-FR6442943512_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MaroonClownfish_IT-IT1939766498_UHD.jpg&w=1000)Today: [Pesce pagliaccio, Milne Bay, Papua Nuova Guinea (© Fred Bavendam/Nature Picture Library)](https://www.bing.com/th?id=OHR.MaroonClownfish_IT-IT1939766498_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HorseheadRock_PT-BR5419648033_UHD.jpg&w=1000)Today: [Via Láctea sobre a Horse Head Rock, Nova Gales do Sul, Austrália (© Philip Thurston/Getty Images)](https://www.bing.com/th?id=OHR.HorseheadRock_PT-BR5419648033_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SplendidFrog_PT-BR2454660849_UHD.jpg&w=1000)Today: [Cruziohyla calcarifer, rã arborícola (© Jan Stria/Shutterstock)](https://www.bing.com/th?id=OHR.SplendidFrog_PT-BR2454660849_UHD.jpg)
 <br><br/>
