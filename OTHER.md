@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.PrideParade_JA-JP3577767759_UHD.jpg&w=1000)今日の壁紙: &nbsp;[風になびくプライドフラッグ, 米国 ニューヨーク州 (© Alan Schein/Getty Images)](https://www.bing.com/th?id=OHR.PrideParade_JA-JP3577767759_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BandaIsland_JA-JP3779837840_UHD.jpg&w=1000)今日の壁紙: &nbsp;[緑の森と青い海, インドネシア (© fabio lamanna/Alamy)](https://www.bing.com/th?id=OHR.BandaIsland_JA-JP3779837840_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PrideParade_FR-FR6694433867_UHD.jpg&w=1000)Today: [Drapeaux arc-en-ciel à la Marche des Fiertés de New York, États-Unis (© Alan Schein/Getty Images)](https://www.bing.com/th?id=OHR.PrideParade_FR-FR6694433867_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PrideParade_IT-IT2013687797_UHD.jpg&w=1000)Today: [Bandiere Arcobaleno al New York Pride, USA (© Alan Schein/Getty Images)](https://www.bing.com/th?id=OHR.PrideParade_IT-IT2013687797_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SplendidFrog_PT-BR2454660849_UHD.jpg&w=1000)Today: [Cruziohyla calcarifer, rã arborícola (© Jan Stria/Shutterstock)](https://www.bing.com/th?id=OHR.SplendidFrog_PT-BR2454660849_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PrideParade_PT-BR2044753051_UHD.jpg&w=1000)Today: [Parada do Orgulho LGBTQIA+ em Nova York, EUA (© Alan Schein/Getty Images)](https://www.bing.com/th?id=OHR.PrideParade_PT-BR2044753051_UHD.jpg)
 <br><br/>
