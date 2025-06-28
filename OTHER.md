@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.PrideParade_JA-JP3577767759_UHD.jpg&w=1000)今日の壁紙: &nbsp;[風になびくプライドフラッグ, 米国 ニューヨーク州 (© Alan Schein/Getty Images)](https://www.bing.com/th?id=OHR.PrideParade_JA-JP3577767759_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SplendidFrog_FR-FR6442943512_UHD.jpg&w=1000)Today: [Grenouille Cruziohyla calcarifer (© Jan Stria/Shutterstock)](https://www.bing.com/th?id=OHR.SplendidFrog_FR-FR6442943512_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PrideParade_FR-FR6694433867_UHD.jpg&w=1000)Today: [Drapeaux arc-en-ciel à la Marche des Fiertés de New York, États-Unis (© Alan Schein/Getty Images)](https://www.bing.com/th?id=OHR.PrideParade_FR-FR6694433867_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SplendidFrog_DE-DE7801241876_UHD.jpg&w=1000)Today: [Prachtgreiffrosch (© Jan Stria/Shutterstock)](https://www.bing.com/th?id=OHR.SplendidFrog_DE-DE7801241876_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MarienplatzCSD_DE-DE0126550227_UHD.jpg&w=1000)Today: [Neues Rathaus am Marienplatz, München (© Sven Hoppe/picture alliance/Getty Images)](https://www.bing.com/th?id=OHR.MarienplatzCSD_DE-DE0126550227_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SplendidFrog_ES-ES0147065495_UHD.jpg&w=1000)Today: [Rana de hoja espléndida (© Jan Stria/Shutterstock)](https://www.bing.com/th?id=OHR.SplendidFrog_ES-ES0147065495_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PrideCatalonia_ES-ES0481311914_UHD.jpg&w=1000)Today: [Calle con banderas del orgullo LGBTQI+, Sitges, Cataluña, España (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.PrideCatalonia_ES-ES0481311914_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SplendidFrog_EN-GB1133553624_UHD.jpg&w=1000)Today: [Splendid leaf frog (© Jan Stria/Shutterstock)](https://www.bing.com/th?id=OHR.SplendidFrog_EN-GB1133553624_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MesquiteFlats_EN-GB1375623335_UHD.jpg&w=1000)Today: [Mesquite Flat Sand Dunes in Death Valley National Park, California, United States (© Bryan Jolley/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MesquiteFlats_EN-GB1375623335_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MaroonClownfish_IT-IT1939766498_UHD.jpg&w=1000)Today: [Pesce pagliaccio, Milne Bay, Papua Nuova Guinea (© Fred Bavendam/Nature Picture Library)](https://www.bing.com/th?id=OHR.MaroonClownfish_IT-IT1939766498_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PrideParade_IT-IT2013687797_UHD.jpg&w=1000)Today: [Bandiere Arcobaleno al New York Pride, USA (© Alan Schein/Getty Images)](https://www.bing.com/th?id=OHR.PrideParade_IT-IT2013687797_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SplendidFrog_PT-BR2454660849_UHD.jpg&w=1000)Today: [Cruziohyla calcarifer, rã arborícola (© Jan Stria/Shutterstock)](https://www.bing.com/th?id=OHR.SplendidFrog_PT-BR2454660849_UHD.jpg)
 <br><br/>
