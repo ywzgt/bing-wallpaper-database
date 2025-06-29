@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BandaIsland_JA-JP3779837840_UHD.jpg&w=1000)今日の壁紙: &nbsp;[緑の森と青い海, インドネシア (© fabio lamanna/Alamy)](https://www.bing.com/th?id=OHR.BandaIsland_JA-JP3779837840_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WolfeCrater_JA-JP6958421820_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ウルフクリーク・クレーター, オーストラリア (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.WolfeCrater_JA-JP6958421820_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BandaIsland_FR-FR6889157009_UHD.jpg&w=1000)Today: [Lagon bleu de Pulau Ay, îles Banda, Indonésie (© fabio lamanna/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BandaIsland_FR-FR6889157009_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BandaIsland_IT-IT2071858356_UHD.jpg&w=1000)Today: [Laguna blu di Pulau Ay, Isole Banda, Indonesia (© fabio lamanna/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BandaIsland_IT-IT2071858356_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PrideParade_PT-BR2044753051_UHD.jpg&w=1000)Today: [Parada do Orgulho LGBTQIA+ em Nova York, EUA (© Alan Schein/Getty Images)](https://www.bing.com/th?id=OHR.PrideParade_PT-BR2044753051_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BandaIsland_PT-BR1841651609_UHD.jpg&w=1000)Today: [Pulau Ay, Ilhas Banda, Indonésia (© fabio lamanna/Alamy)](https://www.bing.com/th?id=OHR.BandaIsland_PT-BR1841651609_UHD.jpg)
 <br><br/>
