@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MaroonClownfish_ZH-CN5071934692_UHD.jpg&w=1000)今日图片: &nbsp;[被泡尖海葵包围的刺颊海葵鱼，米尔恩湾，巴布亚新几内亚 (© Fred Bavendam/Nature Picture Library)](https://www.bing.com/th?id=OHR.MaroonClownfish_ZH-CN5071934692_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RainbowRiver_ZH-CN5320095849_UHD.jpg&w=1000)今日图片: &nbsp;[彩虹泉州立公园的彩虹河，佛罗里达州，美国 (© Michel Roggo/Minden Pictures)](https://www.bing.com/th?id=OHR.RainbowRiver_ZH-CN5320095849_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CanadaDayFogo_EN-US0231478181_UHD.jpg&w=1000)Today: [Fishing village of Tilting, Fogo Island, Newfoundland and Labrador, Canada (© FedevPhoto/Getty Images)](https://www.bing.com/th?id=OHR.CanadaDayFogo_EN-US0231478181_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MaroonClownfish_EN-US0391262783_UHD.jpg&w=1000)Today: [Spine-cheeked anemonefish surrounded by bubble-tip anemone, Milne Bay, Papua New Guinea (© Fred Bavendam/Nature Picture Library)](https://www.bing.com/th?id=OHR.MaroonClownfish_EN-US0391262783_UHD.jpg)
 <br><br/>
