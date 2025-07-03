@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.RainbowRiver_ZH-CN5320095849_UHD.jpg&w=1000)今日图片: &nbsp;[彩虹泉州立公园的彩虹河，佛罗里达州，美国 (© Michel Roggo/Minden Pictures)](https://www.bing.com/th?id=OHR.RainbowRiver_ZH-CN5320095849_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OroseiSardegna_ZH-CN5789138034_UHD.jpg&w=1000)今日图片: &nbsp;[奥罗塞，撒丁岛，意大利 (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/th?id=OHR.OroseiSardegna_ZH-CN5789138034_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MaroonClownfish_EN-US0391262783_UHD.jpg&w=1000)Today: [Spine-cheeked anemonefish surrounded by bubble-tip anemone, Milne Bay, Papua New Guinea (© Fred Bavendam/Nature Picture Library)](https://www.bing.com/th?id=OHR.MaroonClownfish_EN-US0391262783_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RainbowRiver_EN-US0442967532_UHD.jpg&w=1000)Today: [Rainbow River in Rainbow Springs State Park, Florida (© Michel Roggo/Minden Pictures)](https://www.bing.com/th?id=OHR.RainbowRiver_EN-US0442967532_UHD.jpg)
 <br><br/>
