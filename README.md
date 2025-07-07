@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ShetlandGannets_ZH-CN7279521125_UHD.jpg&w=1000)今日图片: &nbsp;[潜水捕鱼的北方鲣鸟，设得兰群岛，苏格兰 (© Richard Shucksmith/Minden Pictures)](https://www.bing.com/th?id=OHR.ShetlandGannets_ZH-CN7279521125_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_UHD.jpg&w=1000)今日图片: &nbsp;[塞切达，多洛米蒂山脉的山峰，南蒂罗尔，意大利 (© Kalyakan/Adobe Stock)](https://www.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MesquiteFlats_EN-US0638943216_UHD.jpg&w=1000)Today: [Mesquite Flat Sand Dunes in Death Valley National Park, California (© Bryan Jolley/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MesquiteFlats_EN-US0638943216_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ShetlandGannets_EN-US0812287314_UHD.jpg&w=1000)Today: [Northern gannets diving for fish, Shetland Islands, Scotland (© Richard Shucksmith/Minden Pictures)](https://www.bing.com/th?id=OHR.ShetlandGannets_EN-US0812287314_UHD.jpg)
 <br><br/>
