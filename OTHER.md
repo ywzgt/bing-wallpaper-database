@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BahamaBlues_JA-JP9790462699_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ターコイズブルーの海, バハマ (© BlueOrange Studio/Adobe Stock)](https://www.bing.com/th?id=OHR.BahamaBlues_JA-JP9790462699_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TokyoSunrise_JA-JP8418771987_UHD.jpg&w=1000)今日の壁紙: &nbsp;[1400 万の人口を抱える大都市, 東京 (© pongnathee kluaythong/Getty Images)](https://www.bing.com/th?id=OHR.TokyoSunrise_JA-JP8418771987_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BahamaBlues_FR-FR8439615037_UHD.jpg&w=1000)Today: [Eaux turquoise des Bahamas (© BlueOrange Studio/Adobe Stock)](https://www.bing.com/th?id=OHR.BahamaBlues_FR-FR8439615037_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BahamaBlues_IT-IT2994052693_UHD.jpg&w=1000)Today: [Acque turchesi delle Bahamas (© BlueOrange Studio/Adobe Stock)](https://www.bing.com/th?id=OHR.BahamaBlues_IT-IT2994052693_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ConstitucionStation_PT-BR4627636298_UHD.jpg&w=1000)Today: [Estação ferroviária Constitución, Buenos Aires, Argentina (© Grafissimo/Getty Images)](https://www.bing.com/th?id=OHR.ConstitucionStation_PT-BR4627636298_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BahamaBlues_PT-BR4354630844_UHD.jpg&w=1000)Today: [Águas turquesa das Bahamas (© BlueOrange Studio/Adobe Stock)](https://www.bing.com/th?id=OHR.BahamaBlues_PT-BR4354630844_UHD.jpg)
 <br><br/>
