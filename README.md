@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ThomsonGazelle_ZH-CN0413171014_UHD.jpg&w=1000)今日图片: &nbsp;[汤氏瞪羚母亲和小鹿，马赛马拉，肯尼亚 (© Gallo Images/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.ThomsonGazelle_ZH-CN0413171014_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BasaltColumns_ZH-CN0743036217_UHD.jpg&w=1000)今日图片: &nbsp;[卡尔夫沙马尔斯维克湾玄武岩柱，斯卡吉半岛，冰岛 (© Arterra Picture Library/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BasaltColumns_ZH-CN0743036217_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&w=1000)Today: [Tokyo at sunrise (© pongnathee kluaythong/Getty Images)](https://www.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ThomsonGazelle_EN-US4354285846_UHD.jpg&w=1000)Today: [Thomson's gazelle mother and fawn, Maasai Mara, Kenya (© Gallo Images/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.ThomsonGazelle_EN-US4354285846_UHD.jpg)
 <br><br/>
