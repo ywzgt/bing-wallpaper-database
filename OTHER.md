@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BasaltColumns_JA-JP9334958471_UHD.jpg&w=1000)今日の壁紙: &nbsp;[カールフザマルスヴィーク, アイスランド (© Arterra Picture Library/Alamy)](https://www.bing.com/th?id=OHR.BasaltColumns_JA-JP9334958471_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YoungShark_JA-JP0204898221_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ガリシア沖を泳ぐヨシキリザメ, スペイン (© Damocean/Getty Images)](https://www.bing.com/th?id=OHR.YoungShark_JA-JP0204898221_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BasaltColumns_FR-FR0922377003_UHD.jpg&w=1000)Today: [Colonnes de basalte dans la crique de Kálfshamarsvík, Skagi, Islande (© Arterra Picture Library/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BasaltColumns_FR-FR0922377003_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BasaltColumns_IT-IT0459542026_UHD.jpg&w=1000)Today: [Colonne di basalto nell'insenatura di Kálfshamarsvík, penisola di Skagi, Islanda (© Arterra Picture Library/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BasaltColumns_IT-IT0459542026_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ThomsonGazelle_PT-BR6496352663_UHD.jpg&w=1000)Today: [Gazela-de-thomson mãe e filhote, Maasai Mara, Quênia (© Gallo Images/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.ThomsonGazelle_PT-BR6496352663_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BasaltColumns_PT-BR7052531189_UHD.jpg&w=1000)Today: [Colunas de basalto na enseada de Kálfshamarsvík, península de Skagi, Islândia (© Arterra Picture Library/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BasaltColumns_PT-BR7052531189_UHD.jpg)
 <br><br/>
