@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.PerseidsPine_JA-JP0980673364_UHD.jpg&w=1000)今日の壁紙: &nbsp;[グレートベースン国立公園, 米国 ネバダ州 (© Wirestock Creators/Shutterstock)](https://www.bing.com/th?id=OHR.PerseidsPine_JA-JP0980673364_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TemplePhilae_JA-JP1883182948_UHD.jpg&w=1000)今日の壁紙: &nbsp;[フィラエ神殿, エジプト (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.TemplePhilae_JA-JP1883182948_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PerseidsPine_FR-FR2065918536_UHD.jpg&w=1000)Today: [Étoiles filantes des Perséides et pin Bristlecone, parc national du Grand Bassin, États-Unis (© Wirestock Creators/Shutterstock)](https://www.bing.com/th?id=OHR.PerseidsPine_FR-FR2065918536_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PerseidsPine_IT-IT7125588777_UHD.jpg&w=1000)Today: [Pioggia di meteore delle Perseidi e un antico pino setoloso, Parco Nazionale del Great Basin, Nevada, USA (© Wirestock Creators/Shutterstock)](https://www.bing.com/th?id=OHR.PerseidsPine_IT-IT7125588777_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.YoungShark_PT-BR8738658851_UHD.jpg&w=1000)Today: [Jovem tubarão-azul nadando na costa da Galícia, Espanha (© Damocean/Getty Images)](https://www.bing.com/th?id=OHR.YoungShark_PT-BR8738658851_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PerseidsPine_PT-BR0914394834_UHD.jpg&w=1000)Today: [Chuva de meteoros Perseidas e um antigo pinheiro bristlecone, Parque Nacional Great Basin, Nevada, EUA (© Wirestock Creators/Shutterstock)](https://www.bing.com/th?id=OHR.PerseidsPine_PT-BR0914394834_UHD.jpg)
 <br><br/>
