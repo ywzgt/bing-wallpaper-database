@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TemplePhilae_JA-JP1883182948_UHD.jpg&w=1000)今日の壁紙: &nbsp;[フィラエ神殿, エジプト (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.TemplePhilae_JA-JP1883182948_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FranceLavender_JA-JP2202328070_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ヴァレンソール高原のラベンダー畑, フランス (© zpagistock/Getty Images)](https://www.bing.com/th?id=OHR.FranceLavender_JA-JP2202328070_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TemplePhilae_FR-FR2354978280_UHD.jpg&w=1000)Today: [Temple d'Isis, Assouan, Égypte (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.TemplePhilae_FR-FR2354978280_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TemplePhilae_IT-IT7785409392_UHD.jpg&w=1000)Today: [Tempio di Philae, Assuan, Egitto (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.TemplePhilae_IT-IT7785409392_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PerseidsPine_PT-BR0914394834_UHD.jpg&w=1000)Today: [Chuva de meteoros Perseidas e um antigo pinheiro bristlecone, Parque Nacional Great Basin, Nevada, EUA (© Wirestock Creators/Shutterstock)](https://www.bing.com/th?id=OHR.PerseidsPine_PT-BR0914394834_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TemplePhilae_PT-BR9175730450_UHD.jpg&w=1000)Today: [Templo de Filas (ou Templo de Ísis), Assuão, Egito (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.TemplePhilae_PT-BR9175730450_UHD.jpg)
 <br><br/>
