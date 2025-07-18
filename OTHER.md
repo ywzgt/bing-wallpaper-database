@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.DolomitiEstate_JA-JP1752445418_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ドロミーティのチンクェトッリ, イタリア (© usabin/Getty Images)](https://www.bing.com/th?id=OHR.DolomitiEstate_JA-JP1752445418_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.FranceLavender_FR-FR3750510454_UHD.jpg&w=1000)Today: [Champs de lavande sur le plateau de Valensole, Provence (© zpagistock/Getty Images)](https://www.bing.com/th?id=OHR.FranceLavender_FR-FR3750510454_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YoungShark_FR-FR2342809860_UHD.jpg&w=1000)Today: [Jeune requin bleu nageant au large des côtes de Galice, Espagne (© Damocean/Getty Images)](https://www.bing.com/th?id=OHR.YoungShark_FR-FR2342809860_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LavenderWesterhever_DE-DE1062458785_UHD.jpg&w=1000)Today: [Blühender Strandflieder und Leuchtturm Westerheversand in Westerhever, Nordfriesland, Schleswig-Holstein (© Sven-Erik Arndt/Arterra/Universal Images Group/Getty Images)](https://www.bing.com/th?id=OHR.LavenderWesterhever_DE-DE1062458785_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MiravetSpain_DE-DE1175039382_UHD.jpg&w=1000)Today: [Miravet am Fluss Ebro, Tarragona, Katalonien, Spanien (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.MiravetSpain_DE-DE1175039382_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PerseidasAragon_ES-ES4625376331_UHD.jpg&w=1000)Today: [Noche estrellada en el Valle de Ordesa, Aragón, España (© Inigo Cia/Getty Images)](https://www.bing.com/th?id=OHR.PerseidasAragon_ES-ES4625376331_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AshyWoodswallow_ES-ES2269692997_UHD.jpg&w=1000)Today: [Familia de artamo ceniciento posadas en una rama en Tailandia (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.AshyWoodswallow_ES-ES2269692997_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.FranceLavender_EN-GB9687234826_UHD.jpg&w=1000)Today: [Lavender fields in Plateau de Valensole, France (© zpagistock/Getty Images)](https://www.bing.com/th?id=OHR.FranceLavender_EN-GB9687234826_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AcroporaReef_EN-GB6231237422_UHD.jpg&w=1000)Today: [Staghorn coral off the island of Bonaire, Caribbean Netherlands (© blue-sea.cz/Shutterstock)](https://www.bing.com/th?id=OHR.AcroporaReef_EN-GB6231237422_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.FranceLavender_IT-IT7177980672_UHD.jpg&w=1000)Today: [Campi di lavanda a Plateau de Valensole, Francia (© zpagistock/Getty Images)](https://www.bing.com/th?id=OHR.FranceLavender_IT-IT7177980672_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MonaValePool_IT-IT0291843782_UHD.jpg&w=1000)Today: [Piscina oceanica di Mona Vale, Sydney, Australia (© jamenpercy/Getty Images)](https://www.bing.com/th?id=OHR.MonaValePool_IT-IT0291843782_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.FranceLavender_PT-BR8916363629_UHD.jpg&w=1000)Today: [Campos de lavanda no Planalto de Valensole, França (© zpagistock/Getty Images)](https://www.bing.com/th?id=OHR.FranceLavender_PT-BR8916363629_UHD.jpg)
 <br><br/>
