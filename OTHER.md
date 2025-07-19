@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.VaticanCity_JA-JP3107889250_UHD.jpg&w=1000)今日の壁紙: &nbsp;[サン・ピエトロ大聖堂, バチカン市国 (© RudyBalasko/Getty Images)](https://www.bing.com/th?id=OHR.VaticanCity_JA-JP3107889250_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.YoungShark_FR-FR2342809860_UHD.jpg&w=1000)Today: [Jeune requin bleu nageant au large des côtes de Galice, Espagne (© Damocean/Getty Images)](https://www.bing.com/th?id=OHR.YoungShark_FR-FR2342809860_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Saumur_FR-FR4957130952_UHD.jpg&w=1000)Today: [Saumur et son château au crépuscule, Vallée de la Loire (© Hiroshi Higuchi/Getty Images)](https://www.bing.com/th?id=OHR.Saumur_FR-FR4957130952_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MiravetSpain_DE-DE1175039382_UHD.jpg&w=1000)Today: [Miravet am Fluss Ebro, Tarragona, Katalonien, Spanien (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.MiravetSpain_DE-DE1175039382_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MothWeek_DE-DE7350997027_UHD.jpg&w=1000)Today: [Luna-Motte auf einer Zedern-Ulme ruhend, New Braunfels, Texas, USA (© Rolf Nussbaumer/Nature Picture Library)](https://www.bing.com/th?id=OHR.MothWeek_DE-DE7350997027_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AshyWoodswallow_ES-ES2269692997_UHD.jpg&w=1000)Today: [Familia de artamo ceniciento posadas en una rama en Tailandia (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.AshyWoodswallow_ES-ES2269692997_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MothWeek_ES-ES7594362162_UHD.jpg&w=1000)Today: [Polilla de la luna descansando sobre olmo de cedro, New Braunfels, Texas, EE. UU. (© Rolf Nussbaumer/Nature Picture Library)](https://www.bing.com/th?id=OHR.MothWeek_ES-ES7594362162_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AcroporaReef_EN-GB6231237422_UHD.jpg&w=1000)Today: [Staghorn coral off the island of Bonaire, Caribbean Netherlands (© blue-sea.cz/Shutterstock)](https://www.bing.com/th?id=OHR.AcroporaReef_EN-GB6231237422_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MothWeek_EN-GB9944593474_UHD.jpg&w=1000)Today: [Luna moth resting on cedar elm, New Braunfels, Texas, United States (© Rolf Nussbaumer/Nature Picture Library)](https://www.bing.com/th?id=OHR.MothWeek_EN-GB9944593474_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MonaValePool_IT-IT0291843782_UHD.jpg&w=1000)Today: [Piscina oceanica di Mona Vale, Sydney, Australia (© jamenpercy/Getty Images)](https://www.bing.com/th?id=OHR.MonaValePool_IT-IT0291843782_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MothWeek_IT-IT2222446823_UHD.jpg&w=1000)Today: [Actias Luna, New Braunfels, Texas, USA (© Rolf Nussbaumer/Nature Picture Library)](https://www.bing.com/th?id=OHR.MothWeek_IT-IT2222446823_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.HappySunflower_PT-BR8599256131_UHD.jpg&w=1000)Today: [Girassóis florindo em um campo no verão (© Arsgera/Shutterstock)](https://www.bing.com/th?id=OHR.HappySunflower_PT-BR8599256131_UHD.jpg)
 <br><br/>
