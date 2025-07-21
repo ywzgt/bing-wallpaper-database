@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MarineDay2025_JA-JP8195760967_UHD.jpg&w=1000)今日の壁紙: &nbsp;[青い海に浮かぶ種子島の無人島, 鹿児島県 (© Ippei Naoi/Getty Images)](https://www.bing.com/th?id=OHR.MarineDay2025_JA-JP8195760967_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BadlandsSunset_JA-JP4206808892_UHD.jpg&w=1000)今日の壁紙: &nbsp;[バッドランズ国立公園, 米国 サウスダコタ州 (© Petr Bednarik/Danita Delimont/Alamy)](https://www.bing.com/th?id=OHR.BadlandsSunset_JA-JP4206808892_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AcroporaReef_FR-FR5200865280_UHD.jpg&w=1000)Today: [Corail corne de cerf dans une mer peu profonde (© blue-sea.cz/Shutterstock)](https://www.bing.com/th?id=OHR.AcroporaReef_FR-FR5200865280_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AcroporaReef_IT-IT2371984871_UHD.jpg&w=1000)Today: [Corallo Staghorn, Isola di Bonaire, Caraibi olandesi (© blue-sea.cz/Shutterstock)](https://www.bing.com/th?id=OHR.AcroporaReef_IT-IT2371984871_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BigMoon_PT-BR8604757050_UHD.jpg&w=1000)Today: [Superfície da Lua vista por telescópio (© Sergey Kuznetsov/Getty Images)](https://www.bing.com/th?id=OHR.BigMoon_PT-BR8604757050_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AcroporaReef_PT-BR8456645465_UHD.jpg&w=1000)Today: [Coral chifre-de-veado em Bonaire, Caribe Neerlandês (© blue-sea.cz/Shutterstock)](https://www.bing.com/th?id=OHR.AcroporaReef_PT-BR8456645465_UHD.jpg)
 <br><br/>
