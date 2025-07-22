@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.GreatHeatY25_ZH-CN8252122347_UHD.jpg&w=1000)今日图片: &nbsp;[夏季的赛里木湖，博尔塔拉蒙古自治州博乐县, 中国新疆维吾尔自治区 (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.GreatHeatY25_ZH-CN8252122347_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VaticanCity_ZH-CN3075109504_UHD.jpg&w=1000)今日图片: &nbsp;[梵蒂冈城与圣彼得大教堂，罗马，意大利 (© RudyBalasko/Getty Images)](https://www.bing.com/th?id=OHR.VaticanCity_ZH-CN3075109504_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AcroporaReef_EN-US5567789372_UHD.jpg&w=1000)Today: [Staghorn coral off the island of Bonaire, Caribbean Netherlands (© blue-sea.cz/Shutterstock)](https://www.bing.com/th?id=OHR.AcroporaReef_EN-US5567789372_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BadlandsSunset_EN-US5821746223_UHD.jpg&w=1000)Today: [Sunset over Badlands National Park, South Dakota (© Petr Bednarik/Danita Delimont/Alamy)](https://www.bing.com/th?id=OHR.BadlandsSunset_EN-US5821746223_UHD.jpg)
 <br><br/>
