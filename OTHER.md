@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BadlandsSunset_JA-JP4206808892_UHD.jpg&w=1000)今日の壁紙: &nbsp;[バッドランズ国立公園, 米国 サウスダコタ州 (© Petr Bednarik/Danita Delimont/Alamy)](https://www.bing.com/th?id=OHR.BadlandsSunset_JA-JP4206808892_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GionFestival2025_JA-JP8597633874_UHD.jpg&w=1000)今日の壁紙: &nbsp;[提灯の灯りに照らされた南観音山, 京都市 (© Route16/Adobe Stock)](https://www.bing.com/th?id=OHR.GionFestival2025_JA-JP8597633874_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BadlandsSunset_FR-FR5355431035_UHD.jpg&w=1000)Today: [Coucher de soleil sur le parc national des Badlands, Dakota du Sud, États-Unis (© Petr Bednarik/Danita Delimont/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BadlandsSunset_FR-FR5355431035_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BadlandsSunset_IT-IT3807784060_UHD.jpg&w=1000)Today: [Tramonto sul Parco Nazionale di Badlands, South Dakota, USA (© Petr Bednarik/Danita Delimont/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BadlandsSunset_IT-IT3807784060_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AcroporaReef_PT-BR8456645465_UHD.jpg&w=1000)Today: [Coral chifre-de-veado em Bonaire, Caribe Neerlandês (© blue-sea.cz/Shutterstock)](https://www.bing.com/th?id=OHR.AcroporaReef_PT-BR8456645465_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EucaliptoSC_PT-BR8170247706_UHD.jpg&w=1000)Today: [Reflorestamento de eucaliptos em Santa Catarina (© YES BRASIL/Getty Images)](https://www.bing.com/th?id=OHR.EucaliptoSC_PT-BR8170247706_UHD.jpg)
 <br><br/>
