@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.GionFestival2025_JA-JP8597633874_UHD.jpg&w=1000)今日の壁紙: &nbsp;[提灯の灯りに照らされた南観音山, 京都市 (© Route16/Adobe Stock)](https://www.bing.com/th?id=OHR.GionFestival2025_JA-JP8597633874_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AshyWoodswallow_JA-JP4870541560_UHD.jpg&w=1000)今日の壁紙: &nbsp;[枝にとまるハイイロモリツバメ (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.AshyWoodswallow_JA-JP4870541560_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.VaticanCity_FR-FR5939943225_UHD.jpg&w=1000)Today: [La Cité du Vatican avec la basilique Saint-Pierre, Rome, Italie (© RudyBalasko/Getty Images)](https://www.bing.com/th?id=OHR.VaticanCity_FR-FR5939943225_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AlassioLiguria_IT-IT1114546774_UHD.jpg&w=1000)Today: [Alassio, Savona, Liguria (© Xantana/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.AlassioLiguria_IT-IT1114546774_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.EucaliptoSC_PT-BR8170247706_UHD.jpg&w=1000)Today: [Reflorestamento de eucaliptos em Santa Catarina (© YES BRASIL/Getty Images)](https://www.bing.com/th?id=OHR.EucaliptoSC_PT-BR8170247706_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VaticanCity_PT-BR6747306784_UHD.jpg&w=1000)Today: [Cidade do Vaticano com a Basílica de São Pedro ao fundo, Roma, Itália (© RudyBalasko/Getty Images)](https://www.bing.com/th?id=OHR.VaticanCity_PT-BR6747306784_UHD.jpg)
 <br><br/>
