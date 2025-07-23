@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.VaticanCity_ZH-CN3075109504_UHD.jpg&w=1000)今日图片: &nbsp;[梵蒂冈城与圣彼得大教堂，罗马，意大利 (© RudyBalasko/Getty Images)](https://www.bing.com/th?id=OHR.VaticanCity_ZH-CN3075109504_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AshyWoodswallow_ZH-CN3224168805_UHD.jpg&w=1000)今日图片: &nbsp;[栖息在树枝上的灰燕鵙家族 (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.AshyWoodswallow_ZH-CN3224168805_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BadlandsSunset_EN-US5821746223_UHD.jpg&w=1000)Today: [Sunset over Badlands National Park, South Dakota (© Petr Bednarik/Danita Delimont/Alamy)](https://www.bing.com/th?id=OHR.BadlandsSunset_EN-US5821746223_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VaticanCity_EN-US5915643866_UHD.jpg&w=1000)Today: [Vatican City with St. Peter's Basilica (© RudyBalasko/Getty Images)](https://www.bing.com/th?id=OHR.VaticanCity_EN-US5915643866_UHD.jpg)
 <br><br/>
