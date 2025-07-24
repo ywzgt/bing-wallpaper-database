@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AshyWoodswallow_JA-JP4870541560_UHD.jpg&w=1000)今日の壁紙: &nbsp;[枝にとまるハイイロモリツバメ (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.AshyWoodswallow_JA-JP4870541560_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LasPalmas_JA-JP9180112071_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ラス・パルマス・デ・グラン・カナリア, スペイン (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.LasPalmas_JA-JP9180112071_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AshyWoodswallow_FR-FR6064394705_UHD.jpg&w=1000)Today: [Famille de langrayens bruns perchée sur une branche (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.AshyWoodswallow_FR-FR6064394705_UHD.jpg)
 <br><br/>
@@ -9,7 +9,7 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AshyWoodswallow_EN-GB1919369910_UHD.jpg&w=1000)Today: [Family of ashy woodswallows perched on a branch (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.AshyWoodswallow_EN-GB1919369910_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AshyWoodswallow_IT-IT3849663666_UHD.jpg&w=1000)Today: [Famiglia di rondini boscherecce su un ramo, Thailandia (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.AshyWoodswallow_IT-IT3849663666_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AshyWoodswallow_IT-IT1611565241_UHD.jpg&w=1000)Today: [Famiglia di rondini boscherecce su un ramo, Thailandia (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.AshyWoodswallow_IT-IT1611565241_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.VaticanCity_PT-BR6747306784_UHD.jpg&w=1000)Today: [Cidade do Vaticano com a Basílica de São Pedro ao fundo, Roma, Itália (© RudyBalasko/Getty Images)](https://www.bing.com/th?id=OHR.VaticanCity_PT-BR6747306784_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AshyWoodswallow_PT-BR6492437124_UHD.jpg&w=1000)Today: [Família de Artamus fuscus empoleirada em um galho na Tailândia (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.AshyWoodswallow_PT-BR6492437124_UHD.jpg)
 <br><br/>
