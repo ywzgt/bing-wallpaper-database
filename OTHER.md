@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.LasPalmas_JA-JP9180112071_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ラス・パルマス・デ・グラン・カナリア, スペイン (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.LasPalmas_JA-JP9180112071_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MangroveTwilight_JA-JP9462938836_UHD.jpg&w=1000)今日の壁紙: &nbsp;[マングローブのシルエットと夕陽, インドネシア (© Boonchet Ch./Getty Images)](https://www.bing.com/th?id=OHR.MangroveTwilight_JA-JP9462938836_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BlackfinBarracuda_FR-FR4425436788_UHD.jpg&w=1000)Today: [Banc de barracudas chevrons, Shark Reef, parc national de Ras Mohammed, péninsule du Sinaï, Égypte (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.BlackfinBarracuda_FR-FR4425436788_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.LasPalmas_IT-IT1381176116_UHD.jpg&w=1000)Today: [Vista aerea case colorate, Las Palmas de Gran Canaria, Spagna (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.LasPalmas_IT-IT1381176116_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AshyWoodswallow_PT-BR6492437124_UHD.jpg&w=1000)Today: [Família de Artamus fuscus empoleirada em um galho na Tailândia (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.AshyWoodswallow_PT-BR6492437124_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LasPalmas_PT-BR7218640401_UHD.jpg&w=1000)Today: [Vista aérea das casas coloridas em Palmas da Grã-Canária, Espanha (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.LasPalmas_PT-BR7218640401_UHD.jpg)
 <br><br/>
