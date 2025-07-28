@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MongoliaYurts_ZH-CN4015475887_UHD.jpg&w=1000)今日图片: &nbsp;[蒙古草原上的蒙古包 (© Michel Arnault/Shutterstock)](https://www.bing.com/th?id=OHR.MongoliaYurts_ZH-CN4015475887_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TigerDay_ZH-CN4359136631_UHD.jpg&w=1000)今日图片: &nbsp;[雌性孟加拉虎，坎哈国家公园，印度 (© Axel Gomille/Nature Picture Library)](https://www.bing.com/th?id=OHR.TigerDay_ZH-CN4359136631_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BlackfinBarracuda_EN-US1227116811_UHD.jpg&w=1000)Today: [School of blackfin barracuda, Shark Reef, Ras Mohammed National Park, Sinai Peninsula, Egypt (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.BlackfinBarracuda_EN-US1227116811_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MongoliaYurts_EN-US1803457525_UHD.jpg&w=1000)Today: [Yurts in the grasslands of Mongolia (© Michel Arnault/Shutterstock)](https://www.bing.com/th?id=OHR.MongoliaYurts_EN-US1803457525_UHD.jpg)
 <br><br/>
