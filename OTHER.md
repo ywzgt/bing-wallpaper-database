@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TigerDay_JA-JP0300467728_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ベンガルトラのメス, インド (© Axel Gomille/Nature Picture Library)](https://www.bing.com/th?id=OHR.TigerDay_JA-JP0300467728_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SaypeDubai_JA-JP1584990235_UHD.jpg&w=1000)今日の壁紙: &nbsp;[Saype による地上絵, アラブ首長国連邦 (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.SaypeDubai_JA-JP1584990235_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TigerDay_FR-FR7212434732_UHD.jpg&w=1000)Today: [Tigresse du Bengale, parc national de Kanha, Inde (© Axel Gomille/Nature Picture Library)](https://www.bing.com/th?id=OHR.TigerDay_FR-FR7212434732_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TigerDay_IT-IT8572184729_UHD.jpg&w=1000)Today: [Tigre femmina del Bengala, Parco Nazionale di Kanha, India (© Axel Gomille/Nature Picture Library)](https://www.bing.com/th?id=OHR.TigerDay_IT-IT8572184729_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MongoliaYurts_PT-BR1789497655_UHD.jpg&w=1000)Today: [Yurts nas planícies da Mongólia (© Michel Arnault/Shutterstock)](https://www.bing.com/th?id=OHR.MongoliaYurts_PT-BR1789497655_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TigerDay_PT-BR9994663817_UHD.jpg&w=1000)Today: [Tigre-de-bengala fêmea, Parque Nacional de Kanha, Índia (© Axel Gomille/Nature Picture Library)](https://www.bing.com/th?id=OHR.TigerDay_PT-BR9994663817_UHD.jpg)
 <br><br/>
