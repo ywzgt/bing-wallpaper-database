@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TigerDay_ZH-CN4359136631_UHD.jpg&w=1000)今日图片: &nbsp;[雌性孟加拉虎，坎哈国家公园，印度 (© Axel Gomille/Nature Picture Library)](https://www.bing.com/th?id=OHR.TigerDay_ZH-CN4359136631_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RibadesellaSummer_ZH-CN4852547359_UHD.jpg&w=1000)今日图片: &nbsp;[里瓦德塞利亚，阿斯图里亚斯，西班牙 (© Agnieszka Glowala/Getty Images)](https://www.bing.com/th?id=OHR.RibadesellaSummer_ZH-CN4852547359_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MongoliaYurts_EN-US1803457525_UHD.jpg&w=1000)Today: [Yurts in the grasslands of Mongolia (© Michel Arnault/Shutterstock)](https://www.bing.com/th?id=OHR.MongoliaYurts_EN-US1803457525_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg&w=1000)Today: [Female Bengal tiger, Kanha National Park, India (© Axel Gomille/Nature Picture Library)](https://www.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg)
 <br><br/>
