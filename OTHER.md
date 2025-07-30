@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SaypeDubai_JA-JP1584990235_UHD.jpg&w=1000)今日の壁紙: &nbsp;[Saype による地上絵, アラブ首長国連邦 (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.SaypeDubai_JA-JP1584990235_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NaPaliKauai_JA-JP1764842674_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ナ・パリ・コースト, 米国 ハワイ州 (© Russ Bishop/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.NaPaliKauai_JA-JP1764842674_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SaypeDubai_FR-FR8249612257_UHD.jpg&w=1000)Today: [Fresque Beyond Walls de Saype à l’Expo 2020 de Dubaï, Émirats arabes unis (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.SaypeDubai_FR-FR8249612257_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SaypeDubai_IT-IT8691118780_UHD.jpg&w=1000)Today: [Installazione di land-art "Beyond Walls" di Saype a Expo 2020 Dubai, Emirati Arabi Uniti (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.SaypeDubai_IT-IT8691118780_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TigerDay_PT-BR9994663817_UHD.jpg&w=1000)Today: [Tigre-de-bengala fêmea, Parque Nacional de Kanha, Índia (© Axel Gomille/Nature Picture Library)](https://www.bing.com/th?id=OHR.TigerDay_PT-BR9994663817_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SaypeDubai_PT-BR3110184128_UHD.jpg&w=1000)Today: [Instalação de arte "Beyond Walls", de Saype, na Expo 2020 Dubai, Emirados Árabes Unidos (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.SaypeDubai_PT-BR3110184128_UHD.jpg)
 <br><br/>
