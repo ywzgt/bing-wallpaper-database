@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.EdinburghFringe_ZH-CN5243292664_UHD.jpg&w=1000)今日图片: &nbsp;[皇家英里大道, 爱丁堡, 苏格兰 (© MEDITERRANEAN/Getty Images)](https://www.bing.com/th?id=OHR.EdinburghFringe_ZH-CN5243292664_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FruitaPetroglyphs_ZH-CN5423905955_UHD.jpg&w=1000)今日图片: &nbsp;[圆顶礁国家公园弗鲁塔附近的岩画, 犹他州, 美国 (© Nicolas VINCENT/Adobe Stock)](https://www.bing.com/th?id=OHR.FruitaPetroglyphs_ZH-CN5423905955_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BabyLemur_EN-US9264861498_UHD.jpg&w=1000)Today: [Ring-tailed lemur infant playing with its own tail, Madagascar (© Andy Rouse/Nature Picture Library)](https://www.bing.com/th?id=OHR.BabyLemur_EN-US9264861498_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_UHD.jpg&w=1000)Today: [Royal Mile, Edinburgh, Scotland (© MEDITERRANEAN/Getty Images)](https://www.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_UHD.jpg)
 <br><br/>
