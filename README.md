@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.IguazuArgentina_ZH-CN4457051931_UHD.jpg&w=1000)今日图片: &nbsp;[伊瓜苏瀑布的三火枪瀑布, 阿根廷 (© Mark Meredith/Getty Images)](https://www.bing.com/th?id=OHR.IguazuArgentina_ZH-CN4457051931_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MaoriRock_ZH-CN5614685493_UHD.jpg&w=1000)今日图片: &nbsp;[陶波湖上的 Ngātoroirangi 矿湾毛利石刻, 新西兰 (© Joppi/Getty Images)](https://www.bing.com/th?id=OHR.MaoriRock_ZH-CN5614685493_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GasparillaLight_EN-US0554204214_UHD.jpg&w=1000)Today: [Gasparilla Island Rear Range Light, Boca Grande, Florida (© Wiltser/Getty Images)](https://www.bing.com/th?id=OHR.GasparillaLight_EN-US0554204214_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IguazuArgentina_EN-US5953375078_UHD.jpg&w=1000)Today: [Three Musketeers Falls at Iguazú Falls, Argentina (© Mark Meredith/Getty Images)](https://www.bing.com/th?id=OHR.IguazuArgentina_EN-US5953375078_UHD.jpg)
 <br><br/>
