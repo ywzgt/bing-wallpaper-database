@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MountainDay2025_JA-JP4443243001_UHD.jpg&w=1000)今日の壁紙: &nbsp;[中部山岳国立公園の上高地, 長野県 松本市 (© Poca Wander/Getty Images)](https://www.bing.com/th?id=OHR.MountainDay2025_JA-JP4443243001_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KenyaElephants_JA-JP2052759218_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アフリカゾウの群れ, ケニア (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.KenyaElephants_JA-JP2052759218_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SantaMaddalena_FR-FR5142947664_UHD.jpg&w=1000)Today: [Village de Santa Maddalena, Dolomites, Italie (© Sakrapee Nopparat/Getty Images)](https://www.bing.com/th?id=OHR.SantaMaddalena_FR-FR5142947664_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.StelleSanLorenzo_IT-IT2737058274_UHD.jpg&w=1000)Today: [Via Lattea vista dalla Val d'Orcia, Toscana (© Fabio Massimo Zappulla/500px/500Px Plus)](https://www.bing.com/th?id=OHR.StelleSanLorenzo_IT-IT2737058274_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DiaPais_PT-BR3238446689_UHD.jpg&w=1000)Today: [Família de capivaras às margens da floresta amazônica no Parque Nacional de Manu, Peru (© RPBMedia/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.DiaPais_PT-BR3238446689_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SantaMaddalena_PT-BR8037703771_UHD.jpg&w=1000)Today: [Vila de Santa Maddalena, Dolomitas, Itália (© Sakrapee Nopparat/Getty Images)](https://www.bing.com/th?id=OHR.SantaMaddalena_PT-BR8037703771_UHD.jpg)
 <br><br/>
