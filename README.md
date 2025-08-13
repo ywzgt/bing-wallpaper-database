@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.CoronaArch_ZH-CN5406267193_UHD.jpg&w=1000)今日图片: &nbsp;[一名男子从摩押附近的科罗纳拱门索降, 美国 (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CoronaArch_ZH-CN5406267193_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PizNairPeak_ZH-CN8209144138_UHD.jpg&w=1000)今日图片: &nbsp;[皮兹奈尔山缆车站, 格劳宾登州, 瑞士 (© Roberto Moiola/Alamy)](https://www.bing.com/th?id=OHR.PizNairPeak_ZH-CN8209144138_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.KenyaElephants_EN-US8723347309_UHD.jpg&w=1000)Today: [African elephant herd, Amboseli National Park, Kenya (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.KenyaElephants_EN-US8723347309_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CoronaArch_EN-US8928406175_UHD.jpg&w=1000)Today: [A man rappels off Corona Arch near Moab, Utah (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CoronaArch_EN-US8928406175_UHD.jpg)
 <br><br/>

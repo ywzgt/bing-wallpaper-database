@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.CoronaArch_JA-JP2223848865_UHD.jpg&w=1000)今日の壁紙: &nbsp;[コロナ・アーチ, 米国 ユタ州 (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CoronaArch_JA-JP2223848865_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PizNairPeak_JA-JP2425115607_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ピッツ・ネイル, スイス (© Roberto Moiola/Alamy)](https://www.bing.com/th?id=OHR.PizNairPeak_JA-JP2425115607_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.Flamingos_FR-FR9616625186_UHD.jpg&w=1000)Today: [Flamant rose, Saintes-Maries-de-la-Mer, Parc naturel régional de Camargue, Languedoc-Roussillon (© Raimund Linke/Getty Images)](https://www.bing.com/th?id=OHR.Flamingos_FR-FR9616625186_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SantaMaddalena_IT-IT2896067117_UHD.jpg&w=1000)Today: [Villaggio di Santa Maddalena, Val di Funes, Dolomiti, Trentino-Alto Adige (© Sakrapee Nopparat/Getty Images)](https://www.bing.com/th?id=OHR.SantaMaddalena_IT-IT2896067117_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.KenyaElephants_PT-BR8192553536_UHD.jpg&w=1000)Today: [Manada de elefantes africanos, Parque Nacional de Amboseli, Quênia (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.KenyaElephants_PT-BR8192553536_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CoronaArch_PT-BR8379386277_UHD.jpg&w=1000)Today: [Escalador fazendo rapel no Corona Arch, perto de Moab, Utah, EUA (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CoronaArch_PT-BR8379386277_UHD.jpg)
 <br><br/>
