@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.PizNairPeak_JA-JP2425115607_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ピッツ・ネイル, スイス (© Roberto Moiola/Alamy)](https://www.bing.com/th?id=OHR.PizNairPeak_JA-JP2425115607_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Flamingos_FR-FR9616625186_UHD.jpg&w=1000)Today: [Flamant rose, Saintes-Maries-de-la-Mer, Parc naturel régional de Camargue, Languedoc-Roussillon (© Raimund Linke/Getty Images)](https://www.bing.com/th?id=OHR.Flamingos_FR-FR9616625186_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PizNairPeak_FR-FR5851853861_UHD.jpg&w=1000)Today: [Station téléphérique du mont Piz Nair, Grisons, Suisse (© Roberto Moiola/Alamy)](https://www.bing.com/th?id=OHR.PizNairPeak_FR-FR5851853861_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CoronaArch_DE-DE6360631129_UHD.jpg&w=1000)Today: [Ein Mann seilt sich vom Corona Arch nahe Moab ab, Utah, USA (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CoronaArch_DE-DE6360631129_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PizNairPeak_DE-DE6932582005_UHD.jpg&w=1000)Today: [Seilbahnstation auf dem Piz Nair, Graubünden, Schweiz (© Roberto Moiola/Alamy)](https://www.bing.com/th?id=OHR.PizNairPeak_DE-DE6932582005_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MaoriRock_ES-ES4316358547_UHD.jpg&w=1000)Today: [Esculturas rupestres maoríes de la bahía de la mina Ngātoroirangi en el lago Taupō, Nueva Zelanda (© Joppi/Getty Images)](https://www.bing.com/th?id=OHR.MaoriRock_ES-ES4316358547_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PizNairPeak_ES-ES4449735655_UHD.jpg&w=1000)Today: [Estación de teleférico en la montaña Piz Nair, Cantón de los Grisones, Suiza (© Roberto Moiola/Alamy)](https://www.bing.com/th?id=OHR.PizNairPeak_ES-ES4449735655_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CoronaArch_EN-GB9558906767_UHD.jpg&w=1000)Today: [A man rappels off Corona Arch near Moab, Utah, United States (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CoronaArch_EN-GB9558906767_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PizNairPeak_EN-GB2398585795_UHD.jpg&w=1000)Today: [Cable car station on Piz Nair mountain, Graubünden, Switzerland (© Roberto Moiola/Alamy)](https://www.bing.com/th?id=OHR.PizNairPeak_EN-GB2398585795_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SantaMaddalena_IT-IT2896067117_UHD.jpg&w=1000)Today: [Villaggio di Santa Maddalena, Val di Funes, Dolomiti, Trentino-Alto Adige (© Sakrapee Nopparat/Getty Images)](https://www.bing.com/th?id=OHR.SantaMaddalena_IT-IT2896067117_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PizNairPeak_IT-IT2958589125_UHD.jpg&w=1000)Today: [Stazione della funivia sul monte Piz Nair, Grigioni, Svizzera (© Roberto Moiola/Alamy)](https://www.bing.com/th?id=OHR.PizNairPeak_IT-IT2958589125_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CoronaArch_PT-BR8379386277_UHD.jpg&w=1000)Today: [Escalador fazendo rapel no Corona Arch, perto de Moab, Utah, EUA (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CoronaArch_PT-BR8379386277_UHD.jpg)
 <br><br/>
