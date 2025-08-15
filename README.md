@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_UHD.jpg&w=1000)今日图片: &nbsp;[斑点鹞鲼，圣克里斯托瓦尔岛‌，‌加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures)](https://www.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ColorfulBeehives_ZH-CN0180195770_UHD.jpg&w=1000)今日图片: &nbsp;[色彩斑斓的蜂巢, 意大利 (© Roberto Caucino/Shutterstock)](https://www.bing.com/th?id=OHR.ColorfulBeehives_ZH-CN0180195770_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_UHD.jpg&w=1000)Today: [Cable car station on Piz Nair mountain, Graubünden, Switzerland (© Roberto Moiola/Alamy)](https://www.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpottedEagleRay_EN-US9227600044_UHD.jpg&w=1000)Today: [Spotted eagle rays, San Cristóbal Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)](https://www.bing.com/th?id=OHR.SpottedEagleRay_EN-US9227600044_UHD.jpg)
 <br><br/>
