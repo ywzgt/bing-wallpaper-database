@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Okuribi2025_JA-JP4621795615_UHD.jpg&w=1000)今日の壁紙: &nbsp;[大の字の中心・金尾の火床, 京都府 京都市 (© kumikomini/Getty Images)](https://www.bing.com/th?id=OHR.Okuribi2025_JA-JP4621795615_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LyngvigLighthouse_JA-JP3502925142_UHD.jpg&w=1000)今日の壁紙: &nbsp;[リングヴィグ灯台, デンマーク (© Caroline Brundle Bugge/Getty Images)](https://www.bing.com/th?id=OHR.LyngvigLighthouse_JA-JP3502925142_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.KiteFrejus_FR-FR4833953629_UHD.jpg&w=1000)Today: [Cerfs-volants dans le ciel de Fréjus, Var, Provence-Alpes-Côte d’Azur (© ICHAUVEL/Getty Images)](https://www.bing.com/th?id=OHR.KiteFrejus_FR-FR4833953629_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ColorfulBeehives_IT-IT3102989336_UHD.jpg&w=1000)Today: [Alveari colorati, Italia (© Roberto Caucino/Shutterstock)](https://www.bing.com/th?id=OHR.ColorfulBeehives_IT-IT3102989336_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SpottedEagleRay_PT-BR1035439304_UHD.jpg&w=1000)Today: [Raia-pintada, Ilha San Cristóbal, Galápagos, Equador (© Tui De Roy/Minden Pictures)](https://www.bing.com/th?id=OHR.SpottedEagleRay_PT-BR1035439304_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ColorfulBeehives_PT-BR1350605096_UHD.jpg&w=1000)Today: [Colmeias coloridas, Itália (© Roberto Caucino/Shutterstock)](https://www.bing.com/th?id=OHR.ColorfulBeehives_PT-BR1350605096_UHD.jpg)
 <br><br/>
