@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.AvalancheLake_JA-JP3739900372_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アヴァランチ湖, 米国 ニューヨーク州 (© Posnov/Getty Images)](https://www.bing.com/th?id=OHR.AvalancheLake_JA-JP3739900372_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LyngvigLighthouse_FR-FR5388600592_UHD.jpg&w=1000)Today: [Phare de Lyngvig, Hvide Sande, Danemark (© Caroline Brundle Bugge/Getty Images)](https://www.bing.com/th?id=OHR.LyngvigLighthouse_FR-FR5388600592_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ColorfulBeehives_FR-FR5685260580_UHD.jpg&w=1000)Today: [Ruches colorées, Italie (© Roberto Caucino/Shutterstock)](https://www.bing.com/th?id=OHR.ColorfulBeehives_FR-FR5685260580_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LyngvigLighthouse_DE-DE8062219926_UHD.jpg&w=1000)Today: [Lyngvig Leuchtturm, Hvide Sande, Dänemark (© Caroline Brundle Bugge/Getty Images)](https://www.bing.com/th?id=OHR.LyngvigLighthouse_DE-DE8062219926_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GermanyHiker_DE-DE4106707068_UHD.jpg&w=1000)Today: [Wanderer bei Sonnenaufgang auf einem Bergkamm, Nationalpark Gesäuse, Steiermark, Österreich (© AscentXmedia/Getty Images)](https://www.bing.com/th?id=OHR.GermanyHiker_DE-DE4106707068_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LyngvigLighthouse_ES-ES4833286329_UHD.jpg&w=1000)Today: [Faro de Lyngvig, Hvide Sande, Dinamarca (© Caroline Brundle Bugge/Getty Images)](https://www.bing.com/th?id=OHR.LyngvigLighthouse_ES-ES4833286329_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AvalancheLake_ES-ES4962588895_UHD.jpg&w=1000)Today: [Sendero al lago Avalanche en las montañas de Adirondack, Nueva York, EE. UU. (© Posnov/Getty Images)](https://www.bing.com/th?id=OHR.AvalancheLake_ES-ES4962588895_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LyngvigLighthouse_EN-GB3070055068_UHD.jpg&w=1000)Today: [Lyngvig Lighthouse, Hvide Sande, Denmark (© Caroline Brundle Bugge/Getty Images)](https://www.bing.com/th?id=OHR.LyngvigLighthouse_EN-GB3070055068_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AvalancheLake_EN-GB3210830707_UHD.jpg&w=1000)Today: [Avalanche Lake Trail at Adirondack High Peaks, New York, United States (© Posnov/Getty Images)](https://www.bing.com/th?id=OHR.AvalancheLake_EN-GB3210830707_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LyngvigLighthouse_IT-IT3166242120_UHD.jpg&w=1000)Today: [Faro di Lyngvig, Hvide Sande, Danimarca (© Caroline Brundle Bugge/Getty Images)](https://www.bing.com/th?id=OHR.LyngvigLighthouse_IT-IT3166242120_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AvalancheLake_IT-IT9962796758_UHD.jpg&w=1000)Today: [Lago Avalanche sulle Adirondack High Peaks, New York, USA (© Posnov/Getty Images)](https://www.bing.com/th?id=OHR.AvalancheLake_IT-IT9962796758_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.Jeribeach_PT-BR3080165878_UHD.jpg&w=1000)Today: [Vista aérea de praia em Jericoacoara, no Ceará (© AmazingAerialAgency/Adobe Stock)](https://www.bing.com/th?id=OHR.Jeribeach_PT-BR3080165878_UHD.jpg)
 <br><br/>
