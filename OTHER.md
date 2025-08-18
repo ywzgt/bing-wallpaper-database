@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AvalancheLake_JA-JP3739900372_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アヴァランチ湖, 米国 ニューヨーク州 (© Posnov/Getty Images)](https://www.bing.com/th?id=OHR.AvalancheLake_JA-JP3739900372_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SantaMaddalena_JA-JP3939499195_UHD.jpg&w=1000)今日の壁紙: &nbsp;[サンタ・マッダレーナ, イタリア (© Sakrapee Nopparat/Getty Images)](https://www.bing.com/th?id=OHR.SantaMaddalena_JA-JP3939499195_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ColorfulBeehives_FR-FR5685260580_UHD.jpg&w=1000)Today: [Ruches colorées, Italie (© Roberto Caucino/Shutterstock)](https://www.bing.com/th?id=OHR.ColorfulBeehives_FR-FR5685260580_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AvalancheLake_IT-IT9962796758_UHD.jpg&w=1000)Today: [Lago Avalanche sulle Adirondack High Peaks, New York, USA (© Posnov/Getty Images)](https://www.bing.com/th?id=OHR.AvalancheLake_IT-IT9962796758_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Jeribeach_PT-BR3080165878_UHD.jpg&w=1000)Today: [Vista aérea de praia em Jericoacoara, no Ceará (© AmazingAerialAgency/Adobe Stock)](https://www.bing.com/th?id=OHR.Jeribeach_PT-BR3080165878_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AvalancheLake_PT-BR3490746058_UHD.jpg&w=1000)Today: [Trilha do Avalanche Lake nas Montanhas Adirondack, Nova York, EUA (© Posnov/Getty Images)](https://www.bing.com/th?id=OHR.AvalancheLake_PT-BR3490746058_UHD.jpg)
 <br><br/>
