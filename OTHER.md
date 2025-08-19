@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SantaMaddalena_JA-JP3939499195_UHD.jpg&w=1000)今日の壁紙: &nbsp;[サンタ・マッダレーナ, イタリア (© Sakrapee Nopparat/Getty Images)](https://www.bing.com/th?id=OHR.SantaMaddalena_JA-JP3939499195_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CitadelBonifacio_JA-JP4122292062_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ボニファシオの城塞, フランス (© Marc Dozier/Getty Images)](https://www.bing.com/th?id=OHR.CitadelBonifacio_JA-JP4122292062_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.GipuzcoaSummer_FR-FR5838334376_UHD.jpg&w=1000)Today: [Couches de flysch à Zumaia, Pays basque, Espagne (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.GipuzcoaSummer_FR-FR5838334376_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.GipuzcoaSummer_IT-IT3301652373_UHD.jpg&w=1000)Today: [Strati di flysch a Zumaia, Paesi Baschi, Spagna (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.GipuzcoaSummer_IT-IT3301652373_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AvalancheLake_PT-BR3490746058_UHD.jpg&w=1000)Today: [Trilha do Avalanche Lake nas Montanhas Adirondack, Nova York, EUA (© Posnov/Getty Images)](https://www.bing.com/th?id=OHR.AvalancheLake_PT-BR3490746058_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GipuzcoaSummer_PT-BR3784755779_UHD.jpg&w=1000)Today: [Camadas de flysch em Zumaia, País Basco, Espanha (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.GipuzcoaSummer_PT-BR3784755779_UHD.jpg)
 <br><br/>

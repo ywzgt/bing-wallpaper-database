@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.GipuzcoaSummer_ZH-CN1926924422_UHD.jpg&w=1000)今日图片: &nbsp;[祖马亚的复理层，巴斯克地区，西班牙 (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.GipuzcoaSummer_ZH-CN1926924422_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CitadelBonifacio_ZH-CN2130899430_UHD.jpg&w=1000)今日图片: &nbsp;[博尼法乔城堡，科西嘉岛南部，法国 (© Marc Dozier/Getty Images)](https://www.bing.com/th?id=OHR.CitadelBonifacio_ZH-CN2130899430_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AvalancheLake_EN-US1814683119_UHD.jpg&w=1000)Today: [Avalanche Lake Trail at Adirondack High Peaks, New York (© Posnov/Getty Images)](https://www.bing.com/th?id=OHR.AvalancheLake_EN-US1814683119_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_UHD.jpg&w=1000)Today: [Solar Impulse 2 at Kalaeloa Airport, Honolulu, Hawaii (© Solar Impulse/Revillard/Sipa/Shutterstock)](https://www.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_UHD.jpg)
 <br><br/>
