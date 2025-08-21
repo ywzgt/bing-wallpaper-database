@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.WheatearBird_ZH-CN3286472001_UHD.jpg&w=1000)今日图片: &nbsp;[穗䳭和盛开的帚石楠，峰区国家公园，英格兰 (© Ben Hall/Nature Picture Library)](https://www.bing.com/th?id=OHR.WheatearBird_ZH-CN3286472001_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PalouseWA_ZH-CN2552273820_UHD.jpg&w=1000)今日图片: &nbsp;[帕卢斯连绵起伏的丘陵，华盛顿州，美国 (© svetlana57/Getty Images)](https://www.bing.com/th?id=OHR.PalouseWA_ZH-CN2552273820_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CitadelBonifacio_EN-US2046177235_UHD.jpg&w=1000)Today: [The citadel in Bonifacio, Southern Corsica, France (© Marc Dozier/Getty Images)](https://www.bing.com/th?id=OHR.CitadelBonifacio_EN-US2046177235_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WheatearBird_EN-US2132045619_UHD.jpg&w=1000)Today: [Wheatear and flowering heather, Peak District National Park, England (© Ben Hall/Nature Picture Library)](https://www.bing.com/th?id=OHR.WheatearBird_EN-US2132045619_UHD.jpg)
 <br><br/>
