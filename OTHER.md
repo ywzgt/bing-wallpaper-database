@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.WheatearBird_JA-JP4532304114_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ピーク・ディストリクト国立公園, イングランド (© Ben Hall/Nature Picture Library)](https://www.bing.com/th?id=OHR.WheatearBird_JA-JP4532304114_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PalouseWA_JA-JP5363056424_UHD.jpg&w=1000)今日の壁紙: &nbsp;[パルース丘陵, 米国 ワシントン州 (© svetlana57/Getty Images)](https://www.bing.com/th?id=OHR.PalouseWA_JA-JP5363056424_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.WheatearBird_FR-FR6118377367_UHD.jpg&w=1000)Today: [Traquet motteux au milieu de la bruyère, parc national du Peak District, Angleterre (© Ben Hall/Nature Picture Library)](https://www.bing.com/th?id=OHR.WheatearBird_FR-FR6118377367_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.WheatearBird_IT-IT3442241392_UHD.jpg&w=1000)Today: [Culbianco ed Erica in fiore, Parco Nazionale del Peak District, Inghilterra (© Ben Hall/Nature Picture Library)](https://www.bing.com/th?id=OHR.WheatearBird_IT-IT3442241392_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CitadelBonifacio_PT-BR4689124587_UHD.jpg&w=1000)Today: [Cidadela de Bonifácio no sul da Córsega, França (© Marc Dozier/Getty Images)](https://www.bing.com/th?id=OHR.CitadelBonifacio_PT-BR4689124587_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WheatearBird_PT-BR5430723539_UHD.jpg&w=1000)Today: [Chasco em meio a flores de urze no Parque Nacional de Peak District, Inglaterra (© Ben Hall/Nature Picture Library)](https://www.bing.com/th?id=OHR.WheatearBird_PT-BR5430723539_UHD.jpg)
 <br><br/>
