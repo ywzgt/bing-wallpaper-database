@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.PalouseWA_JA-JP5363056424_UHD.jpg&w=1000)今日の壁紙: &nbsp;[パルース丘陵, 米国 ワシントン州 (© svetlana57/Getty Images)](https://www.bing.com/th?id=OHR.PalouseWA_JA-JP5363056424_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Morningglory2025_JA-JP5429610056_UHD.jpg&w=1000)今日の壁紙: &nbsp;[早朝に開花する美しいアサガオ (© borchee/Getty Images)](https://www.bing.com/th?id=OHR.Morningglory2025_JA-JP5429610056_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.RockSeine_FR-FR5220728990_UHD.jpg&w=1000)Today: [Domaine national de Saint-Cloud, Grande Cascade, Île de France (© GUIZIOU Franck/hemis.fr)](https://www.bing.com/th?id=OHR.RockSeine_FR-FR5220728990_UHD.jpg)
 <br><br/>
@@ -9,7 +9,7 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PalouseWA_EN-GB8343692034_UHD.jpg&w=1000)Today: [Rolling hills of the Palouse, Washington, United States (© svetlana57/Getty Images)](https://www.bing.com/th?id=OHR.PalouseWA_EN-GB8343692034_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PalouseWA_IT-IT0107533820_UHD.jpg&w=1000)Today: [Praterie ondulate del Palouse, Washington, USA (© svetlana57/Getty Images)](https://www.bing.com/th?id=OHR.PalouseWA_IT-IT0107533820_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PalouseWA_IT-IT4357870693_UHD.jpg&w=1000)Today: [Praterie ondulate della Palouse, Washington, USA (© svetlana57/Getty Images)](https://www.bing.com/th?id=OHR.PalouseWA_IT-IT4357870693_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WheatearBird_PT-BR5430723539_UHD.jpg&w=1000)Today: [Chasco em meio a flores de urze no Parque Nacional de Peak District, Inglaterra (© Ben Hall/Nature Picture Library)](https://www.bing.com/th?id=OHR.WheatearBird_PT-BR5430723539_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DiaFolk_PT-BR5591184698_UHD.jpg&w=1000)Today: [Mamulengos em Olinda, Pernambuco (© Paula Montenegro/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.DiaFolk_PT-BR5591184698_UHD.jpg)
 <br><br/>
