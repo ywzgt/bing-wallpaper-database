@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.CervusDama_JA-JP5457977522_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ダマジカ, イギリス (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.CervusDama_JA-JP5457977522_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YellowstoneRiver_JA-JP5485264478_UHD.jpg&w=1000)今日の壁紙: &nbsp;[イエローストーン国立公園, 米国 ワイオミング州 (© Rebecca L. Latson/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneRiver_JA-JP5485264478_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CervusDama_FR-FR7245916785_UHD.jpg&w=1000)Today: [Daim européen, Angleterre (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.CervusDama_FR-FR7245916785_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CervusDama_IT-IT0307979007_UHD.jpg&w=1000)Today: [Daini, Inghilterra (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.CervusDama_IT-IT0307979007_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SaintBarbaras_PT-BR9908756704_UHD.jpg&w=1000)Today: [Catedral de Santa Bárbara, Kutná Hora, Tchéquia (© Castka/Getty Images)](https://www.bing.com/th?id=OHR.SaintBarbaras_PT-BR9908756704_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Pepalantus_PT-BR6960217232_UHD.jpg&w=1000)Today: [Chuveirinhos ao nascer do sol na Chapada dos Veadeiros, Goiás (© Cavan Images/Getty Images)](https://www.bing.com/th?id=OHR.Pepalantus_PT-BR6960217232_UHD.jpg)
 <br><br/>
