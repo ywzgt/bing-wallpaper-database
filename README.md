@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.YellowstoneRiver_ZH-CN3716808579_UHD.jpg&w=1000)今日图片: &nbsp;[方解石温泉区和黄石河，黄石国家公园，怀俄明州，美国 (© Rebecca L. Latson/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneRiver_ZH-CN3716808579_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_UHD.jpg&w=1000)今日图片: &nbsp;[阿尔贝罗贝洛的特鲁洛建筑，普利亚大区，意大利 (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CervusDama_EN-US3217647015_UHD.jpg&w=1000)Today: [European fallow deer, England (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.CervusDama_EN-US3217647015_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_UHD.jpg&w=1000)Today: [Calcite Springs Overlook and Yellowstone River, Yellowstone National Park, Wyoming (© Rebecca L. Latson/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_UHD.jpg)
 <br><br/>
