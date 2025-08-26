@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.TrulliHouses_JA-JP5521004094_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アルベロベッロ, イタリア (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.TrulliHouses_JA-JP5521004094_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.YellowstoneRiver_FR-FR8460083088_UHD.jpg&w=1000)Today: [Observatoire de Calcite Springs et rivière Yellowstone, parc national de Yellowstone, Wyoming, États-Unis (© Rebecca L. Latson/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneRiver_FR-FR8460083088_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TrulliHouses_FR-FR8920368293_UHD.jpg&w=1000)Today: [Les maisons trulli d’Alberobello, Pouilles, Italie (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.TrulliHouses_FR-FR8920368293_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.YellowstoneRiver_DE-DE2550082704_UHD.jpg&w=1000)Today: [Aussichtspunkt Calcite Springs und Yellowstone River, Yellowstone-Nationalpark, Wyoming, USA (© Rebecca L. Latson/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneRiver_DE-DE2550082704_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KitesurferGermany_DE-DE6337370430_UHD.jpg&w=1000)Today: [Silhouette eines springenden Kitesurfers bei Sonnenuntergang im baltischen Meer (© Jens Breuer/Getty Images)](https://www.bing.com/th?id=OHR.KitesurferGermany_DE-DE6337370430_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.YellowstoneRiver_ES-ES8502138865_UHD.jpg&w=1000)Today: [Mirador de Calcite Springs y río Yellowstone, Parque Nacional de Yellowstone, Wyoming, EE. UU. (© Rebecca L. Latson/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneRiver_ES-ES8502138865_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TrulliHouses_ES-ES8633260965_UHD.jpg&w=1000)Today: [Los trulli de Alberobello, Apulia, Italia (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.TrulliHouses_ES-ES8633260965_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.YellowstoneRiver_EN-GB9172526741_UHD.jpg&w=1000)Today: [Calcite Springs Overlook and Yellowstone River, Yellowstone National Park, Wyoming, United States (© Rebecca L. Latson/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneRiver_EN-GB9172526741_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TrulliHouses_EN-GB9384999011_UHD.jpg&w=1000)Today: [Trullo buildings in Alberobello, Apulia, Italy (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.TrulliHouses_EN-GB9384999011_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.YellowstoneRiver_IT-IT7237441471_UHD.jpg&w=1000)Today: [Sorgenti di calcite e fiume Yellowstone, Parco Nazionale di Yellowstone, Wyoming, USA (© Rebecca L. Latson/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneRiver_IT-IT7237441471_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FaroeLake_IT-IT9674052822_UHD.jpg&w=1000)Today: [Lago Sørvágsvatn, Isola di Vágar, Fær Øer (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.FaroeLake_IT-IT9674052822_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.YellowstoneRiver_PT-BR9693937277_UHD.jpg&w=1000)Today: [Mirante de Calcite Springs e Rio Yellowstone, Parque Nacional de Yellowstone, Wyoming, EUA (© Rebecca L. Latson/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneRiver_PT-BR9693937277_UHD.jpg)
 <br><br/>
