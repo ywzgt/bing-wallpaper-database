@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TrulliHouses_JA-JP5521004094_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アルベロベッロ, イタリア (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.TrulliHouses_JA-JP5521004094_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FaroeLake_JA-JP5563873968_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ソールヴァグスヴァトン湖, デンマーク (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.FaroeLake_JA-JP5563873968_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TrulliHouses_FR-FR8920368293_UHD.jpg&w=1000)Today: [Les maisons trulli d’Alberobello, Pouilles, Italie (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.TrulliHouses_FR-FR8920368293_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.FaroeLake_IT-IT9674052822_UHD.jpg&w=1000)Today: [Lago Sørvágsvatn, Isola di Vágar, Fær Øer (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.FaroeLake_IT-IT9674052822_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.YellowstoneRiver_PT-BR9693937277_UHD.jpg&w=1000)Today: [Mirante de Calcite Springs e Rio Yellowstone, Parque Nacional de Yellowstone, Wyoming, EUA (© Rebecca L. Latson/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneRiver_PT-BR9693937277_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TrulliHouses_PT-BR9475692206_UHD.jpg&w=1000)Today: [Casas trulli em Alberobello, Apúlia, Itália (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.TrulliHouses_PT-BR9475692206_UHD.jpg)
 <br><br/>
