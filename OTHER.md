@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.FaroeLake_JA-JP5563873968_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ソールヴァグスヴァトン湖, デンマーク (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.FaroeLake_JA-JP5563873968_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WhiteEgret_JA-JP5628214526_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ダイサギ, ハンガリー  (© Markus Varesvuo/Nature Picture Library)](https://www.bing.com/th?id=OHR.WhiteEgret_JA-JP5628214526_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.FaroeLake_FR-FR9783963301_UHD.jpg&w=1000)Today: [Lac Sørvágsvatn, île de Vágar, Îles Féroé (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.FaroeLake_FR-FR9783963301_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.FestivalVenezia_IT-IT9738242817_UHD.jpg&w=1000)Today: [Vista aerea delle case colorate dell'isola di Burano, Laguna di Venezia, Veneto (© Pol Albarrán/Moment)](https://www.bing.com/th?id=OHR.FestivalVenezia_IT-IT9738242817_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TrulliHouses_PT-BR9475692206_UHD.jpg&w=1000)Today: [Casas trulli em Alberobello, Apúlia, Itália (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.TrulliHouses_PT-BR9475692206_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FaroeLake_PT-BR9196671345_UHD.jpg&w=1000)Today: [Lago Sørvágsvatn, ilha de Vágar, Ilhas Faroe, Dinamarca (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.FaroeLake_PT-BR9196671345_UHD.jpg)
 <br><br/>

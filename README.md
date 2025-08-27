@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.FaroeLake_ZH-CN3977660997_UHD.jpg&w=1000)今日图片: &nbsp;[瑟沃格湖，瓦加尔岛，法罗群岛 (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.FaroeLake_ZH-CN3977660997_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WhiteEgret_ZH-CN4425921150_UHD.jpg&w=1000)今日图片: &nbsp;[大白鹭，匈牙利 (© Markus Varesvuo/Nature Picture Library)](https://www.bing.com/th?id=OHR.WhiteEgret_ZH-CN4425921150_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_UHD.jpg&w=1000)Today: [Trullo buildings in Alberobello, Apulia, Italy (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FaroeLake_EN-US3557234950_UHD.jpg&w=1000)Today: [Sørvágsvatn lake, island of Vágar, Faroe Islands, Denmark (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.FaroeLake_EN-US3557234950_UHD.jpg)
 <br><br/>
