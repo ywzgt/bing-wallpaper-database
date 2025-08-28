@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.WhiteEgret_JA-JP5628214526_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ダイサギ, ハンガリー  (© Markus Varesvuo/Nature Picture Library)](https://www.bing.com/th?id=OHR.WhiteEgret_JA-JP5628214526_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.FaroeLake_FR-FR9783963301_UHD.jpg&w=1000)Today: [Lac Sørvágsvatn, île de Vágar, Îles Féroé (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.FaroeLake_FR-FR9783963301_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WhiteEgret_FR-FR1372532221_UHD.jpg&w=1000)Today: [Grande Aigrette, Hongrie (© Markus Varesvuo/Nature Picture Library)](https://www.bing.com/th?id=OHR.WhiteEgret_FR-FR1372532221_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.FaroeLake_DE-DE3217982226_UHD.jpg&w=1000)Today: [Sørvágsvatn-See, Insel Vágar, Färöer-Inseln (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.FaroeLake_DE-DE3217982226_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WhiteEgret_DE-DE4529883456_UHD.jpg&w=1000)Today: [Silberreiher, Ungarn (© Markus Varesvuo/Nature Picture Library)](https://www.bing.com/th?id=OHR.WhiteEgret_DE-DE4529883456_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.FaroeLake_ES-ES8719950614_UHD.jpg&w=1000)Today: [Lago Sørvágsvatn, Isla de Vágar, Islas Feroe, Reino de Dinamarca (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.FaroeLake_ES-ES8719950614_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WhiteEgret_ES-ES8814073965_UHD.jpg&w=1000)Today: [Garza blanca, Hungría (© Markus Varesvuo/Nature Picture Library)](https://www.bing.com/th?id=OHR.WhiteEgret_ES-ES8814073965_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.FaroeLake_EN-GB9601686603_UHD.jpg&w=1000)Today: [Sørvágsvatn lake, island of Vágar, Faroe Islands (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.FaroeLake_EN-GB9601686603_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WhiteEgret_EN-GB9754251340_UHD.jpg&w=1000)Today: [Great white egret, Hungary (© Markus Varesvuo/Nature Picture Library)](https://www.bing.com/th?id=OHR.WhiteEgret_EN-GB9754251340_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.FestivalVenezia_IT-IT9738242817_UHD.jpg&w=1000)Today: [Vista aerea delle case colorate dell'isola di Burano, Laguna di Venezia, Veneto (© Pol Albarrán/Moment)](https://www.bing.com/th?id=OHR.FestivalVenezia_IT-IT9738242817_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WhiteEgret_IT-IT9836668114_UHD.jpg&w=1000)Today: [Airone bianco, Ungheria (© Markus Varesvuo/Nature Picture Library)](https://www.bing.com/th?id=OHR.WhiteEgret_IT-IT9836668114_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.FaroeLake_PT-BR9196671345_UHD.jpg&w=1000)Today: [Lago Sørvágsvatn, ilha de Vágar, Ilhas Faroe, Dinamarca (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.FaroeLake_PT-BR9196671345_UHD.jpg)
 <br><br/>
