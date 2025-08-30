@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.OmagariFireworks2025_JA-JP5692415884_UHD.jpg&w=1000)今日の壁紙: &nbsp;[全国花火競技大会, 秋田県, 大仙市 (© Toru Hanai/寄稿者/Getty Images)](https://www.bing.com/th?id=OHR.OmagariFireworks2025_JA-JP5692415884_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ScottsBluff_JA-JP5785584590_UHD.jpg&w=1000)今日の壁紙: &nbsp;[スコッツブラフ国定記念物, 米国 ネブラスカ州 (© Hawk Buckman/Getty Images)](https://www.bing.com/th?id=OHR.ScottsBluff_JA-JP5785584590_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MaldivesWhaleShark_FR-FR6621180531_UHD.jpg&w=1000)Today: [Requin-baleine au large de l’atoll Alifu Dhaalu, Maldives (© Bachir Moukarzel/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.MaldivesWhaleShark_FR-FR6621180531_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MaldivesWhaleShark_IT-IT0005084391_UHD.jpg&w=1000)Today: [Squalo balena, Atollo di Alifu Dhaalu, Maldive (© Bachir Moukarzel/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.MaldivesWhaleShark_IT-IT0005084391_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PlazaMayor_PT-BR7717335564_UHD.jpg&w=1000)Today: [Vista aérea da Plaza Mayor, Madrid, Espanha (© AirPano  LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.PlazaMayor_PT-BR7717335564_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MaldivesWhaleShark_PT-BR7655648447_UHD.jpg&w=1000)Today: [Tubarão-baleia na costa do Atol Alifu Dhaalu, Maldivas (© Bachir  Moukarzel/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.MaldivesWhaleShark_PT-BR7655648447_UHD.jpg)
 <br><br/>
