@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_UHD.jpg&w=1000)今日图片: &nbsp;[骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, 纳米比亚 (© Inge Johnsson/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MinnesotaWaters_ZH-CN6078521418_UHD.jpg&w=1000)今日图片: &nbsp;[边界水域独木舟区荒野区, 明尼苏达州, 美国 (© s.tomas/Shutterstock)](https://www.bing.com/th?id=OHR.MinnesotaWaters_ZH-CN6078521418_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LaborDayChicago_EN-US3947410593_UHD.jpg&w=1000)Today: [Amalgamated Clothing Workers of America in a Labor Day parade, May 1915, Chicago (© Chicago Sun-Times/Chicago Daily News collection/Chicago History Museum/Getty Images)](https://www.bing.com/th?id=OHR.LaborDayChicago_EN-US3947410593_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DeadvleiTrees_EN-US4233800313_UHD.jpg&w=1000)Today: [Camel thorn trees, Deadvlei, Namib-Naukluft Park, Namibia (© Inge Johnsson/Alamy)](https://www.bing.com/th?id=OHR.DeadvleiTrees_EN-US4233800313_UHD.jpg)
 <br><br/>
