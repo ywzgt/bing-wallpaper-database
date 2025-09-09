@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SwissSquirrel_ZH-CN1499344455_UHD.jpg&w=1000)今日图片: &nbsp;[一只雌性欧亚红松鼠正在搬运苔藓，瑞士 (© Jean-Luc and Francoise Ziegler/Minden Pictures)](https://www.bing.com/th?id=OHR.SwissSquirrel_ZH-CN1499344455_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YorkshireHay_ZH-CN9097986997_UHD.jpg&w=1000)今日图片: &nbsp;[干草捆，北约克郡，英格兰 (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.YorkshireHay_ZH-CN9097986997_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.OrchardLibrary_EN-US8095609746_UHD.jpg&w=1000)Today: [Library@orchard, Singapore (© Darwin Fan/Getty Images)](https://www.bing.com/th?id=OHR.OrchardLibrary_EN-US8095609746_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SwissSquirrel_EN-US8185093853_UHD.jpg&w=1000)Today: [A female Eurasian red squirrel carrying moss, Switzerland (© Jean-Luc and Francoise Ziegler/Minden Pictures)](https://www.bing.com/th?id=OHR.SwissSquirrel_EN-US8185093853_UHD.jpg)
 <br><br/>
