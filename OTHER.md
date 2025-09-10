@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.YorkshireHay_JA-JP4491584308_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ヨークの農場, イングランド (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.YorkshireHay_JA-JP4491584308_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ExtremaduraJamon_JA-JP6016561282_UHD.jpg&w=1000)今日の壁紙: &nbsp;[モンフラグエ国立公園にあるペニャ・ファルコン岩, スペイン (© Daniel Viñé Garcia/Getty Images)](https://www.bing.com/th?id=OHR.ExtremaduraJamon_JA-JP6016561282_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.YorkshireHay_FR-FR4007661841_UHD.jpg&w=1000)Today: [Bottes de foin, North Yorkshire, Angleterre (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.YorkshireHay_FR-FR4007661841_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.YorkshireHay_IT-IT9160860790_UHD.jpg&w=1000)Today: [Balle di fieno, North Yorkshire, Inghilterra (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.YorkshireHay_IT-IT9160860790_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SwissSquirrel_PT-BR6801984629_UHD.jpg&w=1000)Today: [Fêmea de esquilo-vermelho-eurasiático carregando musgo, Suíça (© Jean-Luc and Francoise Ziegler/Minden Pictures)](https://www.bing.com/th?id=OHR.SwissSquirrel_PT-BR6801984629_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YorkshireHay_PT-BR7088228512_UHD.jpg&w=1000)Today: [Fardos de feno, North Yorkshire, Inglaterra (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.YorkshireHay_PT-BR7088228512_UHD.jpg)
 <br><br/>
