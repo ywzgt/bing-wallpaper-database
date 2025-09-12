@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SpaceDay2025_JA-JP8112086826_UHD.jpg&w=1000)今日の壁紙: &nbsp;[種子島宇宙センター, 鹿児島県 (© norinori303/Adobe Stock)](https://www.bing.com/th?id=OHR.SpaceDay2025_JA-JP8112086826_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PointReyesSeashore_JA-JP7685899201_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ポイント・レイズ国定海岸, 米国 カリフォルニア州 (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.PointReyesSeashore_JA-JP7685899201_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SpinnerDolphins_FR-FR4369584175_UHD.jpg&w=1000)Today: [Groupe de dauphins à long bec dans la mer Rouge, Marsa Alam, Égypte (© Franco Banfi/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpinnerDolphins_FR-FR4369584175_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SpinnerDolphins_IT-IT5393623378_UHD.jpg&w=1000)Today: [Branco di delfini stenella striata nel Mar Rosso, Marsa Alam, Egitto (© Franco Banfi/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpinnerDolphins_IT-IT5393623378_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ExtremaduraJamon_PT-BR7599252573_UHD.jpg&w=1000)Today: [Vista do Salto del Gitano, Parque Nacional de Monfragüe, Cáceres, Extremadura, Espanha (© Daniel Viñé Garcia/Getty Images)](https://www.bing.com/th?id=OHR.ExtremaduraJamon_PT-BR7599252573_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpinnerDolphins_PT-BR7075724083_UHD.jpg&w=1000)Today: [Grupo de golfinhos-rotadores no Mar Vermelho, Marsa Alam, Egito (© Franco Banfi/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpinnerDolphins_PT-BR7075724083_UHD.jpg)
 <br><br/>
