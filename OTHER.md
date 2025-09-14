@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.HohWaterfall_JA-JP8707934931_UHD.jpg&w=1000)今日の壁紙: &nbsp;[オリンピック国立公園, 米国 ワシントン州 (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.HohWaterfall_JA-JP8707934931_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AgedDay2025_JA-JP9424136979_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アメリカワシミミズク (© Scott Suriano/Getty Images)](https://www.bing.com/th?id=OHR.AgedDay2025_JA-JP9424136979_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.HohWaterfall_FR-FR5951351854_UHD.jpg&w=1000)Today: [Cascade dans le parc national Olympic, État de Washington, États-Unis (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.HohWaterfall_FR-FR5951351854_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.HohWaterfall_IT-IT5534141652_UHD.jpg&w=1000)Today: [Parco Nazionale Olimpico, Washington, USA (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.HohWaterfall_IT-IT5534141652_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PointReyesSeashore_PT-BR6646395434_UHD.jpg&w=1000)Today: [Chimney Rock, Point Reyes National Seashore, Califórnia, EUA (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.PointReyesSeashore_PT-BR6646395434_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HohWaterfall_PT-BR6671892401_UHD.jpg&w=1000)Today: [Cachoeira no Parque Nacional Olympic, Washington, EUA (© Chris  Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.HohWaterfall_PT-BR6671892401_UHD.jpg)
 <br><br/>
