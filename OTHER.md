@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AgedDay2025_JA-JP9424136979_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アメリカワシミミズク (© Scott Suriano/Getty Images)](https://www.bing.com/th?id=OHR.AgedDay2025_JA-JP9424136979_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OzoneEarth_JA-JP1432094253_UHD.jpg&w=1000)今日の壁紙: &nbsp;[高度約 360km から撮影したガルフコースト (© Stocktrek Images/Getty Images)](https://www.bing.com/th?id=OHR.OzoneEarth_JA-JP1432094253_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.Echasse_FR-FR6104514472_UHD.jpg&w=1000)Today: [Échasses blanches, France (© Antonio Sementa/500px/Getty Images)](https://www.bing.com/th?id=OHR.Echasse_FR-FR6104514472_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.Echasse_IT-IT5616266756_UHD.jpg&w=1000)Today: [Cavalieri d’Italia, Francia (© Antonio Sementa/500px/Getty Images)](https://www.bing.com/th?id=OHR.Echasse_IT-IT5616266756_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HohWaterfall_PT-BR6671892401_UHD.jpg&w=1000)Today: [Cachoeira no Parque Nacional Olympic, Washington, EUA (© Chris  Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.HohWaterfall_PT-BR6671892401_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Echasse_PT-BR5689846497_UHD.jpg&w=1000)Today: [Dupla de aves pernilongo na França (© Antonio Sementa/500px/Getty Images)](https://www.bing.com/th?id=OHR.Echasse_PT-BR5689846497_UHD.jpg)
 <br><br/>
