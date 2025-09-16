@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.OzoneEarth_JA-JP1432094253_UHD.jpg&w=1000)今日の壁紙: &nbsp;[高度約 360km から撮影したガルフコースト (© Stocktrek Images/Getty Images)](https://www.bing.com/th?id=OHR.OzoneEarth_JA-JP1432094253_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YoungMoose_JA-JP2388659996_UHD.jpg&w=1000)今日の壁紙: &nbsp;[若いオスのヘラジカ, 米国 アラスカ州 (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.YoungMoose_JA-JP2388659996_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.OzoneEarth_FR-FR6213796059_UHD.jpg&w=1000)Today: [Vue nocturne des États américains bordant le golfe du Mexique, depuis 360 kilomètres au-dessus de la Terre (© Stocktrek Images/Getty Images)](https://www.bing.com/th?id=OHR.OzoneEarth_FR-FR6213796059_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.OzoneEarth_IT-IT9452054464_UHD.jpg&w=1000)Today: [Vista notturna degli Stati della costa del Golfo dallo Spazio (© Stocktrek Images/Getty Images)](https://www.bing.com/th?id=OHR.OzoneEarth_IT-IT9452054464_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Echasse_PT-BR5689846497_UHD.jpg&w=1000)Today: [Dupla de aves pernilongo na França (© Antonio Sementa/500px/Getty Images)](https://www.bing.com/th?id=OHR.Echasse_PT-BR5689846497_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OzoneEarth_PT-BR3466489488_UHD.jpg&w=1000)Today: [Vista noturna da Golfo do México, 362 quilômetros acima da Terra (© Stocktrek Images/Getty Images)](https://www.bing.com/th?id=OHR.OzoneEarth_PT-BR3466489488_UHD.jpg)
 <br><br/>
