@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.YoungMoose_JA-JP2388659996_UHD.jpg&w=1000)今日の壁紙: &nbsp;[若いオスのヘラジカ, 米国 アラスカ州 (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.YoungMoose_JA-JP2388659996_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.OzoneEarth_FR-FR6213796059_UHD.jpg&w=1000)Today: [Vue nocturne des États américains bordant le golfe du Mexique, depuis 360 kilomètres au-dessus de la Terre (© Stocktrek Images/Getty Images)](https://www.bing.com/th?id=OHR.OzoneEarth_FR-FR6213796059_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YoungMoose_FR-FR2257077158_UHD.jpg&w=1000)Today: [Jeune élan mâle, parc national de Denali, Alaska, États-Unis (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.YoungMoose_FR-FR2257077158_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.OzoneEarth_DE-DE2800551844_UHD.jpg&w=1000)Today: [Nachtansicht der Golfküstenstaaten aus 362 Kilometern Höhe über der Erde (© Stocktrek Images/Getty Images)](https://www.bing.com/th?id=OHR.OzoneEarth_DE-DE2800551844_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YoungMoose_DE-DE0761999333_UHD.jpg&w=1000)Today: [Ein junger Elchbulle im Denali-Nationalpark, Alaska, USA (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.YoungMoose_DE-DE0761999333_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.OzoneEarth_ES-ES8514798418_UHD.jpg&w=1000)Today: [Vista nocturna del sur de Estados Unidos a unos 360 kilómetros sobre la Tierra (© Stocktrek Images/Getty Images)](https://www.bing.com/th?id=OHR.OzoneEarth_ES-ES8514798418_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YoungMoose_ES-ES6683972972_UHD.jpg&w=1000)Today: [Un joven alce macho en el Parque Nacional Denali, Alaska, EE. UU. (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.YoungMoose_ES-ES6683972972_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.OzoneEarth_EN-GB2737742012_UHD.jpg&w=1000)Today: [A nighttime view of the Gulf Coast states from 225 miles above Earth (© Stocktrek Images/Getty Images)](https://www.bing.com/th?id=OHR.OzoneEarth_EN-GB2737742012_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YoungMoose_EN-GB3146356133_UHD.jpg&w=1000)Today: [A young bull moose in Denali National Park, Alaska, United States (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.YoungMoose_EN-GB3146356133_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.OzoneEarth_IT-IT9452054464_UHD.jpg&w=1000)Today: [Vista notturna degli Stati della costa del Golfo dallo Spazio (© Stocktrek Images/Getty Images)](https://www.bing.com/th?id=OHR.OzoneEarth_IT-IT9452054464_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YoungMoose_IT-IT1966102379_UHD.jpg&w=1000)Today: [Giovane alce maschio nel Parco Nazionale di Denali, Alaska, USA (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.YoungMoose_IT-IT1966102379_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.OzoneEarth_PT-BR3466489488_UHD.jpg&w=1000)Today: [Vista noturna da Golfo do México, 362 quilômetros acima da Terra (© Stocktrek Images/Getty Images)](https://www.bing.com/th?id=OHR.OzoneEarth_PT-BR3466489488_UHD.jpg)
 <br><br/>
