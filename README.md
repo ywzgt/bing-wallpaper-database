@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ThousandIslands_ZH-CN3197750437_UHD.jpg&w=1000)今日图片: &nbsp;[千岛群岛地区，圣劳伦斯河，美加边境 (© benedek/Getty Images)](https://www.bing.com/th?id=OHR.ThousandIslands_ZH-CN3197750437_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OktoberfestSwing_ZH-CN5270146600_UHD.jpg&w=1000)今日图片: &nbsp;[慕尼黑啤酒节上的旋转木马，慕尼黑，巴伐利亚，德国 (© LOOK-foto/Alamy)](https://www.bing.com/th?id=OHR.OktoberfestSwing_ZH-CN5270146600_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DunquinIreland_EN-US9846056364_UHD.jpg&w=1000)Today: [Serpentine stairs of Dunquin Pier, County Kerry, Ireland (© Hugh O'Connor/Getty Images)](https://www.bing.com/th?id=OHR.DunquinIreland_EN-US9846056364_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ThousandIslands_EN-US7884567746_UHD.jpg&w=1000)Today: [Thousand Islands region, St. Lawrence River, US-Canada border (© benedek/Getty Images)](https://www.bing.com/th?id=OHR.ThousandIslands_EN-US7884567746_UHD.jpg)
 <br><br/>
