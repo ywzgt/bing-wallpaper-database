@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.OktoberfestSwing_ZH-CN5270146600_UHD.jpg&w=1000)今日图片: &nbsp;[慕尼黑啤酒节上的旋转木马，慕尼黑，巴伐利亚，德国 (© LOOK-foto/Alamy)](https://www.bing.com/th?id=OHR.OktoberfestSwing_ZH-CN5270146600_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IceOtters_ZH-CN5393791969_UHD.jpg&w=1000)今日图片: &nbsp;[海獭，威廉王子湾，阿拉斯加州，美国 (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.IceOtters_ZH-CN5393791969_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ThousandIslands_EN-US7884567746_UHD.jpg&w=1000)Today: [Thousand Islands region, St. Lawrence River, US-Canada border (© benedek/Getty Images)](https://www.bing.com/th?id=OHR.ThousandIslands_EN-US7884567746_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OktoberfestSwing_EN-US7916182497_UHD.jpg&w=1000)Today: [Swing carousel at Oktoberfest, Munich, Germany (© LOOK-foto/Alamy)](https://www.bing.com/th?id=OHR.OktoberfestSwing_EN-US7916182497_UHD.jpg)
 <br><br/>

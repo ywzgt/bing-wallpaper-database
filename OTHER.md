@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.OktoberfestSwing_JA-JP7932270954_UHD.jpg&w=1000)今日の壁紙: &nbsp;[テレーゼンヴィーゼの回転ブランコ, ドイツ (© LOOK-foto/Alamy)](https://www.bing.com/th?id=OHR.OktoberfestSwing_JA-JP7932270954_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IceOtters_JA-JP8317371641_UHD.jpg&w=1000)今日の壁紙: &nbsp;[プリンス・ウィリアム湾, 米国 アラスカ州 (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.IceOtters_JA-JP8317371641_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.OktoberfestSwing_FR-FR4212024061_UHD.jpg&w=1000)Today: [Carrousel à balançoires à l’Oktoberfest de Munich, Bavière, Allemagne (© LOOK-foto/Alamy)](https://www.bing.com/th?id=OHR.OktoberfestSwing_FR-FR4212024061_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.OktoberfestSwing_IT-IT3600717607_UHD.jpg&w=1000)Today: [Giostra all'Oktoberfest, Monaco di Baviera, Germania (© LOOK-foto/Alamy)](https://www.bing.com/th?id=OHR.OktoberfestSwing_IT-IT3600717607_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ThousandIslands_PT-BR6464136258_UHD.jpg&w=1000)Today: [Arquipélago das Mil Ilhas, Rio São Lourenço, fronteira EUA-Canadá (© benedek/Getty Images)](https://www.bing.com/th?id=OHR.ThousandIslands_PT-BR6464136258_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OktoberfestSwing_PT-BR6824532260_UHD.jpg&w=1000)Today: [Carrossel de balanço na Oktoberfest, Munique, Baviera, Alemanha (© LOOK-foto/Alamy)](https://www.bing.com/th?id=OHR.OktoberfestSwing_PT-BR6824532260_UHD.jpg)
 <br><br/>
