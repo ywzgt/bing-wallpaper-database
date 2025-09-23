@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AutumnalEquinoxY25_ZH-CN5692548297_UHD.jpg&w=1000)今日图片: &nbsp;[航拍中国江苏省常州翠竹公园 (© Xu Changyu/Getty images)](https://www.bing.com/th?id=OHR.AutumnalEquinoxY25_ZH-CN5692548297_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BearLodge_ZH-CN5880511888_UHD.jpg&w=1000)今日图片: &nbsp;[魔鬼塔国家纪念碑, 怀俄明州，美国 (© Laura Hedien/Getty Images)](https://www.bing.com/th?id=OHR.BearLodge_ZH-CN5880511888_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AspenEquinox_EN-US8237887036_UHD.jpg&w=1000)Today: [Aspen trees during fall, Fishlake National Forest, Utah (© Danita Delimont/Getty Images)](https://www.bing.com/th?id=OHR.AspenEquinox_EN-US8237887036_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_UHD.jpg&w=1000)Today: [Keel-billed toucan in Costa Rica (© Juan Carlos Vindas/Getty Images)](https://www.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_UHD.jpg)
 <br><br/>
