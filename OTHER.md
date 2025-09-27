@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TankLakes_JA-JP1667519475_UHD.jpg&w=1000)今日の壁紙: &nbsp;[タンク・レイクス, 米国 ワシントン州 (© Austin Trigg/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.TankLakes_JA-JP1667519475_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PienzaItaly_JA-JP1964382138_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ピエンツァ, イタリア (© zpagistock/Getty Images)](https://www.bing.com/th?id=OHR.PienzaItaly_JA-JP1964382138_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TankLakes_FR-FR1812673020_UHD.jpg&w=1000)Today: [Lacs Tank, Alpine Lakes Wilderness, chaîne des Cascades, Washington, États-Unis (© Austin Trigg/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.TankLakes_FR-FR1812673020_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TankLakes_IT-IT8921224847_UHD.jpg&w=1000)Today: [Laghi Tank, Alpine Lakes Wilderness, Washington, USA (© Austin Trigg/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.TankLakes_IT-IT8921224847_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AutumnChipmunk_PT-BR7323455735_UHD.jpg&w=1000)Today: [Tâmia-pequena na Floresta Nacional de Kootenai, Montana, EUA (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.AutumnChipmunk_PT-BR7323455735_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TankLakes_PT-BR9433679717_UHD.jpg&w=1000)Today: [Lagos Tank, Região Selvagem dos Lagos Alpinos, Washington, EUA (© Austin Trigg/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.TankLakes_PT-BR9433679717_UHD.jpg)
 <br><br/>
