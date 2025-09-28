@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.PienzaItaly_JA-JP1964382138_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ピエンツァ, イタリア (© zpagistock/Getty Images)](https://www.bing.com/th?id=OHR.PienzaItaly_JA-JP1964382138_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ManekiNeko_JA-JP6063646197_UHD.jpg&w=1000)今日の壁紙: &nbsp;[豪徳寺の招き猫, 東京都 (© Maria S./Alamy Stock Photo)](https://www.bing.com/th?id=OHR.ManekiNeko_JA-JP6063646197_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PienzaItaly_FR-FR1953145437_UHD.jpg&w=1000)Today: [Ville de Pienza, Toscane, Italie (© zpagistock/Getty Images)](https://www.bing.com/th?id=OHR.PienzaItaly_FR-FR1953145437_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PienzaItaly_IT-IT9023162912_UHD.jpg&w=1000)Today: [Pienza, Provincia di Siena, Toscana (© zpagistock/Getty Images)](https://www.bing.com/th?id=OHR.PienzaItaly_IT-IT9023162912_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TankLakes_PT-BR9433679717_UHD.jpg&w=1000)Today: [Lagos Tank, Região Selvagem dos Lagos Alpinos, Washington, EUA (© Austin Trigg/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.TankLakes_PT-BR9433679717_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PienzaItaly_PT-BR0767999929_UHD.jpg&w=1000)Today: [Cidade de Pienza, na Toscana, Itália (© zpagistock/Getty Images)](https://www.bing.com/th?id=OHR.PienzaItaly_PT-BR0767999929_UHD.jpg)
 <br><br/>
