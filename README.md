@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_UHD.jpg&w=1000)今日图片: &nbsp;[托斯卡纳的皮恩扎镇, 意大利 (© zpagistock/Getty Images)](https://www.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_UHD.jpg&w=1000)今日图片: &nbsp;[豪滕镇的彩虹屋, 荷兰 (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TankLakes_EN-US9278332978_UHD.jpg&w=1000)Today: [Tank Lakes, Alpine Lakes Wilderness, Washington (© Austin Trigg/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.TankLakes_EN-US9278332978_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PienzaItaly_EN-US8831227247_UHD.jpg&w=1000)Today: [Town of Pienza in Tuscany, Italy (© zpagistock/Getty Images)](https://www.bing.com/th?id=OHR.PienzaItaly_EN-US8831227247_UHD.jpg)
 <br><br/>
