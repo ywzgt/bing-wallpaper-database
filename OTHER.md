@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ManekiNeko_JA-JP6063646197_UHD.jpg&w=1000)今日の壁紙: &nbsp;[豪徳寺の招き猫, 東京都 (© Maria S./Alamy Stock Photo)](https://www.bing.com/th?id=OHR.ManekiNeko_JA-JP6063646197_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EucalyptusKoala_JA-JP6385601679_UHD.jpg&w=1000)今日の壁紙: &nbsp;[コアラ, オーストラリア (© Jamie Lamb - elusive-images.co.uk/Getty Images)](https://www.bing.com/th?id=OHR.EucalyptusKoala_JA-JP6385601679_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.HoutenHouses_FR-FR2130005193_UHD.jpg&w=1000)Today: [Maisons arc-en-ciel dans la ville de Houten, Pays-Bas (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.HoutenHouses_FR-FR2130005193_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.HoutenHouses_IT-IT9070932054_UHD.jpg&w=1000)Today: [Case arcobaleno nella città di Houten, Paesi Bassi (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.HoutenHouses_IT-IT9070932054_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PienzaItaly_PT-BR0767999929_UHD.jpg&w=1000)Today: [Cidade de Pienza, na Toscana, Itália (© zpagistock/Getty Images)](https://www.bing.com/th?id=OHR.PienzaItaly_PT-BR0767999929_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HoutenHouses_PT-BR1748801440_UHD.jpg&w=1000)Today: [Casas Arco-Íris na cidade de Houten, Países Baixos (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.HoutenHouses_PT-BR1748801440_UHD.jpg)
 <br><br/>
