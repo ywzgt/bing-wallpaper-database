@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.EucalyptusKoala_ZH-CN6942451940_UHD.jpg&w=1000)今日图片: &nbsp;[桉树上的考拉, 大奥特维国家公园, 澳大利亚 (© Jamie Lamb - elusive-images.co.uk/Getty Images)](https://www.bing.com/th?id=OHR.EucalyptusKoala_ZH-CN6942451940_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YosemiteClark_ZH-CN7179533292_UHD.jpg&w=1000)今日图片: &nbsp;[克拉克山脉, 内华达山脉, 约塞米蒂国家公园, 加利福尼亚州, 美国 (© Robb Hirsch/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.YosemiteClark_ZH-CN7179533292_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_UHD.jpg&w=1000)Today: [The Rainbow Houses of Houten, Netherlands (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EucalyptusKoala_EN-US8743417111_UHD.jpg&w=1000)Today: [Koala in a eucalyptus tree, Great Otway National Park, Australia (© Jamie Lamb - elusive-images.co.uk/Getty Images)](https://www.bing.com/th?id=OHR.EucalyptusKoala_EN-US8743417111_UHD.jpg)
 <br><br/>
