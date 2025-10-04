@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.DragonEndeavour_ZH-CN8160066040_UHD.jpg&w=1000)今日图片: &nbsp;[从SpaceX载人龙飞船“奋进号”视角看到的国际空间站主太阳能电池阵列 (© NASA)](https://www.bing.com/th?id=OHR.DragonEndeavour_ZH-CN8160066040_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TeacherOwl_ZH-CN8289875605_UHD.jpg&w=1000)今日图片: &nbsp;[中欧森林里的鬼鸮 (© Ondrej Prosicky/Alamy)](https://www.bing.com/th?id=OHR.TeacherOwl_ZH-CN8289875605_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SkyeHeather_EN-US9221942108_UHD.jpg&w=1000)Today: [Heather growing in Glen Brittle, Isle of Skye, Scotland (© Adam Mowery/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.SkyeHeather_EN-US9221942108_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_UHD.jpg&w=1000)Today: [ISS main solar arrays seen from SpaceX Crew Dragon Endeavour (© NASA)](https://www.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_UHD.jpg)
 <br><br/>
