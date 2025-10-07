@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.RidgwayAspens_ZH-CN8735375502_UHD.jpg&w=1000)今日图片: &nbsp;[里奇韦附近斯内弗尔斯山脚下的秋色, 科罗拉多州, 美国 (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.RidgwayAspens_ZH-CN8735375502_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OctopusCyanea_ZH-CN8948609460_UHD.jpg&w=1000)今日图片: &nbsp;[白日章鱼, 毛伊岛, 夏威夷, 美国 (© Dave Fleetham/plainpicture)](https://www.bing.com/th?id=OHR.OctopusCyanea_ZH-CN8948609460_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AnshunBridge_EN-US0059795497_UHD.jpg&w=1000)Today: [Anshun Bridge illuminated for the Mid-Autumn Festival, Chengdu, China (© Philippe LEJEANVRE/Getty Images)](https://www.bing.com/th?id=OHR.AnshunBridge_EN-US0059795497_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RidgwayAspens_EN-US0136548884_UHD.jpg&w=1000)Today: [Fall colors below Mount Sneffels near Ridgway, Colorado (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.RidgwayAspens_EN-US0136548884_UHD.jpg)
 <br><br/>
