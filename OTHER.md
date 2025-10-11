@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.WoodDuckHen_JA-JP7933266501_UHD.jpg&w=1000)今日の壁紙: &nbsp;[メスのアメリカオシ, 米国 (© ps50ace/iStock/Getty Images)](https://www.bing.com/th?id=OHR.WoodDuckHen_JA-JP7933266501_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SaranacLake_JA-JP8002477019_UHD.jpg&w=1000)今日の壁紙: &nbsp;[サラナック・レイク村, 米国 ニューヨーク州 (© DenisTangneyJr/Getty Images)](https://www.bing.com/th?id=OHR.SaranacLake_JA-JP8002477019_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.WoodDuckHen_FR-FR2128757864_UHD.jpg&w=1000)Today: [Cane branchu, États-Unis (© ps50ace/iStock/Getty Images)](https://www.bing.com/th?id=OHR.WoodDuckHen_FR-FR2128757864_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.LagoLagazuolo_IT-IT9428871019_UHD.jpg&w=1000)Today: [Lago Lagazzuolo, Valmalenco, Valle Valtellina, Lombardia (© Francesco Bergamaschi/Getty Images)](https://www.bing.com/th?id=OHR.LagoLagazuolo_IT-IT9428871019_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MonurikiFiji_PT-BR5100753810_UHD.jpg&w=1000)Today: [Recife de coral ao redor de Monuriki, Ilhas Mamanuca, Fiji (© David Wall/SuperStock)](https://www.bing.com/th?id=OHR.MonurikiFiji_PT-BR5100753810_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WoodDuckHen_PT-BR4872632595_UHD.jpg&w=1000)Today: [Fêmea de pato-carolino, Estados Unidos (© ps50ace/iStock/Getty Images)](https://www.bing.com/th?id=OHR.WoodDuckHen_PT-BR4872632595_UHD.jpg)
 <br><br/>
