@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.OiaSantorini_JA-JP8051360298_UHD.jpg&w=1000)今日の壁紙: &nbsp;[イア村, グリース (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.OiaSantorini_JA-JP8051360298_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RailwayDay2025_JA-JP0346908442_UHD.jpg&w=1000)今日の壁紙: &nbsp;[第一只見川橋梁, 福島県 大沼郡 (© Doctor Egg/Getty Images)](https://www.bing.com/th?id=OHR.RailwayDay2025_JA-JP0346908442_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.HinterseeWaterfall_FR-FR3043490046_UHD.jpg&w=1000)Today: [Gorges de Wimbachklamm, Bavière, Allemagne (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/th?id=OHR.HinterseeWaterfall_FR-FR3043490046_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.HinterseeWaterfall_IT-IT9638907457_UHD.jpg&w=1000)Today: [Cascata a Hintersee, Baviera, Germania (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/th?id=OHR.HinterseeWaterfall_IT-IT9638907457_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DiaCriancas_PT-BR4646526292_UHD.jpg&w=1000)Today: [Balões artesanais de cabaça, Paraty, Rio de Janeiro (© Priscila Zambotto/Getty Images)](https://www.bing.com/th?id=OHR.DiaCriancas_PT-BR4646526292_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HinterseeWaterfall_PT-BR2829623135_UHD.jpg&w=1000)Today: [Desfiladeiro de Wimbachklamm, Baviera, Alemanha (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/th?id=OHR.HinterseeWaterfall_PT-BR2829623135_UHD.jpg)
 <br><br/>
