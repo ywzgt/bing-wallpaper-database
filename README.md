@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.OiaSantorini_ZH-CN0531650189_UHD.jpg&w=1000)今日图片: &nbsp;[伊亚镇，圣托里尼岛，希腊 (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.OiaSantorini_ZH-CN0531650189_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_UHD.jpg&w=1000)今日图片: &nbsp;[紫蜡蘑，西贝克，华盛顿州，美国 (© Danita Delimont/Shutterstock)](https://www.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_UHD.jpg&w=1000)Today: [House on Fire Ruin in Mule Canyon, Cedar Mesa, Utah (© Pete Lomchid/Getty Images)](https://www.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OiaSantorini_EN-US0585833457_UHD.jpg&w=1000)Today: [Village of Oia, Santorini, Greece (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.OiaSantorini_EN-US0585833457_UHD.jpg)
 <br><br/>
