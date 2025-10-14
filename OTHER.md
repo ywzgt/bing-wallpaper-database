@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.RailwayDay2025_JA-JP0346908442_UHD.jpg&w=1000)今日の壁紙: &nbsp;[第一只見川橋梁, 福島県 大沼郡 (© Doctor Egg/Getty Images)](https://www.bing.com/th?id=OHR.RailwayDay2025_JA-JP0346908442_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HinterseeWaterfall_FR-FR3043490046_UHD.jpg&w=1000)Today: [Gorges de Wimbachklamm, Bavière, Allemagne (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/th?id=OHR.HinterseeWaterfall_FR-FR3043490046_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OiaSantorini_FR-FR2366635460_UHD.jpg&w=1000)Today: [Village d’Oia, Santorin, Grèce (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.OiaSantorini_FR-FR2366635460_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HinterseeWaterfall_DE-DE9807935907_UHD.jpg&w=1000)Today: [Wasserfall in der Wimbachklamm, Bayern (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/th?id=OHR.HinterseeWaterfall_DE-DE9807935907_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OiaSantorini_DE-DE3882296731_UHD.jpg&w=1000)Today: [Oia, Santorin, Griechenland (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.OiaSantorini_DE-DE3882296731_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HinterseeWaterfall_ES-ES0526830866_UHD.jpg&w=1000)Today: [Desfiladero Wimbachklamm en el valle Wimbachtal, Ramsau bei Berchtesgaden, Baviera, Alemania (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/th?id=OHR.HinterseeWaterfall_ES-ES0526830866_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OiaSantorini_ES-ES1170312678_UHD.jpg&w=1000)Today: [Pueblo de Oia, Santorini, Grecia (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.OiaSantorini_ES-ES1170312678_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.StarlingBrighton2025_EN-GB5939254897_UHD.jpg&w=1000)Today: [Starling murmuration over the ruins of Brighton's West Pier, England (© Philip Reeve/Photodisc/Getty Images)](https://www.bing.com/th?id=OHR.StarlingBrighton2025_EN-GB5939254897_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OiaSantorini_EN-GB8058945435_UHD.jpg&w=1000)Today: [Village of Oia, Santorini, Greece (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.OiaSantorini_EN-GB8058945435_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HinterseeWaterfall_IT-IT9638907457_UHD.jpg&w=1000)Today: [Cascata a Hintersee, Baviera, Germania (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/th?id=OHR.HinterseeWaterfall_IT-IT9638907457_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OiaSantorini_IT-IT9704470316_UHD.jpg&w=1000)Today: [Villaggio di Oia, Santorini, Grecia (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.OiaSantorini_IT-IT9704470316_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.HinterseeWaterfall_PT-BR2829623135_UHD.jpg&w=1000)Today: [Desfiladeiro de Wimbachklamm, Baviera, Alemanha (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/th?id=OHR.HinterseeWaterfall_PT-BR2829623135_UHD.jpg)
 <br><br/>
