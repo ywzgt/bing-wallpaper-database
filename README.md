@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.RockRiverFalls_ZH-CN6532185546_UHD.jpg&w=1000)今日图片: &nbsp;[罗克河瀑布，上半岛，密歇根州，美国 (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.RockRiverFalls_ZH-CN6532185546_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SilburyHill_ZH-CN6666447580_UHD.jpg&w=1000)今日图片: &nbsp;[西尔布利山的新石器时代遗址，蒂尔斯黑德，威尔特郡，英国 (© dbstockphotoa/Getty Images)](https://www.bing.com/th?id=OHR.SilburyHill_ZH-CN6666447580_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SiberianLynx_EN-US0696336220_UHD.jpg&w=1000)Today: [Eurasian lynx in Siberia (© Mario Plechaty Photograph/Shutterstock)](https://www.bing.com/th?id=OHR.SiberianLynx_EN-US0696336220_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_UHD.jpg&w=1000)Today: [Rock River Falls, Upper Peninsula, Michigan (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_UHD.jpg)
 <br><br/>
