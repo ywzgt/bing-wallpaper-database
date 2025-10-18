@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.SilburyHill_JA-JP0577938785_UHD.jpg&w=1000)今日の壁紙: &nbsp;[シルベリー・ヒル, イングランド (© dbstockphoto/Getty Images)](https://www.bing.com/th?id=OHR.SilburyHill_JA-JP0577938785_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CorsicaSunshine_FR-FR8649215960_UHD.jpg&w=1000)Today: [Lumière du soir sur le village de Speloncato, Corse (© joningall/Getty Images)](https://www.bing.com/th?id=OHR.CorsicaSunshine_FR-FR8649215960_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SilburyHill_FR-FR0576051334_UHD.jpg&w=1000)Today: [Site néolithique de la colline de Silbury, Tilshead, Wiltshire, Angleterre (© dbstockphoto/Getty Images)](https://www.bing.com/th?id=OHR.SilburyHill_FR-FR0576051334_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MettlachAutumn_DE-DE9026182741_UHD.jpg&w=1000)Today: [Blick auf die Saar im Herbst, Saarschleife, Mettlach, Saarland (© Sus Bogaerts/Getty Images)](https://www.bing.com/th?id=OHR.MettlachAutumn_DE-DE9026182741_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SilburyHill_DE-DE8918422000_UHD.jpg&w=1000)Today: [Neolithische Stätte Silbury Hill, Tilshead, Wiltshire, England (© dbstockphoto/Getty Images)](https://www.bing.com/th?id=OHR.SilburyHill_DE-DE8918422000_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RockRiverFalls_ES-ES6474484835_UHD.jpg&w=1000)Today: [Rock River Canyon Wilderness, Península superior de Míchigan, EE. UU. (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.RockRiverFalls_ES-ES6474484835_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SilburyHill_ES-ES9628182073_UHD.jpg&w=1000)Today: [Colina de Silbury, Avebury, Wiltshire, Inglaterra (© dbstockphoto/Getty Images)](https://www.bing.com/th?id=OHR.SilburyHill_ES-ES9628182073_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RockRiverFalls_EN-GB1931975271_UHD.jpg&w=1000)Today: [Rock River Falls, Upper Peninsula, Michigan, United States (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.RockRiverFalls_EN-GB1931975271_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SilburyHill_EN-GB2103957342_UHD.jpg&w=1000)Today: [Neolithic site of Silbury Hill, Tilshead, Wiltshire, England (© dbstockphoto/Getty Images)](https://www.bing.com/th?id=OHR.SilburyHill_EN-GB2103957342_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RockRiverFalls_IT-IT4967817075_UHD.jpg&w=1000)Today: [Rock River Falls, Penisola Superiore, Michigan, USA (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.RockRiverFalls_IT-IT4967817075_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SilburyHill_IT-IT5036622504_UHD.jpg&w=1000)Today: [Sito neolitico di Silbury Hill, Tilshead, Wiltshire, Inghilterra (© dbstockphoto/Getty Images)](https://www.bing.com/th?id=OHR.SilburyHill_IT-IT5036622504_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.RockRiverFalls_PT-BR6243828889_UHD.jpg&w=1000)Today: [Rock River Falls, Península Superior, Michigan, EUA (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.RockRiverFalls_PT-BR6243828889_UHD.jpg)
 <br><br/>
