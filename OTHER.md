@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AppleHarvest_JA-JP0862857490_UHD.jpg&w=1000)今日の壁紙: &nbsp;[収穫時期を迎えたリンゴ, 米国 ミネソタ州 (© Tammi Mild/Getty Images)](https://www.bing.com/th?id=OHR.AppleHarvest_JA-JP0862857490_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HoffmansSloth_JA-JP1255329003_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ホフマンナマケモノ, エクアドル (© Murray Cooper/Minden Pictures)](https://www.bing.com/th?id=OHR.HoffmansSloth_JA-JP1255329003_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AppleHarvest_FR-FR3383399730_UHD.jpg&w=1000)Today: [Pommes prêtes à être récoltées, Minnesota, États-Unis (© Tammi Mild/Getty Images)](https://www.bing.com/th?id=OHR.AppleHarvest_FR-FR3383399730_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AppleHarvest_IT-IT5097872134_UHD.jpg&w=1000)Today: [Melo, Minnesota, USA (© Tammi Mild/Getty Images)](https://www.bing.com/th?id=OHR.AppleHarvest_IT-IT5097872134_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SilburyHill_PT-BR5871845476_UHD.jpg&w=1000)Today: [Sítio neolítico de Silbury Hill em Tilshead, Wiltshire, Inglaterra (© dbstockphoto/Getty Images)](https://www.bing.com/th?id=OHR.SilburyHill_PT-BR5871845476_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AppleHarvest_PT-BR5524058975_UHD.jpg&w=1000)Today: [Macieiras em Minnesota, EUA (© Tammi Mild/Getty Images)](https://www.bing.com/th?id=OHR.AppleHarvest_PT-BR5524058975_UHD.jpg)
 <br><br/>
