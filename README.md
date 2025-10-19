@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AppleHarvest_ZH-CN7317228007_UHD.jpg&w=1000)今日图片: &nbsp;[即将收获的苹果，明尼苏达州，美国 (© Tammi Mild/Getty Images)](https://www.bing.com/th?id=OHR.AppleHarvest_ZH-CN7317228007_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HoffmansSloth_ZH-CN7563408641_UHD.jpg&w=1000)今日图片: &nbsp;[霍氏树懒，厄瓜多尔 (© Murray Cooper/Minden Pictures)](https://www.bing.com/th?id=OHR.HoffmansSloth_ZH-CN7563408641_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SilburyHill_EN-US2485144120_UHD.jpg&w=1000)Today: [Neolithic site of Silbury Hill, Tilshead, Wiltshire, England (© dbstockphoto/Getty Images)](https://www.bing.com/th?id=OHR.SilburyHill_EN-US2485144120_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AppleHarvest_EN-US2977882687_UHD.jpg&w=1000)Today: [Apples ready for harvest, Minnesota (© Tammi Mild/Getty Images)](https://www.bing.com/th?id=OHR.AppleHarvest_EN-US2977882687_UHD.jpg)
 <br><br/>
