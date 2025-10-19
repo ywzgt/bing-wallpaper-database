@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.AppleHarvest_JA-JP0862857490_UHD.jpg&w=1000)今日の壁紙: &nbsp;[収穫時期を迎えたリンゴ, 米国 ミネソタ州 (© Tammi Mild/Getty Images)](https://www.bing.com/th?id=OHR.AppleHarvest_JA-JP0862857490_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SilburyHill_FR-FR0576051334_UHD.jpg&w=1000)Today: [Site néolithique de la colline de Silbury, Tilshead, Wiltshire, Angleterre (© dbstockphoto/Getty Images)](https://www.bing.com/th?id=OHR.SilburyHill_FR-FR0576051334_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AppleHarvest_FR-FR3383399730_UHD.jpg&w=1000)Today: [Pommes prêtes à être récoltées, Minnesota, États-Unis (© Tammi Mild/Getty Images)](https://www.bing.com/th?id=OHR.AppleHarvest_FR-FR3383399730_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SilburyHill_DE-DE8918422000_UHD.jpg&w=1000)Today: [Neolithische Stätte Silbury Hill, Tilshead, Wiltshire, England (© dbstockphoto/Getty Images)](https://www.bing.com/th?id=OHR.SilburyHill_DE-DE8918422000_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AppleHarvest_DE-DE2705439483_UHD.jpg&w=1000)Today: [Erntereife Äpfel, Minnesota, USA (© Tammi Mild/Getty Images)](https://www.bing.com/th?id=OHR.AppleHarvest_DE-DE2705439483_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SilburyHill_ES-ES9628182073_UHD.jpg&w=1000)Today: [Colina de Silbury, Avebury, Wiltshire, Inglaterra (© dbstockphoto/Getty Images)](https://www.bing.com/th?id=OHR.SilburyHill_ES-ES9628182073_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JaenCathedral_ES-ES4511407655_UHD.jpg&w=1000)Today: [Catedral de la Asunción, Jaén, Andalucía, España (© JoseIgnacioSoto/Getty Images)](https://www.bing.com/th?id=OHR.JaenCathedral_ES-ES4511407655_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SilburyHill_EN-GB2103957342_UHD.jpg&w=1000)Today: [Neolithic site of Silbury Hill, Tilshead, Wiltshire, England (© dbstockphoto/Getty Images)](https://www.bing.com/th?id=OHR.SilburyHill_EN-GB2103957342_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AppleHarvest_EN-GB2257227722_UHD.jpg&w=1000)Today: [Apples ready for harvest, Minnesota, United States (© Tammi Mild/Getty Images)](https://www.bing.com/th?id=OHR.AppleHarvest_EN-GB2257227722_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SilburyHill_IT-IT5036622504_UHD.jpg&w=1000)Today: [Sito neolitico di Silbury Hill, Tilshead, Wiltshire, Inghilterra (© dbstockphoto/Getty Images)](https://www.bing.com/th?id=OHR.SilburyHill_IT-IT5036622504_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AppleHarvest_IT-IT5097872134_UHD.jpg&w=1000)Today: [Melo, Minnesota, USA (© Tammi Mild/Getty Images)](https://www.bing.com/th?id=OHR.AppleHarvest_IT-IT5097872134_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SilburyHill_PT-BR5871845476_UHD.jpg&w=1000)Today: [Sítio neolítico de Silbury Hill em Tilshead, Wiltshire, Inglaterra (© dbstockphoto/Getty Images)](https://www.bing.com/th?id=OHR.SilburyHill_PT-BR5871845476_UHD.jpg)
 <br><br/>
