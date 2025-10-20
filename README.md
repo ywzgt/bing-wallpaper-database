@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.HoffmansSloth_ZH-CN7563408641_UHD.jpg&w=1000)今日图片: &nbsp;[霍氏树懒，厄瓜多尔 (© Murray Cooper/Minden Pictures)](https://www.bing.com/th?id=OHR.HoffmansSloth_ZH-CN7563408641_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ToucanForest_ZH-CN0072036253_UHD.jpg&w=1000)今日图片: &nbsp;[哥斯达黎加的厚嘴巨嘴鸟 (© Juan Carlos Vindas/Getty Images)](https://www.bing.com/th?id=OHR.ToucanForest_ZH-CN0072036253_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AppleHarvest_EN-US2977882687_UHD.jpg&w=1000)Today: [Apples ready for harvest, Minnesota (© Tammi Mild/Getty Images)](https://www.bing.com/th?id=OHR.AppleHarvest_EN-US2977882687_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HoffmansSloth_EN-US3030106938_UHD.jpg&w=1000)Today: [A Hoffmann's two-toed sloth in Ecuador (© Murray Cooper/Minden Pictures)](https://www.bing.com/th?id=OHR.HoffmansSloth_EN-US3030106938_UHD.jpg)
 <br><br/>
