@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_UHD.jpg&w=1000)今日图片: &nbsp;[贝洛格拉齐克石林，保加利亚 (© EvaL Miko/Shutterstock)](https://www.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_UHD.jpg&w=1000)今日图片: &nbsp;[雪豹和她的幼崽, 斯皮提谷, 寒冷沙漠生物圈保护区, 印度 (© Oriol Alamany/naturepl.com)](https://www.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DiyaDiwali_EN-US3108369974_UHD.jpg&w=1000)Today: [A diya at the Golden Temple during Diwali, Amritsar, India (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/th?id=OHR.DiyaDiwali_EN-US3108369974_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BulgariaRocks_EN-US3184562282_UHD.jpg&w=1000)Today: [Belogradchik Rocks, Bulgaria (© EvaL Miko/Shutterstock)](https://www.bing.com/th?id=OHR.BulgariaRocks_EN-US3184562282_UHD.jpg)
 <br><br/>
