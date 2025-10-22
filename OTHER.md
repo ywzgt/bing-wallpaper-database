@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.HeianDay2025_JA-JP1910457007_UHD.jpg&w=1000)今日の壁紙: &nbsp;[平安神宮の泰平閣, 京都府 京都市 (© Trevor Chriss/Alamy)](https://www.bing.com/th?id=OHR.HeianDay2025_JA-JP1910457007_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AomoriAutumn2025_JA-JP3668853549_UHD.jpg&w=1000)今日の壁紙: &nbsp;[八甲田山の紅葉, 青森県青森市 (© Mekdet/Getty images)](https://www.bing.com/th?id=OHR.AomoriAutumn2025_JA-JP3668853549_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BulgariaRocks_FR-FR6124284800_UHD.jpg&w=1000)Today: [Rochers de Belogradchik, Bulgarie (© EvaL Miko/Shutterstock)](https://www.bing.com/th?id=OHR.BulgariaRocks_FR-FR6124284800_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BulgariaRocks_IT-IT4526713367_UHD.jpg&w=1000)Today: [Rocce di Belogradchik, Bulgaria (© EvaL Miko/Shutterstock)](https://www.bing.com/th?id=OHR.BulgariaRocks_IT-IT4526713367_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DiyaDiwali_PT-BR3829249285_UHD.jpg&w=1000)Today: [Lamparina no Templo Dourado durante o Diwali, Amritsar, Índia (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/th?id=OHR.DiyaDiwali_PT-BR3829249285_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BulgariaRocks_PT-BR2901045290_UHD.jpg&w=1000)Today: [Rochas de Belogradchik, Bulgária (© EvaL Miko/Shutterstock)](https://www.bing.com/th?id=OHR.BulgariaRocks_PT-BR2901045290_UHD.jpg)
 <br><br/>
