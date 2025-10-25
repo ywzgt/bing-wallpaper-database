@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MartimoaapaFinland_ZH-CN1066271356_UHD.jpg&w=1000)今日图片: &nbsp;[马蒂莫阿帕沼泽保护区泥炭地鸟瞰图, 芬兰 (© romikatarina/Shutterstock)](https://www.bing.com/th?id=OHR.MartimoaapaFinland_ZH-CN1066271356_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_UHD.jpg&w=1000)今日图片: &nbsp;[北卡罗来纳州的南瓜农场, 美国 (© Matthew H Irvin/Getty Images)](https://www.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.QueenMary_EN-US3331250680_UHD.jpg&w=1000)Today: [Night view of the RMS Queen Mary, Long Beach, California (© Kit Leong/Shutterstock)](https://www.bing.com/th?id=OHR.QueenMary_EN-US3331250680_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg&w=1000)Today: [Aerial view of peatland in Martimoaapa Mire Reserve, Finland (© romikatarina/Shutterstock)](https://www.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg)
 <br><br/>
