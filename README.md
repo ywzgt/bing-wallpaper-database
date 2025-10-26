@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_UHD.jpg&w=1000)今日图片: &nbsp;[北卡罗来纳州的南瓜农场, 美国 (© Matthew H Irvin/Getty Images)](https://www.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AutumnColorY25_ZH-CN1551135398_UHD.jpg&w=1000)今日图片: &nbsp;[被胡杨树围绕着的湖, 金塔县, 酒泉, 甘肃, 中国 (© Feng Wei Photography/Getty images)](https://www.bing.com/th?id=OHR.AutumnColorY25_ZH-CN1551135398_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg&w=1000)Today: [Aerial view of peatland in Martimoaapa Mire Reserve, Finland (© romikatarina/Shutterstock)](https://www.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_UHD.jpg&w=1000)Today: [Pumpkin farm in North Carolina (© Matthew H Irvin/Getty Images)](https://www.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_UHD.jpg)
 <br><br/>
