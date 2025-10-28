@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TepliceRocks_ZH-CN1785316311_UHD.jpg&w=1000)今日图片: &nbsp;[安德尔施帕赫-特普利采岩石林的哥特式拱门, 捷克 (© Kseniya_Milner/Getty Images)](https://www.bing.com/th?id=OHR.TepliceRocks_ZH-CN1785316311_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FanalForest_ZH-CN2203572101_UHD.jpg&w=1000)今日图片: &nbsp;[法纳尔森林里的古老月桂树，马德拉群岛，葡萄牙 (© Lukas Jonaitis/Shutterstock)](https://www.bing.com/th?id=OHR.FanalForest_ZH-CN2203572101_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AfricanRaven_EN-US4057369898_UHD.jpg&w=1000)Today: [Thick-billed raven, Simien Mountains, Ethiopia (© Ignacio Yufera/FLPA/Minden Pictures)](https://www.bing.com/th?id=OHR.AfricanRaven_EN-US4057369898_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TepliceRocks_EN-US4098225022_UHD.jpg&w=1000)Today: [The Gothic Gate in the Adršpach-Teplice Rocks, Czechia (© Kseniya_Milner/Getty Images)](https://www.bing.com/th?id=OHR.TepliceRocks_EN-US4098225022_UHD.jpg)
 <br><br/>
