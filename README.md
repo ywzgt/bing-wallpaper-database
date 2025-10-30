@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.PushkarFair_ZH-CN2069143641_UHD.jpg&w=1000)今日图片: &nbsp;[杰伊瑟尔梅尔的骆驼, 拉贾斯坦邦, 印度 (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.PushkarFair_ZH-CN2069143641_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BranCastle_ZH-CN3879660917_UHD.jpg&w=1000)今日图片: &nbsp;[布兰城堡入口, 布拉索夫, 罗马尼亚 (© blue sky in my pocket/Getty Images)](https://www.bing.com/th?id=OHR.BranCastle_ZH-CN3879660917_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.FanalForest_EN-US4405104404_UHD.jpg&w=1000)Today: [Ancient til trees in Fanal Forest, island of Madeira, Portugal (© Lukas Jonaitis/Shutterstock)](https://www.bing.com/th?id=OHR.FanalForest_EN-US4405104404_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PushkarFair_EN-US4430814252_UHD.jpg&w=1000)Today: [Camels at Jaisalmer, Rajasthan, India (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.PushkarFair_EN-US4430814252_UHD.jpg)
 <br><br/>
