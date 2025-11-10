@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_UHD.jpg&w=1000)今日图片: &nbsp;[土拨鼠镇的黑尾土拨鼠，劣地国家公园，南达科他州，美国 (© Greg Vaughn/Getty Images)](https://www.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ExternsteineSunset_ZH-CN4190155102_UHD.jpg&w=1000)今日图片: &nbsp;[条顿堡森林的伊克斯坦岩石层，德国 (© Michael Sroka/Getty Images)](https://www.bing.com/th?id=OHR.ExternsteineSunset_ZH-CN4190155102_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LagoonNebula_EN-US7186308623_UHD.jpg&w=1000)Today: [Interstellar clouds in the Lagoon Nebula, captured by the Hubble Space Telescope (© ESA/NASA)](https://www.bing.com/th?id=OHR.LagoonNebula_EN-US7186308623_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PrairieDogTown_EN-US6854295076_UHD.jpg&w=1000)Today: [Black-tailed prairie dogs at Roberts Prairie Dog Town, Badlands National Park, South Dakota (© Greg Vaughn/Getty Images)](https://www.bing.com/th?id=OHR.PrairieDogTown_EN-US6854295076_UHD.jpg)
 <br><br/>
