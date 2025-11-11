@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ExternsteineSunset_ZH-CN4190155102_UHD.jpg&w=1000)今日图片: &nbsp;[条顿堡森林的伊克斯坦岩石层，德国 (© Michael Sroka/Getty Images)](https://www.bing.com/th?id=OHR.ExternsteineSunset_ZH-CN4190155102_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ColosseumRome_ZH-CN4305271578_UHD.jpg&w=1000)今日图片: &nbsp;[斗兽场鸟瞰图，罗马，意大利 (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/th?id=OHR.ColosseumRome_ZH-CN4305271578_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PrairieDogTown_EN-US6854295076_UHD.jpg&w=1000)Today: [Black-tailed prairie dogs at Roberts Prairie Dog Town, Badlands National Park, South Dakota (© Greg Vaughn/Getty Images)](https://www.bing.com/th?id=OHR.PrairieDogTown_EN-US6854295076_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MarineMemorial_EN-US6899836690_UHD.jpg&w=1000)Today: [Marine Corps War Memorial, Arlington, Virginia (© f11photo/Shutterstock)](https://www.bing.com/th?id=OHR.MarineMemorial_EN-US6899836690_UHD.jpg)
 <br><br/>
