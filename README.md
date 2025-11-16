@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.LyonTraboules_ZH-CN8476826325_UHD.jpg&w=1000)今日图片: &nbsp;[里昂的一条穿廊，法国 (© TPopova/Getty Images) 法国](https://www.bing.com/th?id=OHR.LyonTraboules_ZH-CN8476826325_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ShenandoahTrail_ZH-CN8626326726_UHD.jpg&w=1000)今日图片: &nbsp;[谢南多厄国家公园的秋色，弗吉尼亚州，美国 (© Michael Ver Sprill/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahTrail_ZH-CN8626326726_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.IrohazakaAutumn_EN-US9137140715_UHD.jpg&w=1000)Today: [Irohazaka Road in fall, Nikko, Tochigi, Japan (© oneinchpunch/Shutterstock)](https://www.bing.com/th?id=OHR.IrohazakaAutumn_EN-US9137140715_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LyonTraboules_EN-US9432784340_UHD.jpg&w=1000)Today: [A traboule in Lyon, France (© TPopova/Getty Images)](https://www.bing.com/th?id=OHR.LyonTraboules_EN-US9432784340_UHD.jpg)
 <br><br/>
