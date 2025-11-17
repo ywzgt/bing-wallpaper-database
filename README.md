@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ShenandoahTrail_ZH-CN8626326726_UHD.jpg&w=1000)今日图片: &nbsp;[谢南多厄国家公园的秋色，弗吉尼亚州，美国 (© Michael Ver Sprill/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahTrail_ZH-CN8626326726_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AutumnMerganser_ZH-CN1320438449_UHD.jpg&w=1000)今日图片: &nbsp;[雄性棕胁秋沙鸭，俄勒冈州，美国 (© Eric Vogt/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AutumnMerganser_ZH-CN1320438449_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LyonTraboules_EN-US9432784340_UHD.jpg&w=1000)Today: [A traboule in Lyon, France (© TPopova/Getty Images)](https://www.bing.com/th?id=OHR.LyonTraboules_EN-US9432784340_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ShenandoahTrail_EN-US8964689271_UHD.jpg&w=1000)Today: [Fall colors in Shenandoah National Park, Virginia (© Michael Ver Sprill/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahTrail_EN-US8964689271_UHD.jpg)
 <br><br/>
