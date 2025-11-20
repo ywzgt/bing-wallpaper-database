@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SaypeGeneva_JA-JP5293768953_UHD.jpg&w=1000)今日の壁紙: &nbsp;[Saype によるランドアート「World in progress」, スイス (© Valentin Flauraud/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.SaypeGeneva_JA-JP5293768953_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SealWaving_JA-JP5482157523_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ゼニガタアザラシ, 米国 ニューヨーク州 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.SealWaving_JA-JP5482157523_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SaypeGeneva_FR-FR0826071049_UHD.jpg&w=1000)Today: [L’artiste Saype avec son œuvre de land art au siège de l’ONU, Genève, Suisse (© Valentin Flauraud/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.SaypeGeneva_FR-FR0826071049_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SaypeGeneva_ES-ES5813016129_UHD.jpg&w=1000)Today: [El artista Saype posa con su obra "World in Progress" en la sede de la ONU, Ginebra, Suiza (© Valentin Flauraud/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.SaypeGeneva_ES-ES5813016129_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BudapestParliament_EN-GB3462285989_UHD.jpg&w=1000)Today: [Hungarian Parliament Building, Budapest, Hungary (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.BudapestParliament_EN-GB3462285989_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SaypeGeneva_EN-GB3688069566_UHD.jpg&w=1000)Today: [Artist Saype poses with his land art painting at UN Headquarters, Geneva, Switzerland (© Valentin Flauraud/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.SaypeGeneva_EN-GB3688069566_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SaypeGeneva_IT-IT0227683943_UHD.jpg&w=1000)Today: [Dipinto di Saype, sede delle Nazioni Unite, Ginevra, Svizzera (© Valentin Flauraud/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.SaypeGeneva_IT-IT0227683943_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BudapestParliament_PT-BR5218931767_UHD.jpg&w=1000)Today: [Parlamento de Budapeste, Hungria (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.BudapestParliament_PT-BR5218931767_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SaypeGeneva_PT-BR1234031890_UHD.jpg&w=1000)Today: [Arte de Saype na sede da ONU, Genebra, Suíça (© Valentin Flauraud/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.SaypeGeneva_PT-BR1234031890_UHD.jpg)
 <br><br/>

@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.PondCave_ZH-CN2304770650_UHD.jpg&w=1000)今日图片: &nbsp;[查帕达迪亚曼蒂纳国家公园，巴伊亚州，巴西 (© Marcio Dufranc/Getty Images)](https://www.bing.com/th?id=OHR.PondCave_ZH-CN2304770650_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SealWaving_ZH-CN2467723602_UHD.jpg&w=1000)今日图片: &nbsp;[罗伯特·摩西州立公园的港海豹, 长岛, 纽约, 美国 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.SealWaving_ZH-CN2467723602_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BudapestParliament_EN-US5929195878_UHD.jpg&w=1000)Today: [Hungarian Parliament Building, Budapest, Hungary (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.BudapestParliament_EN-US5929195878_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SaypeGeneva_EN-US6121087903_UHD.jpg&w=1000)Today: [Artist Saype poses with his land art painting at UN Headquarters, Geneva, Switzerland (© Valentin Flauraud/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.SaypeGeneva_EN-US6121087903_UHD.jpg)
 <br><br/>
