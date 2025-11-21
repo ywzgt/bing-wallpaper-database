@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SealWaving_ZH-CN2467723602_UHD.jpg&w=1000)今日图片: &nbsp;[罗伯特·摩西州立公园的港海豹, 长岛, 纽约, 美国 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.SealWaving_ZH-CN2467723602_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LeshanBuddha_ZH-CN2804271540_UHD.jpg&w=1000)今日图片: &nbsp;[乐山大佛, 四川, 中国 (© www.anotherdayattheoffice.org/Getty Images)](https://www.bing.com/th?id=OHR.LeshanBuddha_ZH-CN2804271540_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SaypeGeneva_EN-US6121087903_UHD.jpg&w=1000)Today: [Artist Saype poses with his land art painting at UN Headquarters, Geneva, Switzerland (© Valentin Flauraud/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.SaypeGeneva_EN-US6121087903_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SealWaving_EN-US6277930581_UHD.jpg&w=1000)Today: [Harbor seals at Robert Moses State Park, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.SealWaving_EN-US6277930581_UHD.jpg)
 <br><br/>
