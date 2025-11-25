@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TreviFountain_JA-JP7108167891_UHD.jpg&w=1000)今日の壁紙: &nbsp;[トレヴィの泉, イタリア (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/th?id=OHR.TreviFountain_JA-JP7108167891_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TamagawaHotspring2025_JA-JP7774958074_UHD.jpg&w=1000)今日の壁紙: &nbsp;[玉川温泉, 秋田県 仙北市 (© jiraphoto/Shutterstock)](https://www.bing.com/th?id=OHR.TamagawaHotspring2025_JA-JP7774958074_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TreviFountain_FR-FR3611871379_UHD.jpg&w=1000)Today: [La fontaine de Trevi, Rome, Italie (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/th?id=OHR.TreviFountain_FR-FR3611871379_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TreviFountain_ES-ES1601085402_UHD.jpg&w=1000)Today: [Fontana di Trevi en Roma, Italia (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/th?id=OHR.TreviFountain_ES-ES1601085402_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GwailorFort_EN-GB4326585718_UHD.jpg&w=1000)Today: [Gwalior Fort, Madhya Pradesh, India (© ImagesofIndia/Shutterstock)](https://www.bing.com/th?id=OHR.GwailorFort_EN-GB4326585718_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TreviFountain_EN-GB4495201299_UHD.jpg&w=1000)Today: [The Trevi Fountain in Rome, Italy (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/th?id=OHR.TreviFountain_EN-GB4495201299_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TreviFountain_IT-IT0711532577_UHD.jpg&w=1000)Today: [Fontana di Trevi, Rione Trevi, Roma (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/th?id=OHR.TreviFountain_IT-IT0711532577_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TreviFountain_IT-IT4333845146_UHD.jpg&w=1000)Today: [Fontana di Trevi, Rione Trevi, Roma (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/th?id=OHR.TreviFountain_IT-IT4333845146_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GwailorFort_PT-BR2755555056_UHD.jpg&w=1000)Today: [Forte de Gwalior, Madhya Pradesh, Índia (© ImagesofIndia/Shutterstock)](https://www.bing.com/th?id=OHR.GwailorFort_PT-BR2755555056_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TreviFountain_PT-BR3096421017_UHD.jpg&w=1000)Today: [Fontana di Trevi, Roma, Itália (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/th?id=OHR.TreviFountain_PT-BR3096421017_UHD.jpg)
 <br><br/>
