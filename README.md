@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.OliveGrove_ZH-CN7054006944_UHD.jpg&w=1000)今日图片: &nbsp;[特拉蒙塔纳山脉的橄榄园, 马略卡岛, 巴利阿里群岛, 西班牙 (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.OliveGrove_ZH-CN7054006944_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PierOfEastbourne2025_ZH-CN7178301269_UHD.jpg&w=1000)今日图片: &nbsp;[伊斯特本码头, 东萨塞克斯郡, 英格兰 (© Tolga_TEZCAN/Getty Images)](https://www.bing.com/th?id=OHR.PierOfEastbourne2025_ZH-CN7178301269_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TreviFountain_EN-US6800145474_UHD.jpg&w=1000)Today: [The Trevi Fountain in Rome, Italy (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/th?id=OHR.TreviFountain_EN-US6800145474_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OliveGrove_EN-US7076835672_UHD.jpg&w=1000)Today: [Olive orchard in the Serra de Tramuntana, Mallorca, Balearic Islands, Spain (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.OliveGrove_EN-US7076835672_UHD.jpg)
 <br><br/>
