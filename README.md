@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.DeerVeluwe_ZH-CN1438758687_UHD.jpg&w=1000)今日图片: &nbsp;[荷兰梵高国家森林公园的马鹿雄鹿, 荷兰 (© CreativeNature_nl/Getty Images)](https://www.bing.com/th?id=OHR.DeerVeluwe_ZH-CN1438758687_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LeipzigMarket_ZH-CN1517513161_UHD.jpg&w=1000)今日图片: &nbsp;[莱比锡圣诞集市, 德国 (© Krzysztof Baranowski/Getty Images)](https://www.bing.com/th?id=OHR.LeipzigMarket_ZH-CN1517513161_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ConchaBelt_EN-US6625864424_UHD.jpg&w=1000)Today: [Collection of silver Native American concho belts, Santa Fe, New Mexico (© julien mcroberts/Shutterstock)](https://www.bing.com/th?id=OHR.ConchaBelt_EN-US6625864424_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DeerVeluwe_EN-US6795108723_UHD.jpg&w=1000)Today: [Red deer stag in De Hoge Veluwe National Park, Netherlands (© CreativeNature_nl/Getty Images)](https://www.bing.com/th?id=OHR.DeerVeluwe_EN-US6795108723_UHD.jpg)
 <br><br/>
