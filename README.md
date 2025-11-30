@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.LeipzigMarket_ZH-CN1517513161_UHD.jpg&w=1000)今日图片: &nbsp;[莱比锡圣诞集市, 德国 (© Krzysztof Baranowski/Getty Images)](https://www.bing.com/th?id=OHR.LeipzigMarket_ZH-CN1517513161_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AntarcticArch_ZH-CN1622701432_UHD.jpg&w=1000)今日图片: &nbsp;[冰山上天然形成的拱门, 南极洲 (© Gabrielle/Adobe Stock)](https://www.bing.com/th?id=OHR.AntarcticArch_ZH-CN1622701432_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DeerVeluwe_EN-US6795108723_UHD.jpg&w=1000)Today: [Red deer stag in De Hoge Veluwe National Park, Netherlands (© CreativeNature_nl/Getty Images)](https://www.bing.com/th?id=OHR.DeerVeluwe_EN-US6795108723_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg&w=1000)Today: [Christmas market in Leipzig, Germany (© Krzysztof Baranowski/Getty Images)](https://www.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg)
 <br><br/>
