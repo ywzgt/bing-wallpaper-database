@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AntarcticArch_ZH-CN1622701432_UHD.jpg&w=1000)今日图片: &nbsp;[冰山上天然形成的拱门, 南极洲 (© Gabrielle/Adobe Stock)](https://www.bing.com/th?id=OHR.AntarcticArch_ZH-CN1622701432_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WillowLake_ZH-CN9798614021_UHD.jpg&w=1000)今日图片: &nbsp;[柳树湖与布莱克本山, 兰格尔－圣伊利亚斯国家公园暨保护区, 阿拉斯加州, 美国 (© Patrick J. Endres/Getty Images)](https://www.bing.com/th?id=OHR.WillowLake_ZH-CN9798614021_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg&w=1000)Today: [Christmas market in Leipzig, Germany (© Krzysztof Baranowski/Getty Images)](https://www.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AntarcticArch_EN-US6560308300_UHD.jpg&w=1000)Today: [Natural arch carved in an iceberg, Antarctica (© Gabrielle/Adobe Stock)](https://www.bing.com/th?id=OHR.AntarcticArch_EN-US6560308300_UHD.jpg)
 <br><br/>
