@@ -1,3 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.WillowLake_JA-JP5149786689_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ウィロー湖とブラックバーン山, 米国 アラスカ州 (© Patrick J. Endres/Getty Images)](https://www.bing.com/th?id=OHR.WillowLake_JA-JP5149786689_UHD.jpg)
 <br><br/>
+![](https://www.bing.com/th?id=OHR.WillowLake_FR-FR7610126878_UHD.jpg&w=1000)Today: [Willow Lake et le mont Blackburn, Parc national et réserve de Wrangell–Saint-Élie, Alaska, États-Unis (© Patrick J. Endres/Getty Images)](https://www.bing.com/th?id=OHR.WillowLake_FR-FR7610126878_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.WillowLake_DE-DE5594196403_UHD.jpg&w=1000)Today: [Willow Lake und Mount Blackburn, Wrangell-St.-Elias-Nationalpark und Schutzgebiet, Alaska, USA (© Patrick J. Endres/Getty Images)](https://www.bing.com/th?id=OHR.WillowLake_DE-DE5594196403_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.BosqueCranes_ES-ES1308288145_UHD.jpg&w=1000)Today: [Grullas canadienses, Refugio Nacional de Vida Silvestre Bosque del Apache, Nuevo México, EE. UU. (© Jack Dykinga/Minden Pictures)](https://www.bing.com/th?id=OHR.BosqueCranes_ES-ES1308288145_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.AntarcticArch_EN-GB5572434301_UHD.jpg&w=1000)Today: [Natural arch carved in an iceberg, Antarctica (© Gabrielle/Adobe Stock)](https://www.bing.com/th?id=OHR.AntarcticArch_EN-GB5572434301_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.WillowLake_IT-IT2902290451_UHD.jpg&w=1000)Today: [Lago Willow e Monte Blackburn, Parco Nazionale e Riserva di Wrangell-St. Elias, Alaska, USA (© Patrick J. Endres/Getty Images)](https://www.bing.com/th?id=OHR.WillowLake_IT-IT2902290451_UHD.jpg)
+<br><br/>
+![](https://www.bing.com/th?id=OHR.AntarcticArch_PT-BR0722727107_UHD.jpg&w=1000)Today: [Arco natural esculpido em um iceberg, Antártida (© Gabrielle/Adobe Stock)](https://www.bing.com/th?id=OHR.AntarcticArch_PT-BR0722727107_UHD.jpg)
+<br><br/>
