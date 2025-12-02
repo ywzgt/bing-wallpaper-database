@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.WillowLake_ZH-CN9798614021_UHD.jpg&w=1000)今日图片: &nbsp;[柳树湖与布莱克本山, 兰格尔－圣伊利亚斯国家公园暨保护区, 阿拉斯加州, 美国 (© Patrick J. Endres/Getty Images)](https://www.bing.com/th?id=OHR.WillowLake_ZH-CN9798614021_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BosqueCranes_ZH-CN1838488224_UHD.jpg&w=1000)今日图片: &nbsp;[日出时的沙丘鹤, ‌阿帕奇森林国家野生动物保护区, 新墨西哥州, 美国 (© Jack Dykinga/Minden Pictures)](https://www.bing.com/th?id=OHR.BosqueCranes_ZH-CN1838488224_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AntarcticArch_EN-US6560308300_UHD.jpg&w=1000)Today: [Natural arch carved in an iceberg, Antarctica (© Gabrielle/Adobe Stock)](https://www.bing.com/th?id=OHR.AntarcticArch_EN-US6560308300_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WillowLake_EN-US6664756735_UHD.jpg&w=1000)Today: [Willow Lake and Mount Blackburn, Wrangell-St. Elias National Park and Preserve, Alaska (© Patrick J. Endres/Getty Images)](https://www.bing.com/th?id=OHR.WillowLake_EN-US6664756735_UHD.jpg)
 <br><br/>
