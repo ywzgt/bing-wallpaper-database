@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.CheetahMound_ZH-CN1970221812_UHD.jpg&w=1000)今日图片: &nbsp;[马赛马拉国家保护区的猎豹, 纳罗克, 肯尼亚 (© Andy Rouse/naturepl.com)](https://www.bing.com/th?id=OHR.CheetahMound_ZH-CN1970221812_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CopanRuins_ZH-CN2157795324_UHD.jpg&w=1000)今日图片: &nbsp;[科潘的玛雅遗址，洪都拉斯 (© diegograndi/Getty Images)](https://www.bing.com/th?id=OHR.CopanRuins_ZH-CN2157795324_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BosqueCranes_EN-US6752028797_UHD.jpg&w=1000)Today: [Sandhill cranes at sunrise, Bosque del Apache National Wildlife Refuge, New Mexico (© Jack Dykinga/Minden Pictures)](https://www.bing.com/th?id=OHR.BosqueCranes_EN-US6752028797_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CheetahMound_EN-US5447540393_UHD.jpg&w=1000)Today: [Cheetah in Maasai Mara National Reserve, Narok, Kenya (© Andy Rouse/naturepl.com)](https://www.bing.com/th?id=OHR.CheetahMound_EN-US5447540393_UHD.jpg)
 <br><br/>
