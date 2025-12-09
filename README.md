@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.LlamaDay_ZH-CN2646855786_UHD.jpg&w=1000)今日图片: &nbsp;[原驼，北角，瓦尔德斯半岛, 阿根廷 (© Sylvain Cordier/naturepl.com)](https://www.bing.com/th?id=OHR.LlamaDay_ZH-CN2646855786_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CordobaCathedral_ZH-CN4603063077_UHD.jpg&w=1000)今日图片: &nbsp;[科尔多瓦清真寺大教堂的内部，安达卢西亚，西班牙 (© Elena Zolotova/Getty Images)](https://www.bing.com/th?id=OHR.CordobaCathedral_ZH-CN4603063077_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ComoChristmas_EN-US5867954466_UHD.jpg&w=1000)Today: [Christmas lights in Domaso, Lake Como, Italy (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.ComoChristmas_EN-US5867954466_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LlamaDay_EN-US5971354659_UHD.jpg&w=1000)Today: [Guanaco in Punta Norte, Argentina (© Sylvain Cordier/naturepl.com)](https://www.bing.com/th?id=OHR.LlamaDay_EN-US5971354659_UHD.jpg)
 <br><br/>
