@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.CordobaCathedral_ZH-CN4603063077_UHD.jpg&w=1000)今日图片: &nbsp;[科尔多瓦清真寺大教堂的内部，安达卢西亚，西班牙 (© Elena Zolotova/Getty Images)](https://www.bing.com/th?id=OHR.CordobaCathedral_ZH-CN4603063077_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EverestGlow_ZH-CN4985720231_UHD.jpg&w=1000)今日图片: &nbsp;[从伦佐拉山口眺望珠穆朗玛峰日落时分的峰顶，尼泊尔 (© shoults/Alamy)](https://www.bing.com/th?id=OHR.EverestGlow_ZH-CN4985720231_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LlamaDay_EN-US5971354659_UHD.jpg&w=1000)Today: [Guanaco in Punta Norte, Argentina (© Sylvain Cordier/naturepl.com)](https://www.bing.com/th?id=OHR.LlamaDay_EN-US5971354659_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_UHD.jpg&w=1000)Today: [Interior of the Mosque-Cathedral of Córdoba, Andalusia, Spain (© Elena Zolotova/Getty Images)](https://www.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_UHD.jpg)
 <br><br/>
