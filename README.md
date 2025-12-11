@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.EverestGlow_ZH-CN4985720231_UHD.jpg&w=1000)今日图片: &nbsp;[从伦佐拉山口眺望珠穆朗玛峰日落时分的峰顶，尼泊尔 (© shoults/Alamy)](https://www.bing.com/th?id=OHR.EverestGlow_ZH-CN4985720231_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpeckledPoinsettia_ZH-CN3726763235_UHD.jpg&w=1000)今日图片: &nbsp;[有斑点的一品红 (© DigiPub/Getty Images)](https://www.bing.com/th?id=OHR.SpeckledPoinsettia_ZH-CN3726763235_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_UHD.jpg&w=1000)Today: [Interior of the Mosque-Cathedral of Córdoba, Andalusia, Spain (© Elena Zolotova/Getty Images)](https://www.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EverestGlow_EN-US6131667612_UHD.jpg&w=1000)Today: [Summit of Mount Everest at sunset, seen from Renjo La, Nepal (© shoults/Alamy)](https://www.bing.com/th?id=OHR.EverestGlow_EN-US6131667612_UHD.jpg)
 <br><br/>
