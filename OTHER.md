@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SpeckledPoinsettia_JA-JP0214216812_UHD.jpg&w=1000)今日の壁紙: &nbsp;[雪のような白い斑点模様のポインセチア (© DigiPub/Getty Images)](https://www.bing.com/th?id=OHR.SpeckledPoinsettia_JA-JP0214216812_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YosemiteWinter_JA-JP0378777748_UHD.jpg&w=1000)今日の壁紙: &nbsp;[マーセド川, 米国 カリフォルニア州 (© Ron and Patty Thomas/Getty Images)](https://www.bing.com/th?id=OHR.YosemiteWinter_JA-JP0378777748_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SpeckledPoinsettia_FR-FR0741474217_UHD.jpg&w=1000)Today: [Plante Poinsettia dite Étoile de Noël (© DigiPub/Getty Images)](https://www.bing.com/th?id=OHR.SpeckledPoinsettia_FR-FR0741474217_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SpeckledPoinsettia_ES-ES3605658250_UHD.jpg&w=1000)Today: [Flor de pascua manchada (© DigiPub/Getty Images)](https://www.bing.com/th?id=OHR.SpeckledPoinsettia_ES-ES3605658250_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.EverestGlow_EN-GB7184566187_UHD.jpg&w=1000)Today: [The summit of Mount Everest at sunset, seen from Renjo La, Nepal (© shoults/Alamy)](https://www.bing.com/th?id=OHR.EverestGlow_EN-GB7184566187_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpeckledPoinsettia_EN-GB9791433495_UHD.jpg&w=1000)Today: [Spotted poinsettia (© DigiPub/Getty Images)](https://www.bing.com/th?id=OHR.SpeckledPoinsettia_EN-GB9791433495_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SpeckledPoinsettia_IT-IT0030863548_UHD.jpg&w=1000)Today: [Stella di Natale (© DigiPub/Getty Images)](https://www.bing.com/th?id=OHR.SpeckledPoinsettia_IT-IT0030863548_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpeckledPoinsettia_IT-IT1139304078_UHD.jpg&w=1000)Today: [Stella di Natale (© DigiPub/Getty Images)](https://www.bing.com/th?id=OHR.SpeckledPoinsettia_IT-IT1139304078_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.EverestGlow_PT-BR2321595835_UHD.jpg&w=1000)Today: [Monte Everest ao pôr do sol, visto de Renjo La Pass, no Nepal (© shoults/Alamy)](https://www.bing.com/th?id=OHR.EverestGlow_PT-BR2321595835_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpeckledPoinsettia_PT-BR8754988281_UHD.jpg&w=1000)Today: [Poinsétia, a planta que colore o Natal (© DigiPub/Getty Images)](https://www.bing.com/th?id=OHR.SpeckledPoinsettia_PT-BR8754988281_UHD.jpg)
 <br><br/>
