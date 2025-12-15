@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AmsterdamLights_ZH-CN4288146509_UHD.jpg&w=1000)今日图片: &nbsp;[斯皮格尔运河上的灯光装饰, 阿姆斯特丹, 荷兰 (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.AmsterdamLights_ZH-CN4288146509_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChristmasGnomes_ZH-CN4405839101_UHD.jpg&w=1000)今日图片: &nbsp;[圣诞市场上的手工小矮人 (© Veronika Seppanen/Shutterstock)](https://www.bing.com/th?id=OHR.ChristmasGnomes_ZH-CN4405839101_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TuftedTitmouse_EN-US4835376471_UHD.jpg&w=1000)Today: [Tufted titmouse perched on pine boughs, Massachusetts (© Tim Laman/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.TuftedTitmouse_EN-US4835376471_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AmsterdamLights_EN-US4980559514_UHD.jpg&w=1000)Today: [Lights on Spiegelgracht canal, Amsterdam, Netherlands (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.AmsterdamLights_EN-US4980559514_UHD.jpg)
 <br><br/>
