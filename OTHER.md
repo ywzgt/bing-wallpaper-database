@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BormioItaly_JA-JP1791938778_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ボルミオ, イタリア ロンバルディア州 (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.BormioItaly_JA-JP1791938778_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.StarLanterns_JA-JP2184605933_UHD.jpg&w=1000)今日の壁紙: &nbsp;[星型のランプ, ドイツ (© artas/Getty Images)](https://www.bing.com/th?id=OHR.StarLanterns_JA-JP2184605933_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.YosemiteWinter_FR-FR0908929457_UHD.jpg&w=1000)Today: [Rivière Merced, parc national de Yosemite, Californie, États-Unis (© Ron and Patty Thomas/Getty Images)](https://www.bing.com/th?id=OHR.YosemiteWinter_FR-FR0908929457_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BormioItaly_ES-ES9743879453_UHD.jpg&w=1000)Today: [Paisaje nevado en Bormio, Lombardía, Italia (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.BormioItaly_ES-ES9743879453_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CathedralValley_EN-GB1105265816_UHD.jpg&w=1000)Today: [Temple of the Sun, Capitol Reef National Park, Utah, USA (© Austin Cronnelly/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CathedralValley_EN-GB1105265816_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BormioItaly_EN-GB1277241027_UHD.jpg&w=1000)Today: [Snow-covered landscape at Bormio, Lombardy, Italy (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.BormioItaly_EN-GB1277241027_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BormioItaly_IT-IT9940500837_UHD.jpg&w=1000)Today: [Paesaggio innevato a Bormio, Sondrio, Lombardia (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.BormioItaly_IT-IT9940500837_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CathedralValley_PT-BR4139226561_UHD.jpg&w=1000)Today: [Templo do Sol, Parque Nacional Capitol Reef, Utah, EUA (© Austin Cronnelly/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CathedralValley_PT-BR4139226561_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MonaValePool_PT-BR3761325411_UHD.jpg&w=1000)Today: [Mona Vale Rockpool, Sydney, Austrália (© jamenpercy/Getty Images)](https://www.bing.com/th?id=OHR.MonaValePool_PT-BR3761325411_UHD.jpg)
 <br><br/>
