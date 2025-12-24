@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ElmauChapel_ZH-CN6919330333_UHD.jpg&w=1000)今日图片: &nbsp;[巴伐利亚阿尔卑斯山脉的雪中教堂与圣诞树，德国 (© mauritius images GmbH/Alamy)](https://www.bing.com/th?id=OHR.ElmauChapel_ZH-CN6919330333_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SantaGlobe_ZH-CN7032279153_UHD.jpg&w=1000)今日图片: &nbsp;[海德堡圣诞市场上的雪球，德国 (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.SantaGlobe_ZH-CN7032279153_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ReindeerFinland_EN-US5636971050_UHD.jpg&w=1000)Today: [Reindeer during winter snowfall, Lapland, Finland (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.ReindeerFinland_EN-US5636971050_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ElmauChapel_EN-US5704228113_UHD.jpg&w=1000)Today: [Snowy chapel with Christmas tree in the Bavarian Alps, Germany (© mauritius images GmbH/Alamy)](https://www.bing.com/th?id=OHR.ElmauChapel_EN-US5704228113_UHD.jpg)
 <br><br/>
