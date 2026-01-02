@@ -1,15 +1,3 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.VeniceView_JA-JP5599144263_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ヴェネツィア, イタリア (© Clement Leonard/Getty Images)](https://www.bing.com/th?id=OHR.VeniceView_JA-JP5599144263_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.VeniceView_FR-FR1991720752_UHD.jpg&w=1000)Today: [Vue aérienne de Venise, Italie (© Clement Leonard/Getty Images)](https://www.bing.com/th?id=OHR.VeniceView_FR-FR1991720752_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.VeniceView_DE-DE5335643211_UHD.jpg&w=1000)Today: [Luftaufnahme von Venedig, Italien (© Clement Leonard/Getty Images)](https://www.bing.com/th?id=OHR.VeniceView_DE-DE5335643211_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.VeniceView_ES-ES3506593808_UHD.jpg&w=1000)Today: [Vista aérea de Venecia, Véneto, Italia (© Clement Leonard/Getty Images)](https://www.bing.com/th?id=OHR.VeniceView_ES-ES3506593808_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.NewYearFox_EN-GB6138913529_UHD.jpg&w=1000)Today: [Arctic fox sleeping (© Chansak Joe/Getty Images)](https://www.bing.com/th?id=OHR.NewYearFox_EN-GB6138913529_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.ImpalaRooibok_IT-IT2418246080_UHD.jpg&w=1000)Today: [Branco di impala, Riserva naturale di Londolozi, Sudafrica (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.ImpalaRooibok_IT-IT2418246080_UHD.jpg)
-<br><br/>
-![](https://www.bing.com/th?id=OHR.NewYearFox_PT-BR5772637703_UHD.jpg&w=1000)Today: [Raposa-do-ártico dormindo (© Chansak Joe/Getty Images)](https://www.bing.com/th?id=OHR.NewYearFox_PT-BR5772637703_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LauterbrunnenValley_JA-JP5166517859_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ラウターブルンネン, スイス (© pongnathee kluaythong/Getty Images)](https://www.bing.com/th?id=OHR.LauterbrunnenValley_JA-JP5166517859_UHD.jpg)
 <br><br/>
