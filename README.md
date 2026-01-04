@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_UHD.jpg&w=1000)今日图片: &nbsp;[国王山, 楚加奇山脉, 阿拉斯加, 美国 (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ImpalaRooibok_ZH-CN2307890154_UHD.jpg&w=1000)今日图片: &nbsp;[一群高角羚, 隆多洛齐野生动物保护区, 南非 (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.ImpalaRooibok_ZH-CN2307890154_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LauterbrunnenValley_EN-US6594933852_UHD.jpg&w=1000)Today: [Staubbach Falls at Lauterbrunnen, Canton of Bern, Switzerland (© pongnathee kluaythong/Getty Images)](https://www.bing.com/th?id=OHR.LauterbrunnenValley_EN-US6594933852_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KingMountain_EN-US6730743729_UHD.jpg&w=1000)Today: [Kings Mountain, Chugach Mountains, Alaska (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.KingMountain_EN-US6730743729_UHD.jpg)
 <br><br/>
