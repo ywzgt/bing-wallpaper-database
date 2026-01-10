@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MatterhornSunrise_JA-JP8773317185_UHD.jpg&w=1000)今日の壁紙: &nbsp;[マッターホルン, アルプス山脈 (© Andy Trowbridge/naturepl.com)](https://www.bing.com/th?id=OHR.MatterhornSunrise_JA-JP8773317185_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BlueMorocco_JA-JP9617982350_UHD.jpg&w=1000)今日の壁紙: &nbsp;[シャウエン, モロッコ (© AnetteAndersen/Getty Images)](https://www.bing.com/th?id=OHR.BlueMorocco_JA-JP9617982350_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MatterhornSunrise_FR-FR4667476850_UHD.jpg&w=1000)Today: [Le reflet du Cervin sur le lac Stellisee à l’aube, Zermatt, Suisse (© Andy Trowbridge/naturepl.com)](https://www.bing.com/th?id=OHR.MatterhornSunrise_FR-FR4667476850_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MatterhornSunrise_ES-ES4973515891_UHD.jpg&w=1000)Today: [El monte Cervino reflejado en el lago Stellisee al amanecer, Zermatt, Suiza (© Andy Trowbridge/naturepl.com)](https://www.bing.com/th?id=OHR.MatterhornSunrise_ES-ES4973515891_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MuirWoodsMonument_EN-GB2101130312_UHD.jpg&w=1000)Today: [Giant redwood trees in Muir Woods National Monument, California, USA (© photo by canderson/Getty Images)](https://www.bing.com/th?id=OHR.MuirWoodsMonument_EN-GB2101130312_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MatterhornSunrise_EN-GB1417688844_UHD.jpg&w=1000)Today: [The Matterhorn reflected in Lake Stellisee, Zermatt, Switzerland (© Andy Trowbridge/naturepl.com)](https://www.bing.com/th?id=OHR.MatterhornSunrise_EN-GB1417688844_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MatterhornSunrise_IT-IT0909125260_UHD.jpg&w=1000)Today: [Il Cervino riflesso nel lago Stellisee all'alba, Zermatt, Svizzera (© Andy Trowbridge/naturepl.com)](https://www.bing.com/th?id=OHR.MatterhornSunrise_IT-IT0909125260_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MuirWoodsMonument_PT-BR7920486787_UHD.jpg&w=1000)Today: [Sequoias no Monumento Nacional de Muir Woods, Califórnia, EUA (© foto de canderson/Getty Images)](https://www.bing.com/th?id=OHR.MuirWoodsMonument_PT-BR7920486787_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MatterhornSunrise_PT-BR3935856361_UHD.jpg&w=1000)Today: [Matterhorn refletido no Lago Stellisee ao amanhecer, Zermatt, Suíça (© Andy Trowbridge/naturepl.com)](https://www.bing.com/th?id=OHR.MatterhornSunrise_PT-BR3935856361_UHD.jpg)
 <br><br/>
