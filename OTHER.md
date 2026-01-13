@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.WalesWinter_JA-JP9906263295_UHD.jpg&w=1000)今日の壁紙: &nbsp;[クレイド渓谷, イギリス ウェールズ (© Valerie Blencowe/Getty Images)](https://www.bing.com/th?id=OHR.WalesWinter_JA-JP9906263295_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SnowOtters_FR-FR5221259508_UHD.jpg&w=1000)Today: [Une loutre d’Europe et son petit, Estonie (© Sven Zacek/naturepl.com)](https://www.bing.com/th?id=OHR.SnowOtters_FR-FR5221259508_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WalesWinter_FR-FR5382261184_UHD.jpg&w=1000)Today: [Vallée de Clwyd, Pays de Galles (© Valerie Blencowe/Getty Images)](https://www.bing.com/th?id=OHR.WalesWinter_FR-FR5382261184_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SnowOtters_DE-DE8031426610_UHD.jpg&w=1000)Today: [Eurasischer Fischotter mit Jungtier, Estland (© Sven Zacek/naturepl.com)](https://www.bing.com/th?id=OHR.SnowOtters_DE-DE8031426610_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WalesWinter_DE-DE8247163112_UHD.jpg&w=1000)Today: [Tal von Clwyd, Wales (© Valerie Blencowe/Getty Images)](https://www.bing.com/th?id=OHR.WalesWinter_DE-DE8247163112_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SnowOtters_ES-ES5291684262_UHD.jpg&w=1000)Today: [Nutria euroasiática junto a su cría, Estonia (© Sven Zacek/naturepl.com)](https://www.bing.com/th?id=OHR.SnowOtters_ES-ES5291684262_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WalesWinter_ES-ES5513593147_UHD.jpg&w=1000)Today: [Valle de Clwyd, Gales, Reino Unido (© Valerie Blencowe/Getty Images)](https://www.bing.com/th?id=OHR.WalesWinter_ES-ES5513593147_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SnowOtters_EN-GB1734376903_UHD.jpg&w=1000)Today: [Eurasian otter and pup, Estonia (© Sven Zacek/naturepl.com)](https://www.bing.com/th?id=OHR.SnowOtters_EN-GB1734376903_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.EtnaSiciliaNeve_IT-IT1228064958_UHD.jpg&w=1000)Today: [Cratere nel Parco Nazionale dell'Etna, Catania, Sicilia (© PATMALUPHOTO/Adobe Stock)](https://www.bing.com/th?id=OHR.EtnaSiciliaNeve_IT-IT1228064958_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WalesWinter_IT-IT9889506987_UHD.jpg&w=1000)Today: [Valle del Clwyd, Galles (© Valerie Blencowe/Getty Images)](https://www.bing.com/th?id=OHR.WalesWinter_IT-IT9889506987_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SnowOtters_PT-BR2784694559_UHD.jpg&w=1000)Today: [Lontra-europeia e filhote, Estônia (© Sven Zacek/naturepl.com)](https://www.bing.com/th?id=OHR.SnowOtters_PT-BR2784694559_UHD.jpg)
 <br><br/>
