@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_UHD.jpg&w=1000)今日图片: &nbsp;[埃托沙国家公园的豹子，纳米比亚 (© Norbert Achtelik/Cavan Images)](https://www.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NaplesBasilica_ZH-CN6888150174_UHD.jpg&w=1000)今日图片: &nbsp;[保罗圣方济圣殿，那不勒斯，意大利 (© javarman3/Getty Images)](https://www.bing.com/th?id=OHR.NaplesBasilica_ZH-CN6888150174_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ReineSunrise_EN-US0323810872_UHD.jpg&w=1000)Today: [The fishing village of Reine, Norway (© Roberto Moiola/Cavan Images/SuperStock)](https://www.bing.com/th?id=OHR.ReineSunrise_EN-US0323810872_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EtoshaLeopard_EN-US0412326524_UHD.jpg&w=1000)Today: [Leopard at Etosha National Park, Namibia (© Norbert Achtelik/Cavan Images)](https://www.bing.com/th?id=OHR.EtoshaLeopard_EN-US0412326524_UHD.jpg)
 <br><br/>
