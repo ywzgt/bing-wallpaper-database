@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BerrySquirrel_ZH-CN7382553646_UHD.jpg&w=1000)今日图片: &nbsp;[欧亚红松鼠 (© Galina Jacyna/Getty Images)](https://www.bing.com/th?id=OHR.BerrySquirrel_ZH-CN7382553646_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KarlovyVary_ZH-CN7585938362_UHD.jpg&w=1000)今日图片: &nbsp;[卡罗维瓦利，波西米亚，捷克共和国 (© Henryk Sadura/Getty Images)](https://www.bing.com/th?id=OHR.KarlovyVary_ZH-CN7585938362_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.IciclePenguin_EN-US0727591285_UHD.jpg&w=1000)Today: [Gentoo penguin, Petermann Island, Antarctica (© Paul Souders/DanitaDelimont.com/Alamy)](https://www.bing.com/th?id=OHR.IciclePenguin_EN-US0727591285_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BerrySquirrel_EN-US0798771452_UHD.jpg&w=1000)Today: [Eurasian red squirrel (© Galina Jacyna/Getty Images)](https://www.bing.com/th?id=OHR.BerrySquirrel_EN-US0798771452_UHD.jpg)
 <br><br/>
