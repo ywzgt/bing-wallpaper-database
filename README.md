@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.KarlovyVary_ZH-CN7585938362_UHD.jpg&w=1000)今日图片: &nbsp;[卡罗维瓦利，波西米亚，捷克共和国 (© Henryk Sadura/Getty Images)](https://www.bing.com/th?id=OHR.KarlovyVary_ZH-CN7585938362_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IcelandSheep_ZH-CN3931993073_UHD.jpg&w=1000)今日图片: &nbsp;[绵羊在雪地里吃草，冰岛 (© Christophe Lehenaff/Getty Images)](https://www.bing.com/th?id=OHR.IcelandSheep_ZH-CN3931993073_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BerrySquirrel_EN-US0798771452_UHD.jpg&w=1000)Today: [Eurasian red squirrel (© Galina Jacyna/Getty Images)](https://www.bing.com/th?id=OHR.BerrySquirrel_EN-US0798771452_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KarlovyVary_EN-US0856094511_UHD.jpg&w=1000)Today: [Karlovy Vary, Bohemia, Czechia (© Henryk Sadura/Getty Images)](https://www.bing.com/th?id=OHR.KarlovyVary_EN-US0856094511_UHD.jpg)
 <br><br/>

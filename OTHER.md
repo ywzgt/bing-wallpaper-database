@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.KarlovyVary_JA-JP1329702586_UHD.jpg&w=1000)今日の壁紙: &nbsp;[カルロヴィ・ヴァリ, チェコ (© Henryk Sadura/Getty Images)](https://www.bing.com/th?id=OHR.KarlovyVary_JA-JP1329702586_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IcelandSheep_JA-JP9416029074_UHD.jpg&w=1000)今日の壁紙: &nbsp;[雪に覆われた地で草を食む羊たち, アイスランド (© Christophe Lehenaff/Getty Images)](https://www.bing.com/th?id=OHR.IcelandSheep_JA-JP9416029074_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.KarlovyVary_FR-FR4051423733_UHD.jpg&w=1000)Today: [Karlovy Vary, Bohême, Tchéquie (© Henryk Sadura/Getty Images)](https://www.bing.com/th?id=OHR.KarlovyVary_FR-FR4051423733_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.KarlovyVary_ES-ES6866349820_UHD.jpg&w=1000)Today: [Karlovy Vary, Bohemia, República Checa (© Henryk Sadura/Getty Images)](https://www.bing.com/th?id=OHR.KarlovyVary_ES-ES6866349820_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BerrySquirrel_EN-GB6028511849_UHD.jpg&w=1000)Today: [Eurasian red squirrel (© Galina Jacyna/Getty Images)](https://www.bing.com/th?id=OHR.BerrySquirrel_EN-GB6028511849_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KarlovyVary_EN-GB6157843860_UHD.jpg&w=1000)Today: [Karlovy Vary, Bohemia, Czechia (© Henryk Sadura/Getty Images)](https://www.bing.com/th?id=OHR.KarlovyVary_EN-GB6157843860_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.KarlovyVary_IT-IT4150505640_UHD.jpg&w=1000)Today: [Karlovy Vary, Boemia, Repubblica Ceca (© Henryk Sadura/Getty Images)](https://www.bing.com/th?id=OHR.KarlovyVary_IT-IT4150505640_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BerrySquirrel_PT-BR0149336681_UHD.jpg&w=1000)Today: [Esquilo-vermelho-eurasiático (© Galina Jacyna/Getty Images)](https://www.bing.com/th?id=OHR.BerrySquirrel_PT-BR0149336681_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KarlovyVary_PT-BR9942350940_UHD.jpg&w=1000)Today: [Karlovy Vary, Boêmia, Tchéquia (© Henryk Sadura/Getty Images)](https://www.bing.com/th?id=OHR.KarlovyVary_PT-BR9942350940_UHD.jpg)
 <br><br/>
