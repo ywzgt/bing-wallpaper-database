@@ -1,15 +1,15 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.IcelandSheep_JA-JP9416029074_UHD.jpg&w=1000)今日の壁紙: &nbsp;[雪に覆われた地で草を食む羊たち, アイスランド (© Christophe Lehenaff/Getty Images)](https://www.bing.com/th?id=OHR.IcelandSheep_JA-JP9416029074_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AndermattSwiss_JA-JP9574225546_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アンデルマット, スイス (© Xantana/Getty Images)](https://www.bing.com/th?id=OHR.AndermattSwiss_JA-JP9574225546_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.IcelandSheep_FR-FR4056749778_UHD.jpg&w=1000)Today: [Des moutons dans la neige, Islande (© Christophe Lehenaff/Getty Images)](https://www.bing.com/th?id=OHR.IcelandSheep_FR-FR4056749778_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AndermattSwiss_FR-FR0683764999_UHD.jpg&w=1000)Today: [Le village d’Andermatt, Suisse (© Xantana/Getty Images)](https://www.bing.com/th?id=OHR.AndermattSwiss_FR-FR0683764999_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.IcelandSheep_DE-DE7690872056_UHD.jpg&w=1000)Today: [Weidende Schafe im Schnee, Island (© Christophe Lehenaff/Getty Images)](https://www.bing.com/th?id=OHR.IcelandSheep_DE-DE7690872056_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AndermattSwiss_DE-DE4290950061_UHD.jpg&w=1000)Today: [Andermatt in den Schweizer Alpen (© Xantana/Getty Images)](https://www.bing.com/th?id=OHR.AndermattSwiss_DE-DE4290950061_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Toledo_ES-ES4779443125_UHD.jpg&w=1000)Today: [Luces de Toledo encendidas tras una tormenta de nieve (© Cavan Images/Getty Images)](https://www.bing.com/th?id=OHR.Toledo_ES-ES4779443125_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AndermattSwiss_ES-ES1707128541_UHD.jpg&w=1000)Today: [Pueblo de Andermatt en los Alpes, Suiza (© Xantana/Getty Images)](https://www.bing.com/th?id=OHR.AndermattSwiss_ES-ES1707128541_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.KarlovyVary_EN-GB6157843860_UHD.jpg&w=1000)Today: [Karlovy Vary, Bohemia, Czechia (© Henryk Sadura/Getty Images)](https://www.bing.com/th?id=OHR.KarlovyVary_EN-GB6157843860_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IcelandSheep_EN-GB3300540353_UHD.jpg&w=1000)Today: [Sheep grazing in snow, Iceland (© Christophe Lehenaff/Getty Images)](https://www.bing.com/th?id=OHR.IcelandSheep_EN-GB3300540353_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.IcelandSheep_IT-IT3552522867_UHD.jpg&w=1000)Today: [Pecore al pascolo nella neve, Islanda (© Christophe Lehenaff/Getty Images)](https://www.bing.com/th?id=OHR.IcelandSheep_IT-IT3552522867_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PisaTower_IT-IT3619940805_UHD.jpg&w=1000)Today: [Torre di Pisa, Pisa, Toscana (© seng chye teo/Moment)](https://www.bing.com/th?id=OHR.PisaTower_IT-IT3619940805_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.KarlovyVary_PT-BR9942350940_UHD.jpg&w=1000)Today: [Karlovy Vary, Boêmia, Tchéquia (© Henryk Sadura/Getty Images)](https://www.bing.com/th?id=OHR.KarlovyVary_PT-BR9942350940_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IcelandSheep_PT-BR6680059407_UHD.jpg&w=1000)Today: [Ovelhas na neve, Islândia (© Christophe Lehenaff/Getty Images)](https://www.bing.com/th?id=OHR.IcelandSheep_PT-BR6680059407_UHD.jpg)
 <br><br/>
