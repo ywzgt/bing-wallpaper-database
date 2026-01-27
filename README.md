@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.DalmationPelicans_ZH-CN5252732863_UHD.jpg&w=1000)今日图片: &nbsp;[卷羽鹈鹕，凯尔基尼湖，希腊 (© Guy Edwardes/naturepl.com)](https://www.bing.com/th?id=OHR.DalmationPelicans_ZH-CN5252732863_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WhanganuiPark_ZH-CN5664518836_UHD.jpg&w=1000)今日图片: &nbsp;[旺格努伊国家公园，雷塔鲁克，新西兰 (© Matthew Micah Wright/Getty Images)](https://www.bing.com/th?id=OHR.WhanganuiPark_ZH-CN5664518836_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.NeuschwansteinWinter_EN-US9407713688_UHD.jpg&w=1000)Today: [Neuschwanstein Castle, Bavaria, Germany (© www.fredconcha.com @ All Rights Reserved/Getty Images)](https://www.bing.com/th?id=OHR.NeuschwansteinWinter_EN-US9407713688_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DalmationPelicans_EN-US9458474756_UHD.jpg&w=1000)Today: [Dalmatian pelicans, Lake Kerkini, Greece (© Guy Edwardes/naturepl.com)](https://www.bing.com/th?id=OHR.DalmationPelicans_EN-US9458474756_UHD.jpg)
 <br><br/>
