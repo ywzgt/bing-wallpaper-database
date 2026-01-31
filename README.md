@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.EtoshaZebra_ZH-CN6068087794_UHD.jpg&w=1000)今日图片: &nbsp;[平原斑马, 埃托沙国家公园, 纳米比亚 (© Mogens Trolle/Shutterstock)](https://www.bing.com/th?id=OHR.EtoshaZebra_ZH-CN6068087794_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Olinda_ZH-CN6216385346_UHD.jpg&w=1000)今日图片: &nbsp;[奥林达的彩色房子, 巴西 (© Robert Pekar/Alamy)](https://www.bing.com/th?id=OHR.Olinda_ZH-CN6216385346_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.StMichaelsCornwall_EN-US0036057583_UHD.jpg&w=1000)Today: [St. Michael's Mount in Marazion, Cornwall, England (© Baxter Bradford/robertharding/Getty Images)](https://www.bing.com/th?id=OHR.StMichaelsCornwall_EN-US0036057583_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_UHD.jpg&w=1000)Today: [Plains zebras, Etosha National Park, Namibia (© Mogens Trolle/Shutterstock)](https://www.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_UHD.jpg)
 <br><br/>
