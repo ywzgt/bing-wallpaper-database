@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.FanetteIsland_JA-JP1861312549_UHD.jpg&w=1000)今日の壁紙: &nbsp;[タホ湖, 米国 (© Bill Stevenson/Cavan Images)](https://www.bing.com/th?id=OHR.FanetteIsland_JA-JP1861312549_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FanetteIsland_JA-JP9866283970_UHD.jpg&w=1000)今日の壁紙: &nbsp;[タホ湖, 米国 (© Bill Stevenson/Cavan Images)](https://www.bing.com/th?id=OHR.FanetteIsland_JA-JP9866283970_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.FanetteIsland_FR-FR1712253597_UHD.jpg&w=1000)Today: [Emerald Bay et Fanette Island, Lac Tahoe, Californie, États-Unis (© Bill Stevenson/Cavan Images)](https://www.bing.com/th?id=OHR.FanetteIsland_FR-FR1712253597_UHD.jpg)
 <br><br/>
