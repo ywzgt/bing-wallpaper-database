@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.GiauPass_ZH-CN3901214501_UHD.jpg&w=1000)今日图片: &nbsp;[贾乌山口的拉古塞拉峰, 在科尔蒂纳丹佩佐附近, 意大利 (© Tomasz Podolski/Getty Images)](https://www.bing.com/th?id=OHR.GiauPass_ZH-CN3901214501_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SalarUyuni_ZH-CN4163237089_UHD.jpg&w=1000)今日图片: &nbsp;[玻利维亚乌尤尼盐湖 (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.SalarUyuni_ZH-CN4163237089_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MaltaSalt_EN-US0310458987_UHD.jpg&w=1000)Today: [Salt evaporation ponds on the island of Gozo, Malta (© Marius Roman/Getty Images)](https://www.bing.com/th?id=OHR.MaltaSalt_EN-US0310458987_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GiauPass_EN-US1580552183_UHD.jpg&w=1000)Today: [Ra Gusela peak at Giau Pass, near Cortina d'Ampezzo, Italy (© Tomasz Podolski/Getty Images)](https://www.bing.com/th?id=OHR.GiauPass_EN-US1580552183_UHD.jpg)
 <br><br/>
