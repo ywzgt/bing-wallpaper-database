@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SalarUyuni_ZH-CN4163237089_UHD.jpg&w=1000)今日图片: &nbsp;[玻利维亚乌尤尼盐湖 (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.SalarUyuni_ZH-CN4163237089_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CorfuGreece_ZH-CN4305970968_UHD.jpg&w=1000)今日图片: &nbsp;[科孚岛的夜晚, 希腊 (© whitewizzard/Getty Images)](https://www.bing.com/th?id=OHR.CorfuGreece_ZH-CN4305970968_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GiauPass_EN-US1580552183_UHD.jpg&w=1000)Today: [Ra Gusela peak at Giau Pass, near Cortina d'Ampezzo, Italy (© Tomasz Podolski/Getty Images)](https://www.bing.com/th?id=OHR.GiauPass_EN-US1580552183_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SalarUyuni_EN-US1639129259_UHD.jpg&w=1000)Today: [Salar de Uyuni salt flats in Bolivia (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.SalarUyuni_EN-US1639129259_UHD.jpg)
 <br><br/>
