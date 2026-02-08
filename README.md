@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.CorfuGreece_ZH-CN4305970968_UHD.jpg&w=1000)今日图片: &nbsp;[科孚岛的夜晚, 希腊 (© whitewizzard/Getty Images)](https://www.bing.com/th?id=OHR.CorfuGreece_ZH-CN4305970968_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LeopardCat_ZH-CN4431427444_UHD.jpg&w=1000)今日图片: &nbsp;[阿穆尔豹猫，俄罗斯 (© Valeriy Maleev/naturepl.com)](https://www.bing.com/th?id=OHR.LeopardCat_ZH-CN4431427444_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SalarUyuni_EN-US1639129259_UHD.jpg&w=1000)Today: [Salar de Uyuni salt flats in Bolivia (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.SalarUyuni_EN-US1639129259_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CorfuGreece_EN-US4606019833_UHD.jpg&w=1000)Today: [Corfu at night, Greece (© whitewizzard/Getty Images)](https://www.bing.com/th?id=OHR.CorfuGreece_EN-US4606019833_UHD.jpg)
 <br><br/>
