@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Olinda_JA-JP1273177244_UHD.jpg&w=1000)今日の壁紙: &nbsp;[オリンダ歴史地区, ブラジル (© Robert Pekar/Alamy)](https://www.bing.com/th?id=OHR.Olinda_JA-JP1273177244_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FriendshipBridge_JA-JP1407443629_UHD.jpg&w=1000)今日の壁紙: &nbsp;[第3タイ・ラオス友好橋 (© chaiyut samsuk/Getty Images)](https://www.bing.com/th?id=OHR.FriendshipBridge_JA-JP1407443629_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.DarwinBooby_FR-FR2410210068_UHD.jpg&w=1000)Today: [Fou à pieds bleus, Îles Galapagos, Équateur (© Karine Aigner/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.DarwinBooby_FR-FR2410210068_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.DarwinBooby_ES-ES2893793809_UHD.jpg&w=1000)Today: [Piquero de patas azules, Islas Galápagos, Ecuador (© Karine Aigner/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.DarwinBooby_ES-ES2893793809_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BadwaterFlats_EN-GB7497288557_UHD.jpg&w=1000)Today: [Salt flats in Badwater Basin, Death Valley National Park, California, USA (© Jim Patterson/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BadwaterFlats_EN-GB7497288557_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DarwinBooby_EN-GB7767254645_UHD.jpg&w=1000)Today: [Blue-footed booby, Galápagos Islands, Ecuador (© Karine Aigner/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.DarwinBooby_EN-GB7767254645_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.DarwinBooby_IT-IT4879885475_UHD.jpg&w=1000)Today: [Sula dai piedi azzurri, Isole Galápagos, Ecuador (© Karine Aigner/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.DarwinBooby_IT-IT4879885475_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BadwaterFlats_PT-BR0386889966_UHD.jpg&w=1000)Today: [Salinas da Bacia de Badwater, Parque Nacional do Vale da Morte, Califórnia, EUA (© Jim Patterson/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BadwaterFlats_PT-BR0386889966_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DarwinBooby_PT-BR0902787838_UHD.jpg&w=1000)Today: [Atobá-de-pés-azuis, Ilhas Galápagos, Equador (© Karine Aigner/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.DarwinBooby_PT-BR0902787838_UHD.jpg)
 <br><br/>
