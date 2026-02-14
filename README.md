@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ValentineHearts_ZH-CN5332774664_UHD.jpg&w=1000)今日图片: &nbsp;[荷包牡丹 (© Dorene Hookey/Cavan Images)](https://www.bing.com/th?id=OHR.ValentineHearts_ZH-CN5332774664_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MontereyHumpbacks_ZH-CN5426789466_UHD.jpg&w=1000)今日图片: &nbsp;[蒙特雷湾的大翅鲸(座头鲸)，加利福尼亚州，美国 (© Kiliii Fish/Cavan Images)](https://www.bing.com/th?id=OHR.MontereyHumpbacks_ZH-CN5426789466_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.FriendshipBridge_EN-US6136231298_UHD.jpg&w=1000)Today: [Third Thai-Lao Friendship Bridge connecting Laos and Thailand (© chaiyut samsuk/Getty Images)](https://www.bing.com/th?id=OHR.FriendshipBridge_EN-US6136231298_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ValentineHearts_EN-US6208359150_UHD.jpg&w=1000)Today: [Bleeding hearts (© Dorene Hookey/Cavan Images)](https://www.bing.com/th?id=OHR.ValentineHearts_EN-US6208359150_UHD.jpg)
 <br><br/>
