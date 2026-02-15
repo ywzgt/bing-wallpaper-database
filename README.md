@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MontereyHumpbacks_ZH-CN5426789466_UHD.jpg&w=1000)今日图片: &nbsp;[蒙特雷湾的大翅鲸(座头鲸)，加利福尼亚州，美国 (© Kiliii Fish/Cavan Images)](https://www.bing.com/th?id=OHR.MontereyHumpbacks_ZH-CN5426789466_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_UHD.jpg&w=1000)今日图片: &nbsp;[庆祝春节的龙形灯笼，中国西安 (© Pan Hong/Getty Images)](https://www.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ValentineHearts_EN-US6208359150_UHD.jpg&w=1000)Today: [Bleeding hearts (© Dorene Hookey/Cavan Images)](https://www.bing.com/th?id=OHR.ValentineHearts_EN-US6208359150_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_UHD.jpg&w=1000)Today: [Humpback whales in Monterey Bay, California (© Kiliii Fish/Cavan Images)](https://www.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_UHD.jpg)
 <br><br/>
