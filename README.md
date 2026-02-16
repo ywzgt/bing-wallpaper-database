@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_UHD.jpg&w=1000)今日图片: &nbsp;[庆祝春节的龙形灯笼，中国西安 (© Pan Hong/Getty Images)](https://www.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_UHD.jpg&w=1000)今日图片: &nbsp;[中国春节传统汉字“福” (© DuKai摄影师/Getty Images)](https://www.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_UHD.jpg&w=1000)Today: [Humpback whales in Monterey Bay, California (© Kiliii Fish/Cavan Images)](https://www.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_UHD.jpg&w=1000)Today: [Lincoln Memorial, Washington, DC (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_UHD.jpg)
 <br><br/>
