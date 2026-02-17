@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_UHD.jpg&w=1000)今日图片: &nbsp;[中国春节传统汉字“福” (© DuKai摄影师/Getty Images)](https://www.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_UHD.jpg&w=1000)今日图片: &nbsp;[普氏野马 (© Nemyrivskyi Viacheslav/Getty Images)](https://www.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_UHD.jpg&w=1000)Today: [Lincoln Memorial, Washington, DC (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_UHD.jpg&w=1000)Today: [Red lanterns celebrating Chinese New Year (© Gins Wang/Getty Images)](https://www.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_UHD.jpg)
 <br><br/>
