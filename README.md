@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_UHD.jpg&w=1000)今日图片: &nbsp;[约塞米蒂国家公园里的火瀑布，加利福尼亚州，美国 (© Jorge Villalba/Getty Images)](https://www.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_UHD.jpg&w=1000)今日图片: &nbsp;[一只红狐狸站在雪地里，大提顿国家公园，怀俄明州，美国 (© Radomir Jakubowski/naturepl.com)](https://www.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DragonsEyeRock_EN-US6826796617_UHD.jpg&w=1000)Today: [The Dragon's Eye rock formation at Uttakleiv Beach, Norway (© reisegraf/Getty Images)](https://www.bing.com/th?id=OHR.DragonsEyeRock_EN-US6826796617_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AdamsFirefall_EN-US2580399078_UHD.jpg&w=1000)Today: [Horsetail Fall in Yosemite National Park, California (© Jorge Villalba/Getty Images)](https://www.bing.com/th?id=OHR.AdamsFirefall_EN-US2580399078_UHD.jpg)
 <br><br/>
