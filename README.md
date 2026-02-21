@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_UHD.jpg&w=1000)今日图片: &nbsp;[一只红狐狸站在雪地里，大提顿国家公园，怀俄明州，美国 (© Radomir Jakubowski/naturepl.com)](https://www.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MamTorSunrise_ZH-CN9698497298_UHD.jpg&w=1000)今日图片: &nbsp;[马姆托尔山，德比郡，英格兰 (© john finney photography/Getty Images)](https://www.bing.com/th?id=OHR.MamTorSunrise_ZH-CN9698497298_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AdamsFirefall_EN-US2580399078_UHD.jpg&w=1000)Today: [Horsetail Fall in Yosemite National Park, California (© Jorge Villalba/Getty Images)](https://www.bing.com/th?id=OHR.AdamsFirefall_EN-US2580399078_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TetonFox_EN-US2616700325_UHD.jpg&w=1000)Today: [Red fox standing in snowfall, Grand Teton National Park, Wyoming (© Radomir Jakubowski/naturepl.com)](https://www.bing.com/th?id=OHR.TetonFox_EN-US2616700325_UHD.jpg)
 <br><br/>
