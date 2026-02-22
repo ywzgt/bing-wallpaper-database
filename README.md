@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MamTorSunrise_ZH-CN9698497298_UHD.jpg&w=1000)今日图片: &nbsp;[马姆托尔山，德比郡，英格兰 (© john finney photography/Getty Images)](https://www.bing.com/th?id=OHR.MamTorSunrise_ZH-CN9698497298_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BavariaEgret_ZH-CN0521643213_UHD.jpg&w=1000)今日图片: &nbsp;[大白鹭，上巴伐利亚州，德国 (© Konrad Wothe/naturepl.com)](https://www.bing.com/th?id=OHR.BavariaEgret_ZH-CN0521643213_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TetonFox_EN-US2616700325_UHD.jpg&w=1000)Today: [Red fox standing in snowfall, Grand Teton National Park, Wyoming (© Radomir Jakubowski/naturepl.com)](https://www.bing.com/th?id=OHR.TetonFox_EN-US2616700325_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MamTorSunrise_EN-US2655534073_UHD.jpg&w=1000)Today: [The hill of Mam Tor, Derbyshire, England (© john finney photography/Getty Images)](https://www.bing.com/th?id=OHR.MamTorSunrise_EN-US2655534073_UHD.jpg)
 <br><br/>
