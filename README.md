@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BavariaEgret_ZH-CN0521643213_UHD.jpg&w=1000)今日图片: &nbsp;[大白鹭，上巴伐利亚州，德国 (© Konrad Wothe/naturepl.com)](https://www.bing.com/th?id=OHR.BavariaEgret_ZH-CN0521643213_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TulumLilies_ZH-CN0959403613_UHD.jpg&w=1000)今日图片: &nbsp;[大天坑里的睡莲，图卢姆，墨西哥 (© Christian Vizl/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.TulumLilies_ZH-CN0959403613_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MamTorSunrise_EN-US2655534073_UHD.jpg&w=1000)Today: [The hill of Mam Tor, Derbyshire, England (© john finney photography/Getty Images)](https://www.bing.com/th?id=OHR.MamTorSunrise_EN-US2655534073_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BavariaEgret_EN-US2697995103_UHD.jpg&w=1000)Today: [Great white egret, Upper Bavaria, Germany (© Konrad Wothe/naturepl.com)](https://www.bing.com/th?id=OHR.BavariaEgret_EN-US2697995103_UHD.jpg)
 <br><br/>
