@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_UHD.jpg&w=1000)今日图片: &nbsp;[大峡谷和科罗拉多河，亚利桑那州，美国 (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ArcitcCub_ZH-CN2725049760_UHD.jpg&w=1000)今日图片: &nbsp;[北极熊幼崽走过浮冰, 北极国家野生动物保护区, 阿拉斯加州, 美国 (© Steven Kazlowski/naturepl.com)](https://www.bing.com/th?id=OHR.ArcitcCub_ZH-CN2725049760_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MendenhallCave_EN-US2807496139_UHD.jpg&w=1000)Today: [Ice cave in the Mendenhall Glacier, Alaska (© Designpics/Adobe Stock)](https://www.bing.com/th?id=OHR.MendenhallCave_EN-US2807496139_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GrandSunset_EN-US2473517741_UHD.jpg&w=1000)Today: [Grand Canyon and the Colorado River, Arizona (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.GrandSunset_EN-US2473517741_UHD.jpg)
 <br><br/>
