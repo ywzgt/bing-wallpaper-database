@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ArcitcCub_JA-JP8771161198_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ホッキョクグマの子, 米国 アラスカ州 (© Steven Kazlowski/naturepl.com)](https://www.bing.com/th?id=OHR.ArcitcCub_JA-JP8771161198_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OloupenaFalls_JA-JP0587758979_UHD.jpg&w=1000)今日の壁紙: &nbsp;[オロウペナ滝, 米国 ハワイ州 (© Andrew Aylett/Getty Images)](https://www.bing.com/th?id=OHR.OloupenaFalls_JA-JP0587758979_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ArcitcCub_FR-FR4145142371_UHD.jpg&w=1000)Today: [Ours polaire sur la banquise, Refuge Faunique National de l’Arctique, Alaska, États-Unis (© Steven Kazlowski/naturepl.com)](https://www.bing.com/th?id=OHR.ArcitcCub_FR-FR4145142371_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ArcitcCub_ES-ES5029887843_UHD.jpg&w=1000)Today: [Cachorro de oso polar, Refugio Nacional de Vida Silvestre del Ártico, Alaska, EE. UU. (© Steven Kazlowski/naturepl.com)](https://www.bing.com/th?id=OHR.ArcitcCub_ES-ES5029887843_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GrandSunset_EN-GB4172876731_UHD.jpg&w=1000)Today: [Grand Canyon and the Colorado River, Arizona, United States (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.GrandSunset_EN-GB4172876731_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ArcitcCub_EN-GB4371536451_UHD.jpg&w=1000)Today: [Polar bear cub, Arctic National Wildlife Refuge, Alaska, United States (© Steven Kazlowski/naturepl.com)](https://www.bing.com/th?id=OHR.ArcitcCub_EN-GB4371536451_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ArcitcCub_IT-IT4577678073_UHD.jpg&w=1000)Today: [Cucciolo di orso polare, Arctic National Wildlife Refuge, Alaska, USA (© Steven Kazlowski/naturepl.com)](https://www.bing.com/th?id=OHR.ArcitcCub_IT-IT4577678073_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GrandSunset_PT-BR8623216224_UHD.jpg&w=1000)Today: [Grand Canyon e o Rio Colorado, Arizona, Estados Unidos (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.GrandSunset_PT-BR8623216224_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ArcitcCub_PT-BR4178932499_UHD.jpg&w=1000)Today: [Filhote de urso-polar sobre o gelo, Refúgio Nacional de Vida Selvagem do Ártico, Alasca, Estados Unidos (© Steven Kazlowski/naturepl.com)](https://www.bing.com/th?id=OHR.ArcitcCub_PT-BR4178932499_UHD.jpg)
 <br><br/>
