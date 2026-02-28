@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.OloupenaFalls_ZH-CN2980118660_UHD.jpg&w=1000)今日图片: &nbsp;[奥洛乌佩纳瀑布, 莫洛凯岛, 夏威夷, 美国 (© Andrew Aylett/Getty Images)](https://www.bing.com/th?id=OHR.OloupenaFalls_ZH-CN2980118660_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BalearesDay_ZH-CN5024902433_UHD.jpg&w=1000)今日图片: &nbsp;[伊维萨岛, 巴利阿里群岛, 西班牙 (© tokar/Shutterstock)](https://www.bing.com/th?id=OHR.BalearesDay_ZH-CN5024902433_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ArcitcCub_EN-US2529097123_UHD.jpg&w=1000)Today: [Polar bear cub walking across pack ice, Arctic National Wildlife Refuge, Alaska (© Steven Kazlowski/naturepl.com)](https://www.bing.com/th?id=OHR.ArcitcCub_EN-US2529097123_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OloupenaFalls_EN-US2862358887_UHD.jpg&w=1000)Today: [Olo'upena Falls, island of Moloka'i, Hawaii (© Andrew Aylett/Getty Images)](https://www.bing.com/th?id=OHR.OloupenaFalls_EN-US2862358887_UHD.jpg)
 <br><br/>
