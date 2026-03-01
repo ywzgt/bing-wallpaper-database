@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BalearesDay_ZH-CN5024902433_UHD.jpg&w=1000)今日图片: &nbsp;[伊维萨岛, 巴利阿里群岛, 西班牙 (© tokar/Shutterstock)](https://www.bing.com/th?id=OHR.BalearesDay_ZH-CN5024902433_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SamuiThailand_ZH-CN3323790951_UHD.jpg&w=1000)今日图片: &nbsp;[苏梅岛的港口和长尾船, 泰国 (© Foto2rich/Shutterstock)](https://www.bing.com/th?id=OHR.SamuiThailand_ZH-CN3323790951_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.OloupenaFalls_EN-US2862358887_UHD.jpg&w=1000)Today: [Olo'upena Falls, island of Moloka'i, Hawaii (© Andrew Aylett/Getty Images)](https://www.bing.com/th?id=OHR.OloupenaFalls_EN-US2862358887_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg&w=1000)Today: [Suffragette celebrations, August 27, 1920, New York City (© Keystone/Hulton Archive/Getty Images)](https://www.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg)
 <br><br/>
