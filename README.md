@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SamuiThailand_ZH-CN3323790951_UHD.jpg&w=1000)今日图片: &nbsp;[苏梅岛的港口和长尾船, 泰国 (© Foto2rich/Shutterstock)](https://www.bing.com/th?id=OHR.SamuiThailand_ZH-CN3323790951_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LanternFestivalY26_ZH-CN9186685796_UHD.jpg&w=1000)今日图片: &nbsp;[元宵节期间悬挂的宫灯，北京自贡灯会现场，北京，中国 (© Grisha Bruev/Shutterstock)](https://www.bing.com/th?id=OHR.LanternFestivalY26_ZH-CN9186685796_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg&w=1000)Today: [Suffragette celebrations, August 27, 1920, New York City (© Keystone/Hulton Archive/Getty Images)](https://www.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&w=1000)Today: [Harbor and longtail boats at Ko Samui, Thailand (© Foto2rich/Shutterstock)](https://www.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg)
 <br><br/>
