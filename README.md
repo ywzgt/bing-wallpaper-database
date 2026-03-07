@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BrockenSunrise_ZH-CN4930790850_UHD.jpg&w=1000)今日图片: &nbsp;[布罗肯峰的日出, 哈尔茨国家公园, 德国 (© imageBROKER/AVTG/Getty Images)](https://www.bing.com/th?id=OHR.BrockenSunrise_ZH-CN4930790850_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_UHD.jpg&w=1000)今日图片: &nbsp;[乌尔姆市政厅的天文钟, 德国 (© Tomekbudujedomek/Getty Images)](https://www.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WaveDenmark_EN-US6550970747_UHD.jpg&w=1000)Today: [The Wave residential building, Vejle, Denmark (© Frank Bach/Alamy)](https://www.bing.com/th?id=OHR.WaveDenmark_EN-US6550970747_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BrockenSunrise_EN-US8849518575_UHD.jpg&w=1000)Today: [Sunrise on the Brocken, Harz National Park, Germany (© imageBROKER/AVTG/Getty Images)](https://www.bing.com/th?id=OHR.BrockenSunrise_EN-US8849518575_UHD.jpg)
 <br><br/>
