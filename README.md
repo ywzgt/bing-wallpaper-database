@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_UHD.jpg&w=1000)今日图片: &nbsp;[乌尔姆市政厅的天文钟, 德国 (© Tomekbudujedomek/Getty Images)](https://www.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NappingSeal_ZH-CN9424683964_UHD.jpg&w=1000)今日图片: &nbsp;[在海滩上睡觉的灰海豹, 奥克尼群岛, 苏格兰 (© Andrew Mason/Minden Pictures)](https://www.bing.com/th?id=OHR.NappingSeal_ZH-CN9424683964_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BrockenSunrise_EN-US8849518575_UHD.jpg&w=1000)Today: [Sunrise on the Brocken, Harz National Park, Germany (© imageBROKER/AVTG/Getty Images)](https://www.bing.com/th?id=OHR.BrockenSunrise_EN-US8849518575_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.UlmClock_EN-US6692804943_UHD.jpg&w=1000)Today: [Astronomical clock at Town Hall of the City of Ulm, Germany (© Tomekbudujedomek/Getty Images)](https://www.bing.com/th?id=OHR.UlmClock_EN-US6692804943_UHD.jpg)
 <br><br/>
