@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.CornwallDolmen_ZH-CN0045468799_UHD.jpg&w=1000)今日图片: &nbsp;[兰扬石门，位于英格兰康沃尔郡的一座兰扬新石器时代石棚墓，英国 (© Helen Hotson/Alamy)](https://www.bing.com/th?id=OHR.CornwallDolmen_ZH-CN0045468799_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PacificRimNP_ZH-CN0350089584_UHD.jpg&w=1000)今日图片: &nbsp;[太平洋沿岸国家公园保护区，温哥华岛，加拿大 (© EmilyNorton/Getty Images)](https://www.bing.com/th?id=OHR.PacificRimNP_ZH-CN0350089584_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.VendeeVaults_EN-US7120114878_UHD.jpg&w=1000)Today: [Vaults of the Church of Notre Dame de Bon-Port, Les Sables-d'Olonne, France (© Helmut Meyer zur Capellen/Alamy)](https://www.bing.com/th?id=OHR.VendeeVaults_EN-US7120114878_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CornwallDolmen_EN-US7192709883_UHD.jpg&w=1000)Today: [Lanyon Quoit, a Neolithic dolmen in Cornwall, England (© Helen Hotson/Alamy)](https://www.bing.com/th?id=OHR.CornwallDolmen_EN-US7192709883_UHD.jpg)
 <br><br/>
