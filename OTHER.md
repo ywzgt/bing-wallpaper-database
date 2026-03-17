@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.DonegalFort_JA-JP7751564474_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アイリーチのグリアナン, アイルランド (© aluxum/Getty Images)](https://www.bing.com/th?id=OHR.DonegalFort_JA-JP7751564474_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PortlandBlossoms_JA-JP9732254183_UHD.jpg&w=1000)今日の壁紙: &nbsp;[トム・マッコール・ウォーターフロント・パーク, 米国 オレゴン州 (© Eric Vogt/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.PortlandBlossoms_JA-JP9732254183_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.DonegalFort_FR-FR9519864850_UHD.jpg&w=1000)Today: [Grianan d’Aileach, fort circulaire, Donegal, Irlande (© Lukassek/Getty Images)](https://www.bing.com/th?id=OHR.DonegalFort_FR-FR9519864850_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.DonegalFort_ES-ES3467375923_UHD.jpg&w=1000)Today: [Fuerte circular de Grianán de Ailech, Donegal, Irlanda (© aluxum/Getty Images)](https://www.bing.com/th?id=OHR.DonegalFort_ES-ES3467375923_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PandaForest_EN-GB2508441209_UHD.jpg&w=1000)Today: [Giant panda eating bamboo, China (© Entwicklungsknecht/Getty Images)](https://www.bing.com/th?id=OHR.PandaForest_EN-GB2508441209_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DonegalFort_EN-GB9523764542_UHD.jpg&w=1000)Today: [Grianan of Aileach ring fort, Donegal, Ireland (© aluxum/Getty Images)](https://www.bing.com/th?id=OHR.DonegalFort_EN-GB9523764542_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.DonegalFort_IT-IT6683615812_UHD.jpg&w=1000)Today: [Forte circolare di Grianan of Aileach, Donegal, Irlanda (© aluxum/Getty Images)](https://www.bing.com/th?id=OHR.DonegalFort_IT-IT6683615812_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PandaForest_PT-BR1839174805_UHD.jpg&w=1000)Today: [Panda-gigante comendo bambu, China (© Entwicklungsknecht/Getty Images)](https://www.bing.com/th?id=OHR.PandaForest_PT-BR1839174805_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DonegalFort_PT-BR2211224155_UHD.jpg&w=1000)Today: [Forte Grianán de Aileach, Donegal, Irlanda (© aluxum/Getty Images)](https://www.bing.com/th?id=OHR.DonegalFort_PT-BR2211224155_UHD.jpg)
 <br><br/>
