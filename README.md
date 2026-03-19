@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.EchidnaAustralia_ZH-CN0913792118_UHD.jpg&w=1000)今日图片: &nbsp;[澳洲针鼹，阿德莱德山，澳大利亚 (© Etienne Littlefair/naturepl.com)](https://www.bing.com/th?id=OHR.EchidnaAustralia_ZH-CN0913792118_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpringEquinoxY26_ZH-CN7450181382_UHD.jpg&w=1000)今日图片: &nbsp;[春日樱花，上海，中国 (© junyyeung/Getty Images)](https://www.bing.com/th?id=OHR.SpringEquinoxY26_ZH-CN7450181382_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_UHD.jpg&w=1000)Today: [Cherry blossoms at Tom McCall Waterfront Park, Portland, Oregon (© Eric Vogt/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EchidnaAustralia_EN-US7660451296_UHD.jpg&w=1000)Today: [Short-beaked echidna, Adelaide Hills, Australia (© Etienne Littlefair/naturepl.com)](https://www.bing.com/th?id=OHR.EchidnaAustralia_EN-US7660451296_UHD.jpg)
 <br><br/>
