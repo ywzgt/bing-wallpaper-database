@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ManateeSpring_ZH-CN5252847120_UHD.jpg&w=1000)今日图片: &nbsp;[淡水泉中的幼年海牛，水晶河，佛罗里达州，美国 (© Gregory Sweeney/Getty Images)](https://www.bing.com/th?id=OHR.ManateeSpring_ZH-CN5252847120_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LoganCreek_ZH-CN5372283365_UHD.jpg&w=1000)今日图片: &nbsp;[洛根溪吊桥，西海岸步道，加拿大 (© Tandem Stock/Adobe Stock)](https://www.bing.com/th?id=OHR.LoganCreek_ZH-CN5372283365_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WuhanCherryBlossom_EN-US5963967452_UHD.jpg&w=1000)Today: [Cherry blossoms at East Lake Cherry Blossom Park, Wuhan, China (© Zhang Qiao/VCG/Getty Images)](https://www.bing.com/th?id=OHR.WuhanCherryBlossom_EN-US5963967452_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ManateeSpring_EN-US1203685327_UHD.jpg&w=1000)Today: [Juvenile manatees in a freshwater spring, Crystal River, Florida (© Gregory Sweeney/Getty Images)](https://www.bing.com/th?id=OHR.ManateeSpring_EN-US1203685327_UHD.jpg)
 <br><br/>
