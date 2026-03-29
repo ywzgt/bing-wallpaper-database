@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.PeggysLighthouse_JA-JP4636734313_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ペギーズ・ポイント灯台, カナダ (© Prashanth Bala/Shutterstock)](https://www.bing.com/th?id=OHR.PeggysLighthouse_JA-JP4636734313_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IndiaCranes_JA-JP0130275400_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アネハヅル, インド (© Axel Gomille/Nature Picture Library)](https://www.bing.com/th?id=OHR.IndiaCranes_JA-JP0130275400_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PeggysLighthouse_FR-FR2942871002_UHD.jpg&w=1000)Today: [Phare de Peggy’s Cove, Nouvelle-Écosse, Canada (© Prashanth Bala/Shutterstock)](https://www.bing.com/th?id=OHR.PeggysLighthouse_FR-FR2942871002_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PeggysLighthouse_IT-IT5137466865_UHD.jpg&w=1000)Today: [Faro di Peggy's Point, costa atlantica, Nuova Scozia, Canada (© Prashanth Bala/Shutterstock)](https://www.bing.com/th?id=OHR.PeggysLighthouse_IT-IT5137466865_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CapeBuffalo_PT-BR4918930179_UHD.jpg&w=1000)Today: [Búfalo-africano, Cratera de Ngorongoro, Tanzânia (© jesuss8/500px/Getty Images)](https://www.bing.com/th?id=OHR.CapeBuffalo_PT-BR4918930179_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AniverSalvador_PT-BR9414211573_UHD.jpg&w=1000)Today: [Vista aérea do Forte de Santa Maria, Salvador, Bahia (© Uiler Costa/Shutterstock)](https://www.bing.com/th?id=OHR.AniverSalvador_PT-BR9414211573_UHD.jpg)
 <br><br/>

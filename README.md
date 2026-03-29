@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.PeggysLighthouse_ZH-CN5730463973_UHD.jpg&w=1000)今日图片: &nbsp;[佩吉角灯塔, 大西洋海岸, 新斯科舍省, 加拿大 (© Prashanth Bala/Shutterstock)](https://www.bing.com/th?id=OHR.PeggysLighthouse_ZH-CN5730463973_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IndiaCranes_ZH-CN5871338482_UHD.jpg&w=1000)今日图片: &nbsp;[蓑羽鹤, 印度 (© Axel Gomille/Nature Picture Library)](https://www.bing.com/th?id=OHR.IndiaCranes_ZH-CN5871338482_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CapeBuffalo_EN-US6304011521_UHD.jpg&w=1000)Today: [African buffalo, Ngorongoro Crater, Tanzania (© jesuss8/500px/Getty Images)](https://www.bing.com/th?id=OHR.CapeBuffalo_EN-US6304011521_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PeggysLighthouse_EN-US6365734559_UHD.jpg&w=1000)Today: [Peggy's Point Lighthouse, Atlantic Coast, Nova Scotia, Canada (© Prashanth Bala/Shutterstock)](https://www.bing.com/th?id=OHR.PeggysLighthouse_EN-US6365734559_UHD.jpg)
 <br><br/>
