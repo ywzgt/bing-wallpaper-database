@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.JapaneseTreeFrog_ZH-CN6467379766_UHD.jpg&w=1000)今日图片: &nbsp;[粉色牵牛花里的日本树蛙 (© Tetsuya Tanooka/Getty Images)](https://www.bing.com/th?id=OHR.JapaneseTreeFrog_ZH-CN6467379766_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WildflowerValley_ZH-CN7048300331_UHD.jpg&w=1000)今日图片: &nbsp;[野花绽放, 中央谷地, 加利福尼亚州, 美国 (© Jeff Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.WildflowerValley_ZH-CN7048300331_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ParadiseCave_EN-US6470755729_UHD.jpg&w=1000)Today: [Paradise Cave, Phong Nha-Ke Bang National Park, Vietnam (© Pakawat Thongcharoen/Getty Images)](https://www.bing.com/th?id=OHR.ParadiseCave_EN-US6470755729_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JapaneseTreeFrog_EN-US6527297660_UHD.jpg&w=1000)Today: [Japanese tree frog in a pink morning glory (© Tetsuya Tanooka/Getty Images)](https://www.bing.com/th?id=OHR.JapaneseTreeFrog_EN-US6527297660_UHD.jpg)
 <br><br/>
