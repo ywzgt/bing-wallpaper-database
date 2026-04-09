@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.WalesWaterfall_ZH-CN3175091833_UHD.jpg&w=1000)今日图片: &nbsp;[雪落瀑布，布雷肯比肯斯国家公园，威尔士 (© Guy Edwardes/Nature Picture Library)](https://www.bing.com/th?id=OHR.WalesWaterfall_ZH-CN3175091833_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FoxSiblings_ZH-CN8133856518_UHD.jpg&w=1000)今日图片: &nbsp;[卡鲁拉国家公园的两只幼年赤狐, 爱沙尼亚 (© Sven Zacek/Nature Picture Library)](https://www.bing.com/th?id=OHR.FoxSiblings_ZH-CN8133856518_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SeattleSunrise_EN-US6729754002_UHD.jpg&w=1000)Today: [Seattle, Washington (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SeattleSunrise_EN-US6729754002_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WalesWaterfall_EN-US7187055503_UHD.jpg&w=1000)Today: [Sgwd yr Eira waterfall, Bannau Brycheiniog National Park, Wales (© Guy Edwardes/Nature Picture Library)](https://www.bing.com/th?id=OHR.WalesWaterfall_EN-US7187055503_UHD.jpg)
 <br><br/>
