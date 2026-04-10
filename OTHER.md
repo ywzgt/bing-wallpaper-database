@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.FoxSiblings_JA-JP3895166955_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アカギツネ, エストニア (© Sven Zacek/Nature Picture Library)](https://www.bing.com/th?id=OHR.FoxSiblings_JA-JP3895166955_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PlayaPapagayo_JA-JP3931450183_UHD.jpg&w=1000)今日の壁紙: &nbsp;[パパガヨビーチ, スペイン (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.PlayaPapagayo_JA-JP3931450183_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.FoxSiblings_FR-FR2060814821_UHD.jpg&w=1000)Today: [Deux renardeaux dans le parc national de Karula, Estonie (© Sven Zacek/Nature Picture Library)](https://www.bing.com/th?id=OHR.FoxSiblings_FR-FR2060814821_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.FoxSiblings_IT-IT2265403232_UHD.jpg&w=1000)Today: [Due giovani volpi rosse nel parco nazionale di Karula, Estonia (© Sven Zacek/Nature Picture Library)](https://www.bing.com/th?id=OHR.FoxSiblings_IT-IT2265403232_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WalesWaterfall_PT-BR0581576089_UHD.jpg&w=1000)Today: [Cachoeira Sgwd yr Eira, Parque Nacional Bannau Brycheiniog, País de Gales (© Guy Edwardes/Nature Picture Library)](https://www.bing.com/th?id=OHR.WalesWaterfall_PT-BR0581576089_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FoxSiblings_PT-BR8556332382_UHD.jpg&w=1000)Today: [Jovens raposas-vermelhas no Parque Nacional de Karula, Estônia (© Sven Zacek/Nature Picture Library)](https://www.bing.com/th?id=OHR.FoxSiblings_PT-BR8556332382_UHD.jpg)
 <br><br/>
