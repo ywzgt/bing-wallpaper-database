@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.FlyingFoxMom_JA-JP9261315523_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ハイイロオオコウモリ, オーストラリア (© Doug Gimesy/Nature Picture Library)](https://www.bing.com/th?id=OHR.FlyingFoxMom_JA-JP9261315523_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MaoiStatues_JA-JP0155278246_UHD.jpg&w=1000)今日の壁紙: &nbsp;[モアイ像, チリ (© Gavin Hellier/Alamy)](https://www.bing.com/th?id=OHR.MaoiStatues_JA-JP0155278246_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.FlyingFoxMom_FR-FR4854001946_UHD.jpg&w=1000)Today: [Femelle renard volant à tête grise portant son petit, Yarra Bend Park, Australie (© Doug Gimesy/Nature Picture Library)](https://www.bing.com/th?id=OHR.FlyingFoxMom_FR-FR4854001946_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.FlyingFoxMom_IT-IT3683219154_UHD.jpg&w=1000)Today: [Pipistrello con il suo cucciolo, Yarra Bend Park, Australia (© Doug Gimesy/Nature Picture Library)](https://www.bing.com/th?id=OHR.FlyingFoxMom_IT-IT3683219154_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SkagitTulips_PT-BR0165091491_UHD.jpg&w=1000)Today: [Campos de tulipas do Vale Skagit, Washington, Estados Unidos (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.SkagitTulips_PT-BR0165091491_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FlyingFoxMom_PT-BR4423451974_UHD.jpg&w=1000)Today: [Raposa-voadora-de-cabeça-cinzenta com filhote, Parque Yarra Bend, Austrália (© Doug Gimesy/Nature Picture Library)](https://www.bing.com/th?id=OHR.FlyingFoxMom_PT-BR4423451974_UHD.jpg)
 <br><br/>
