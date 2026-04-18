@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_UHD.jpg&w=1000)今日图片: &nbsp;[摩艾石像采石场，拉诺拉拉库，复活节岛，智利 (© Gavin Hellier/Alamy)](https://www.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_UHD.jpg&w=1000)今日图片: &nbsp;[镜面海滩，塞古罗港，巴伊亚州，巴西 (© Marcelo Nacinovic/Getty Images)](https://www.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.FlyingFoxMom_EN-US0502464388_UHD.jpg&w=1000)Today: [Grey-headed flying fox carrying her pup, Yarra Bend Park, Australia (© Doug Gimesy/Nature Picture Library)](https://www.bing.com/th?id=OHR.FlyingFoxMom_EN-US0502464388_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MaoiStatues_EN-US0752877903_UHD.jpg&w=1000)Today: [Moai statue quarry, Rano Raraku, Easter Island, Chile (© Gavin Hellier/Alamy)](https://www.bing.com/th?id=OHR.MaoiStatues_EN-US0752877903_UHD.jpg)
 <br><br/>

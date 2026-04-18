@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MaoiStatues_JA-JP0155278246_UHD.jpg&w=1000)今日の壁紙: &nbsp;[モアイ像, チリ (© Gavin Hellier/Alamy)](https://www.bing.com/th?id=OHR.MaoiStatues_JA-JP0155278246_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BelemTowerBank_JA-JP0304685153_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ベレンの塔, ポルトガル (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.BelemTowerBank_JA-JP0304685153_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MillauViaductFrance_FR-FR3718442345_UHD.jpg&w=1000)Today: [Vue aérienne du Viaduc de Millau (© Sergi Reboredo/Alamy)](https://www.bing.com/th?id=OHR.MillauViaductFrance_FR-FR3718442345_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MaoiStatues_IT-IT3537431977_UHD.jpg&w=1000)Today: [Cava delle statue moai, Rano Raraku, Isola di Pasqua, Cile (© Gavin Hellier/Alamy)](https://www.bing.com/th?id=OHR.MaoiStatues_IT-IT3537431977_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.FlyingFoxMom_PT-BR4423451974_UHD.jpg&w=1000)Today: [Raposa-voadora-de-cabeça-cinzenta com filhote, Parque Yarra Bend, Austrália (© Doug Gimesy/Nature Picture Library)](https://www.bing.com/th?id=OHR.FlyingFoxMom_PT-BR4423451974_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MaoiStatues_PT-BR8807635419_UHD.jpg&w=1000)Today: [Estátuas moai, Rano Raraku, Ilha de Páscoa, Chile (© Gavin Hellier/Alamy)](https://www.bing.com/th?id=OHR.MaoiStatues_PT-BR8807635419_UHD.jpg)
 <br><br/>
