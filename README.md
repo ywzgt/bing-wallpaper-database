@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_UHD.jpg&w=1000)今日图片: &nbsp;[镜面海滩，塞古罗港，巴伊亚州，巴西 (© Marcelo Nacinovic/Getty Images)](https://www.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SunsetKiva_ZH-CN3978606378_UHD.jpg&w=1000)今日图片: &nbsp;[夕阳下的峡谷地国家公园，莫阿布，犹他州，美国 (© Jason Hatfield/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SunsetKiva_ZH-CN3978606378_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MaoiStatues_EN-US0752877903_UHD.jpg&w=1000)Today: [Moai statue quarry, Rano Raraku, Easter Island, Chile (© Gavin Hellier/Alamy)](https://www.bing.com/th?id=OHR.MaoiStatues_EN-US0752877903_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LibraryWeek_EN-US0888768835_UHD.jpg&w=1000)Today: [Books in the children's section of The New York Public Library, New York (© Ken Welsh/Alamy)](https://www.bing.com/th?id=OHR.LibraryWeek_EN-US0888768835_UHD.jpg)
 <br><br/>

@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BelemTowerBank_JA-JP0304685153_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ベレンの塔, ポルトガル (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.BelemTowerBank_JA-JP0304685153_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SunsetKiva_JA-JP0609102045_UHD.jpg&w=1000)今日の壁紙: &nbsp;[キャニオンランズ国立公園, 米国 ユタ州 (© Jason Hatfield/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SunsetKiva_JA-JP0609102045_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TranBA_FR-FR8282585117_UHD.jpg&w=1000)Today: [Plage du Miroir, Trancoso, Bahia, Brésil (© Marcelo Nacinovic/Getty Images)](https://www.bing.com/th?id=OHR.TranBA_FR-FR8282585117_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TranBA_IT-IT3445564294_UHD.jpg&w=1000)Today: [Spiaggia di Espelho, Trancoso, Bahia, Brasile (© Marcelo Nacinovic/Getty Images)](https://www.bing.com/th?id=OHR.TranBA_IT-IT3445564294_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MaoiStatues_PT-BR8807635419_UHD.jpg&w=1000)Today: [Estátuas moai, Rano Raraku, Ilha de Páscoa, Chile (© Gavin Hellier/Alamy)](https://www.bing.com/th?id=OHR.MaoiStatues_PT-BR8807635419_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.InDay_PT-BR0410116846_UHD.jpg&w=1000)Today: [Cocar artesanal de povo indígena brasileiro (© Felipe Gustavo S Borges/Getty Images)](https://www.bing.com/th?id=OHR.InDay_PT-BR0410116846_UHD.jpg)
 <br><br/>
