@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SunsetKiva_JA-JP0609102045_UHD.jpg&w=1000)今日の壁紙: &nbsp;[キャニオンランズ国立公園, 米国 ユタ州 (© Jason Hatfield/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SunsetKiva_JA-JP0609102045_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpringHedgehog_JA-JP0798616014_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ハリネズミ, フランス (© Klein & Hubert/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpringHedgehog_JA-JP0798616014_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SunsetKiva_FR-FR2289691113_UHD.jpg&w=1000)Today: [Coucher de soleil sur le parc national des Canyonlands, Moab, Utah, États-Unis (© Jason Hatfield/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SunsetKiva_FR-FR2289691113_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SunsetKiva_IT-IT3389674511_UHD.jpg&w=1000)Today: [Tramonto nel parco nazionale delle Canyonlands, Moab, Utah, USA (© Jason Hatfield/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SunsetKiva_IT-IT3389674511_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.InDay_PT-BR0410116846_UHD.jpg&w=1000)Today: [Cocar artesanal de povo indígena brasileiro (© Felipe Gustavo S Borges/Getty Images)](https://www.bing.com/th?id=OHR.InDay_PT-BR0410116846_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SunsetKiva_PT-BR9614863102_UHD.jpg&w=1000)Today: [Pôr do sol no Parque Nacional de Canyonlands, Moab, Utah, Estados Unidos (© Jason Hatfield/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SunsetKiva_PT-BR9614863102_UHD.jpg)
 <br><br/>
