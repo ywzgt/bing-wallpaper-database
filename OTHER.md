@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.HathawayCottage_JA-JP0891184783_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アン・ハサウェイのコテージ, イングランド (© David Steele/Shutterstock)](https://www.bing.com/th?id=OHR.HathawayCottage_JA-JP0891184783_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SlashPine_JA-JP0980166238_UHD.jpg&w=1000)今日の壁紙: &nbsp;[エバーグレーズ国立公園, 米国 フロリダ州 (© Mary Liz Austin/Alamy)](https://www.bing.com/th?id=OHR.SlashPine_JA-JP0980166238_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.HathawayCottage_FR-FR2526098713_UHD.jpg&w=1000)Today: [Cottage d’Anne Hathaway, Stratford-upon-Avon, Angleterre (© David Steele/Shutterstock)](https://www.bing.com/th?id=OHR.HathawayCottage_FR-FR2526098713_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.HathawayCottage_IT-IT3206612879_UHD.jpg&w=1000)Today: [Cottage di Anne Hathaway, Stratford-upon-Avon, Inghilterra (© David Steele/Shutterstock)](https://www.bing.com/th?id=OHR.HathawayCottage_IT-IT3206612879_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TartuEstonia_PT-BR2801749923_UHD.jpg&w=1000)Today: [Reserva Natural Alam-Pedja, Condado de Tartu, Estônia (© Sven Zacek/Nature Picture Library)](https://www.bing.com/th?id=OHR.TartuEstonia_PT-BR2801749923_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HathawayCottage_PT-BR3455628548_UHD.jpg&w=1000)Today: [Chalé de Anne Hathaway, Stratford-upon-Avon, Inglaterra (© David Steele/Shutterstock)](https://www.bing.com/th?id=OHR.HathawayCottage_PT-BR3455628548_UHD.jpg)
 <br><br/>
