@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SlashPine_JA-JP0980166238_UHD.jpg&w=1000)今日の壁紙: &nbsp;[エバーグレーズ国立公園, 米国 フロリダ州 (© Mary Liz Austin/Alamy)](https://www.bing.com/th?id=OHR.SlashPine_JA-JP0980166238_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GalapagosPenguins_JA-JP8635536385_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ガラパゴスペンギン, エクアドル (© Henley Spiers/Nature Picture Library)](https://www.bing.com/th?id=OHR.GalapagosPenguins_JA-JP8635536385_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.FlamingoAiguesMortes_FR-FR6537694195_UHD.jpg&w=1000)Today: [Flamant rose, Aigues-Mortes (© EyeEm Mobile GmbH/Getty Images Plus)](https://www.bing.com/th?id=OHR.FlamingoAiguesMortes_FR-FR6537694195_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SlashPine_IT-IT3134964767_UHD.jpg&w=1000)Today: [Pini nel parco nazionale delle Everglades, Florida, USA (© Mary Liz Austin/Alamy)](https://www.bing.com/th?id=OHR.SlashPine_IT-IT3134964767_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HathawayCottage_PT-BR3455628548_UHD.jpg&w=1000)Today: [Chalé de Anne Hathaway, Stratford-upon-Avon, Inglaterra (© David Steele/Shutterstock)](https://www.bing.com/th?id=OHR.HathawayCottage_PT-BR3455628548_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TranBA_PT-BR9169558101_UHD.jpg&w=1000)Today: [Praia do Espelho, Porto Seguro, Bahia (© Marcelo Nacinovic/Getty Images)](https://www.bing.com/th?id=OHR.TranBA_PT-BR9169558101_UHD.jpg)
 <br><br/>
