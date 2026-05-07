@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Kofa_ZH-CN0584573563_UHD.jpg&w=1000)今日图片: &nbsp;[科法国家野生动物保护区，亚利桑那州，美国 (© Denis Tangney Jr/Getty Images)](https://www.bing.com/th?id=OHR.Kofa_ZH-CN0584573563_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_UHD.jpg&w=1000)今日图片: &nbsp;[撒丁岛母驴和幼崽, 法国 (© Klein & Hubert/Nature Picture Library)](https://www.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BulgariaPlains_EN-US0576020979_UHD.jpg&w=1000)Today: [Thunderstorm above the plains, Bulgaria (© Revolu7ion93/Getty Images)](https://www.bing.com/th?id=OHR.BulgariaPlains_EN-US0576020979_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Kofa_EN-US0655690866_UHD.jpg&w=1000)Today: [Kofa National Wildlife Refuge, Arizona (© Denis Tangney Jr/Getty Images)](https://www.bing.com/th?id=OHR.Kofa_EN-US0655690866_UHD.jpg)
 <br><br/>
