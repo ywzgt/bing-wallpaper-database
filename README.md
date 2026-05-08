@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_UHD.jpg&w=1000)今日图片: &nbsp;[撒丁岛母驴和幼崽, 法国 (© Klein & Hubert/Nature Picture Library)](https://www.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SkradinskiBuk_ZH-CN0882603359_UHD.jpg&w=1000)今日图片: &nbsp;[克尔卡国家公园的斯克拉丁斯基布克瀑布, 克罗地亚 (© Amazing Aerial Agency/Adobe Stock)](https://www.bing.com/th?id=OHR.SkradinskiBuk_ZH-CN0882603359_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Kofa_EN-US0655690866_UHD.jpg&w=1000)Today: [Kofa National Wildlife Refuge, Arizona (© Denis Tangney Jr/Getty Images)](https://www.bing.com/th?id=OHR.Kofa_EN-US0655690866_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SardinianDonkey_EN-US0705945312_UHD.jpg&w=1000)Today: [Sardinian donkey mare and foal, France (© Klein & Hubert/Nature Picture Library)](https://www.bing.com/th?id=OHR.SardinianDonkey_EN-US0705945312_UHD.jpg)
 <br><br/>
