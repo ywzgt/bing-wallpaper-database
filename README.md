@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SkradinskiBuk_ZH-CN0882603359_UHD.jpg&w=1000)今日图片: &nbsp;[克尔卡国家公园的斯克拉丁斯基布克瀑布, 克罗地亚 (© Amazing Aerial Agency/Adobe Stock)](https://www.bing.com/th?id=OHR.SkradinskiBuk_ZH-CN0882603359_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MotherCub_ZH-CN0999123163_UHD.jpg&w=1000)今日图片: &nbsp;[北极熊妈妈和幼崽在瓦普斯克国家公园玩耍, 马尼托巴省, 加拿大 (© Hao Jiang/Getty Images)](https://www.bing.com/th?id=OHR.MotherCub_ZH-CN0999123163_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SardinianDonkey_EN-US0705945312_UHD.jpg&w=1000)Today: [Sardinian donkey mare and foal, France (© Klein & Hubert/Nature Picture Library)](https://www.bing.com/th?id=OHR.SardinianDonkey_EN-US0705945312_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SkradinskiBuk_EN-US0750882952_UHD.jpg&w=1000)Today: [Skradinski Buk Waterfall in Krka National Park, Croatia (© Amazing Aerial Agency/Adobe Stock)](https://www.bing.com/th?id=OHR.SkradinskiBuk_EN-US0750882952_UHD.jpg)
 <br><br/>
