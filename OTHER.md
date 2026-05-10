@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MotherCub_JA-JP7023780399_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ホッキョクグマ, カナダ (© Hao Jiang/Getty Images)](https://www.bing.com/th?id=OHR.MotherCub_JA-JP7023780399_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.QueenslandReef_JA-JP5966336342_UHD.jpg&w=1000)今日の壁紙: &nbsp;[グレートバリアリーフ, オーストラリア (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.QueenslandReef_JA-JP5966336342_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.Fratercula_FR-FR5694797887_UHD.jpg&w=1000)Today: [Macareux moines, Pays de Galles (© FLPA/Alamy)](https://www.bing.com/th?id=OHR.Fratercula_FR-FR5694797887_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BlackWoodpeck_IT-IT3489847449_UHD.jpg&w=1000)Today: [Madre picchio nero che nutre i piccoli (© Paolino Massimiliano Manuel/iStock/Getty Images)](https://www.bing.com/th?id=OHR.BlackWoodpeck_IT-IT3489847449_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SkradinskiBuk_PT-BR0487260781_UHD.jpg&w=1000)Today: [Cachoeira Skradinski Buk no Parque Nacional Krka, Croácia (© Amazing Aerial Agency/Adobe Stock)](https://www.bing.com/th?id=OHR.SkradinskiBuk_PT-BR0487260781_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MotherCub_PT-BR2196589197_UHD.jpg&w=1000)Today: [Ursa-polar e filhotes brincando no Parque Nacional Wapusk, Manitoba, Canadá (© Hao Jiang/Getty Images)](https://www.bing.com/th?id=OHR.MotherCub_PT-BR2196589197_UHD.jpg)
 <br><br/>
