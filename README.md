@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.QueenslandReef_ZH-CN1138150002_UHD.jpg&w=1000)今日图片: &nbsp;[从上方俯瞰大堡礁, 昆士兰州, 澳大利亚 (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.QueenslandReef_ZH-CN1138150002_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Fratercula_ZH-CN1239275412_UHD.jpg&w=1000)今日图片: &nbsp;[北极海鹦, 威尔士 (© FLPA/Alamy)](https://www.bing.com/th?id=OHR.Fratercula_ZH-CN1239275412_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MotherCub_EN-US0916425414_UHD.jpg&w=1000)Today: [Polar bear mother and cubs playing in Wapusk National Park, Manitoba, Canada (© Hao Jiang/Getty Images)](https://www.bing.com/th?id=OHR.MotherCub_EN-US0916425414_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.QueenslandReef_EN-US0977236952_UHD.jpg&w=1000)Today: [Great Barrier Reef from above, Queensland, Australia (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.QueenslandReef_EN-US0977236952_UHD.jpg)
 <br><br/>

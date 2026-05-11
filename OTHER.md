@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.QueenslandReef_JA-JP5966336342_UHD.jpg&w=1000)今日の壁紙: &nbsp;[グレートバリアリーフ, オーストラリア (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.QueenslandReef_JA-JP5966336342_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Fratercula_JA-JP6144226561_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ニシツノメドリ, ウェールズ (© FLPA/Alamy)](https://www.bing.com/th?id=OHR.Fratercula_JA-JP6144226561_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.QueenslandReef_FR-FR7051247989_UHD.jpg&w=1000)Today: [Vue aérienne de la Grande Barrière de Corail, Queensland, Australie (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.QueenslandReef_FR-FR7051247989_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.QueenslandReef_IT-IT3740031953_UHD.jpg&w=1000)Today: [Grande Barriera Corallina, Queensland, Australia (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.QueenslandReef_IT-IT3740031953_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MotherCub_PT-BR2196589197_UHD.jpg&w=1000)Today: [Ursa-polar e filhotes brincando no Parque Nacional Wapusk, Manitoba, Canadá (© Hao Jiang/Getty Images)](https://www.bing.com/th?id=OHR.MotherCub_PT-BR2196589197_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.QueenslandReef_PT-BR2906227798_UHD.jpg&w=1000)Today: [Grande Barreira de Corais, Queensland, Austrália (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.QueenslandReef_PT-BR2906227798_UHD.jpg)
 <br><br/>
