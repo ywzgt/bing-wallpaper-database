@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.Fratercula_JA-JP6144226561_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ニシツノメドリ, ウェールズ (© FLPA/Alamy)](https://www.bing.com/th?id=OHR.Fratercula_JA-JP6144226561_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.QueenslandReef_FR-FR7051247989_UHD.jpg&w=1000)Today: [Vue aérienne de la Grande Barrière de Corail, Queensland, Australie (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.QueenslandReef_FR-FR7051247989_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChairsCannes_FR-FR7320484740_UHD.jpg&w=1000)Today: [Des chaises attendent l'arrivée des célébrités et des cinéphiles au Festival de Cannes (© Christopher Furlong/Getty Images)](https://www.bing.com/th?id=OHR.ChairsCannes_FR-FR7320484740_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.QueenslandReef_DE-DE8475072784_UHD.jpg&w=1000)Today: [Great Barrier Reef aus der Luft, Queensland, Australien (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.QueenslandReef_DE-DE8475072784_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Fratercula_DE-DE8669315365_UHD.jpg&w=1000)Today: [Papageitaucher, Wales (© FLPA/Alamy)](https://www.bing.com/th?id=OHR.Fratercula_DE-DE8669315365_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.QueenslandReef_ES-ES8051074781_UHD.jpg&w=1000)Today: [Gran Barrera de Coral desde el aire, Queensland, Australia (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.QueenslandReef_ES-ES8051074781_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Fratercula_ES-ES7096599670_UHD.jpg&w=1000)Today: [Frailecillos atlánticos, Gales (© FLPA/Alamy)](https://www.bing.com/th?id=OHR.Fratercula_ES-ES7096599670_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.QueenslandReef_EN-GB1671253384_UHD.jpg&w=1000)Today: [Great Barrier Reef from above, Queensland, Australia (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.QueenslandReef_EN-GB1671253384_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Fratercula_EN-GB2057712590_UHD.jpg&w=1000)Today: [Atlantic puffins, Wales (© FLPA/Alamy)](https://www.bing.com/th?id=OHR.Fratercula_EN-GB2057712590_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.QueenslandReef_IT-IT3740031953_UHD.jpg&w=1000)Today: [Grande Barriera Corallina, Queensland, Australia (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.QueenslandReef_IT-IT3740031953_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Fratercula_IT-IT3997548905_UHD.jpg&w=1000)Today: [Pulcinelle di mare, Galles (© FLPA/Alamy)](https://www.bing.com/th?id=OHR.Fratercula_IT-IT3997548905_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.QueenslandReef_PT-BR2906227798_UHD.jpg&w=1000)Today: [Grande Barreira de Corais, Queensland, Austrália (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.QueenslandReef_PT-BR2906227798_UHD.jpg)
 <br><br/>
