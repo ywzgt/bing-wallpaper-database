@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AlabamaHills_JA-JP6287825652_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アラバマヒルズ, 米国 カリフォルニア州 (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.AlabamaHills_JA-JP6287825652_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Pitigliano_JA-JP6741766886_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ピティリアーノ, イタリア (© bluejayphoto/Getty Images Plus)](https://www.bing.com/th?id=OHR.Pitigliano_JA-JP6741766886_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AlabamaHills_FR-FR7595844295_UHD.jpg&w=1000)Today: [Voie lactée et arche naturelle, Alabama Hills, Sierra Nevada, Californie, États-Unis (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.AlabamaHills_FR-FR7595844295_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AlabamaHills_IT-IT1042624581_UHD.jpg&w=1000)Today: [Arco e Via Lattea, Alabama Hills, Sierra Nevada, California, USA (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.AlabamaHills_IT-IT1042624581_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Fratercula_PT-BR3505081741_UHD.jpg&w=1000)Today: [Papagaios-do-mar, País de Gales (© FLPA/Alamy)](https://www.bing.com/th?id=OHR.Fratercula_PT-BR3505081741_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AlabamaHills_PT-BR6088970693_UHD.jpg&w=1000)Today: [Arco rochoso e Via Láctea, Alabama Hills, Sierra Nevada, Califórnia, EUA (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.AlabamaHills_PT-BR6088970693_UHD.jpg)
 <br><br/>

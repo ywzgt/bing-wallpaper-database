@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AlabamaHills_ZH-CN1387018045_UHD.jpg&w=1000)今日图片: &nbsp;[拱门与银河, 阿拉巴马山, 内华达山脉, 加利福尼亚州, 美国 (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.AlabamaHills_ZH-CN1387018045_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Pitigliano_ZH-CN1509921892_UHD.jpg&w=1000)今日图片: &nbsp;[中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利 (© bluejayphoto/Getty Images Plus)](https://www.bing.com/th?id=OHR.Pitigliano_ZH-CN1509921892_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Fratercula_EN-US1020898539_UHD.jpg&w=1000)Today: [Atlantic puffins, Wales (© FLPA/Alamy)](https://www.bing.com/th?id=OHR.Fratercula_EN-US1020898539_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AlabamaHills_EN-US1154221052_UHD.jpg&w=1000)Today: [Arch and Milky Way, Alabama Hills, Sierra Nevada, California (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.AlabamaHills_EN-US1154221052_UHD.jpg)
 <br><br/>
