@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.AlabamaHills_JA-JP6287825652_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アラバマヒルズ, 米国 カリフォルニア州 (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.AlabamaHills_JA-JP6287825652_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ChairsCannes_FR-FR7320484740_UHD.jpg&w=1000)Today: [Des chaises attendent l'arrivée des célébrités et des cinéphiles au Festival de Cannes (© Christopher Furlong/Getty Images)](https://www.bing.com/th?id=OHR.ChairsCannes_FR-FR7320484740_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AlabamaHills_FR-FR7595844295_UHD.jpg&w=1000)Today: [Voie lactée et arche naturelle, Alabama Hills, Sierra Nevada, Californie, États-Unis (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.AlabamaHills_FR-FR7595844295_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Fratercula_DE-DE8669315365_UHD.jpg&w=1000)Today: [Papageitaucher, Wales (© FLPA/Alamy)](https://www.bing.com/th?id=OHR.Fratercula_DE-DE8669315365_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AlabamaHills_DE-DE8956133719_UHD.jpg&w=1000)Today: [Felsbogen und Milchstraße, Alabama Hills, Sierra Nevada, Kalifornien, USA (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.AlabamaHills_DE-DE8956133719_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Fratercula_ES-ES7096599670_UHD.jpg&w=1000)Today: [Frailecillos atlánticos, Gales (© FLPA/Alamy)](https://www.bing.com/th?id=OHR.Fratercula_ES-ES7096599670_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AlabamaHills_ES-ES6766032995_UHD.jpg&w=1000)Today: [Arco y Vía Láctea, Alabama Hills, Sierra Nevada, California, EE. UU. (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.AlabamaHills_ES-ES6766032995_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Fratercula_EN-GB2057712590_UHD.jpg&w=1000)Today: [Atlantic puffins, Wales (© FLPA/Alamy)](https://www.bing.com/th?id=OHR.Fratercula_EN-GB2057712590_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AlabamaHills_EN-GB2646719010_UHD.jpg&w=1000)Today: [Arch and Milky Way, Alabama Hills, Sierra Nevada, California, United States (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.AlabamaHills_EN-GB2646719010_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Fratercula_IT-IT3997548905_UHD.jpg&w=1000)Today: [Pulcinelle di mare, Galles (© FLPA/Alamy)](https://www.bing.com/th?id=OHR.Fratercula_IT-IT3997548905_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AlabamaHills_IT-IT1042624581_UHD.jpg&w=1000)Today: [Arco e Via Lattea, Alabama Hills, Sierra Nevada, California, USA (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.AlabamaHills_IT-IT1042624581_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.Fratercula_PT-BR3505081741_UHD.jpg&w=1000)Today: [Papagaios-do-mar, País de Gales (© FLPA/Alamy)](https://www.bing.com/th?id=OHR.Fratercula_PT-BR3505081741_UHD.jpg)
 <br><br/>
