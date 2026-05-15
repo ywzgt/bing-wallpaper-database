@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.EndangeredWhales_JA-JP6796432237_UHD.jpg&w=1000)今日の壁紙: &nbsp;[マッコウクジラ, インド洋 (© Tony Wu/Nature Picture Library)](https://www.bing.com/th?id=OHR.EndangeredWhales_JA-JP6796432237_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SmithRockPark_JA-JP7493165844_UHD.jpg&w=1000)今日の壁紙: &nbsp;[スミスロック州立公園, 米国 オレゴン州 (© Alex Ratson/Getty Images)](https://www.bing.com/th?id=OHR.SmithRockPark_JA-JP7493165844_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.EndangeredWhales_FR-FR6600435943_UHD.jpg&w=1000)Today: [Famille de cachalots, Océan Indien (© Tony Wu/Nature Picture Library)](https://www.bing.com/th?id=OHR.EndangeredWhales_FR-FR6600435943_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.LenticchieNorcia_IT-IT5069422241_UHD.jpg&w=1000)Today: [Lenticchie in fiore, Castelluccio di Norcia, Perugia, Umbria (© Rudolf Ernst/iStock/Getty Images)](https://www.bing.com/th?id=OHR.LenticchieNorcia_IT-IT5069422241_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Pitigliano_PT-BR6490421583_UHD.jpg&w=1000)Today: [Cidade medieval de Pitigliano, Toscana, Itália (© bluejayphoto/Getty Images Plus)](https://www.bing.com/th?id=OHR.Pitigliano_PT-BR6490421583_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EndangeredWhales_PT-BR4927583438_UHD.jpg&w=1000)Today: [Família de cachalotes, oceano Índico (© Tony Wu/Nature Picture Library)](https://www.bing.com/th?id=OHR.EndangeredWhales_PT-BR4927583438_UHD.jpg)
 <br><br/>
