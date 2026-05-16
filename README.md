@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SmithRockPark_ZH-CN4210144402_UHD.jpg&w=1000)今日图片: &nbsp;[史密斯岩州立公园, 俄勒冈州, 美国 (© Alex Ratson/Getty Images)](https://www.bing.com/th?id=OHR.SmithRockPark_ZH-CN4210144402_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ShenandoahSunset_ZH-CN4399136794_UHD.jpg&w=1000)今日图片: &nbsp;[仙纳度国家公园的玳瑁峰, 弗吉尼亚州, 美国 (© John Baggaley/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahSunset_ZH-CN4399136794_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.EndangeredWhales_EN-US0380100553_UHD.jpg&w=1000)Today: [A family of sperm whales, Indian Ocean (© Tony Wu/Nature Picture Library)](https://www.bing.com/th?id=OHR.EndangeredWhales_EN-US0380100553_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SmithRockPark_EN-US0425629050_UHD.jpg&w=1000)Today: [Smith Rock State Park, Oregon (© Alex Ratson/Getty Images)](https://www.bing.com/th?id=OHR.SmithRockPark_EN-US0425629050_UHD.jpg)
 <br><br/>
