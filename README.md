@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ShenandoahSunset_ZH-CN4399136794_UHD.jpg&w=1000)今日图片: &nbsp;[仙纳度国家公园的玳瑁峰, 弗吉尼亚州, 美国 (© John Baggaley/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahSunset_ZH-CN4399136794_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MuseumLondon_ZH-CN5602977820_UHD.jpg&w=1000)今日图片: &nbsp;[伦敦自然历史博物馆, 英格兰 (© Colm Keating/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.MuseumLondon_ZH-CN5602977820_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SmithRockPark_EN-US0425629050_UHD.jpg&w=1000)Today: [Smith Rock State Park, Oregon (© Alex Ratson/Getty Images)](https://www.bing.com/th?id=OHR.SmithRockPark_EN-US0425629050_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_UHD.jpg&w=1000)Today: [Hawksbill Mountain in Shenandoah National Park, Virginia (© John Baggaley/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_UHD.jpg)
 <br><br/>

@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ShenandoahSunset_JA-JP8062281581_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ホークスビル山, 米国 バージニア州 (© John Baggaley/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahSunset_JA-JP8062281581_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MuseumDay2026_JA-JP8089592575_UHD.jpg&w=1000)今日の壁紙: &nbsp;[国立科学博物館, 東京 (© cowardlion/Shutterstock)](https://www.bing.com/th?id=OHR.MuseumDay2026_JA-JP8089592575_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ShenandoahSunset_FR-FR7678507020_UHD.jpg&w=1000)Today: [Hawksbill Mountain, Parc national de Shenandoah, Virginie, États-Unis (© John Baggaley/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahSunset_FR-FR7678507020_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ShenandoahSunset_IT-IT1185587153_UHD.jpg&w=1000)Today: [Monte Hawksbill, parco nazionale di Shenandoah, Virginia, USA (© John Baggaley/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahSunset_IT-IT1185587153_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Buracao_PT-BR7518499247_UHD.jpg&w=1000)Today: [Cânion do Buracão, Ibicoara, Chapada Diamantina, Bahia (© Celia Hueck/Getty Images)](https://www.bing.com/th?id=OHR.Buracao_PT-BR7518499247_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ShenandoahSunset_PT-BR7351185056_UHD.jpg&w=1000)Today: [Montanha Hawksbill, Parque Nacional de Shenandoah, Virgínia, Estados Unidos (© John Baggaley/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahSunset_PT-BR7351185056_UHD.jpg)
 <br><br/>
