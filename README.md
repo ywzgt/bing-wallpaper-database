@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MuseumLondon_ZH-CN5602977820_UHD.jpg&w=1000)今日图片: &nbsp;[伦敦自然历史博物馆, 英格兰 (© Colm Keating/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.MuseumLondon_ZH-CN5602977820_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpainLighthouse_ZH-CN6024263415_UHD.jpg&w=1000)今日图片: &nbsp;[福门托尔灯塔, 马略卡, 巴利阿里群岛, 西班牙 (© Allard Schager/Getty Images)](https://www.bing.com/th?id=OHR.SpainLighthouse_ZH-CN6024263415_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_UHD.jpg&w=1000)Today: [Hawksbill Mountain in Shenandoah National Park, Virginia (© John Baggaley/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MuseumLondon_EN-US0527592013_UHD.jpg&w=1000)Today: [Natural History Museum, London, England (© Colm Keating/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.MuseumLondon_EN-US0527592013_UHD.jpg)
 <br><br/>
