@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SpainLighthouse_ZH-CN6024263415_UHD.jpg&w=1000)今日图片: &nbsp;[福门托尔灯塔, 马略卡, 巴利阿里群岛, 西班牙 (© Allard Schager/Getty Images)](https://www.bing.com/th?id=OHR.SpainLighthouse_ZH-CN6024263415_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BumbleBee_ZH-CN6429376340_UHD.jpg&w=1000)今日图片: &nbsp;[熊蜂在授粉, 伍斯特, 英格兰 (© SimonEastwood87/Shutterstock)](https://www.bing.com/th?id=OHR.BumbleBee_ZH-CN6429376340_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MuseumLondon_EN-US0527592013_UHD.jpg&w=1000)Today: [Natural History Museum, London, England (© Colm Keating/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.MuseumLondon_EN-US0527592013_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpainLighthouse_EN-US0598364035_UHD.jpg&w=1000)Today: [Formentor Lighthouse, Mallorca, Balearic Islands, Spain (© Allard Schager/Getty Images)](https://www.bing.com/th?id=OHR.SpainLighthouse_EN-US0598364035_UHD.jpg)
 <br><br/>

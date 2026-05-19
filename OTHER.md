@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SpainLighthouse_JA-JP8366354857_UHD.jpg&w=1000)今日の壁紙: &nbsp;[フォルメントール灯台, スペイン (© Allard Schager/Getty Images)](https://www.bing.com/th?id=OHR.SpainLighthouse_JA-JP8366354857_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BumbleBee_JA-JP8551190250_UHD.jpg&w=1000)今日の壁紙: &nbsp;[受粉しているマルハナバチ, イングランド (© SimonEastwood87/Shutterstock)](https://www.bing.com/th?id=OHR.BumbleBee_JA-JP8551190250_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SpainLighthouse_FR-FR9037625281_UHD.jpg&w=1000)Today: [Phare de Formentor, Majorque, Îles Baléares, Espagne (© Allard Schager/Getty Images)](https://www.bing.com/th?id=OHR.SpainLighthouse_FR-FR9037625281_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SpainLighthouse_IT-IT2595546195_UHD.jpg&w=1000)Today: [Faro di Formentor, Maiorca, Isole Baleari, Spagna (© Allard Schager/Getty Images)](https://www.bing.com/th?id=OHR.SpainLighthouse_IT-IT2595546195_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MuseumLondon_PT-BR8647023731_UHD.jpg&w=1000)Today: [Museu de História Natural, Londres, Inglaterra (© Colm Keating/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.MuseumLondon_PT-BR8647023731_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpainLighthouse_PT-BR9837530497_UHD.jpg&w=1000)Today: [Farol de Formentor, Maiorca, Ilhas Baleares, Espanha (© Allard Schager/Getty Images)](https://www.bing.com/th?id=OHR.SpainLighthouse_PT-BR9837530497_UHD.jpg)
 <br><br/>
