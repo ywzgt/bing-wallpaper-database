@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SichuanTea_JA-JP8777846900_UHD.jpg&w=1000)今日の壁紙: &nbsp;[四川省の茶畑, 中国 (© lzf/Shutterstock)](https://www.bing.com/th?id=OHR.SichuanTea_JA-JP8777846900_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TokyoSkyTreeDay2026_JA-JP8960437090_UHD.jpg&w=1000)今日の壁紙: &nbsp;[東京スカイツリー, 東京 (© GoranQ/Getty Images)](https://www.bing.com/th?id=OHR.TokyoSkyTreeDay2026_JA-JP8960437090_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SichuanTea_FR-FR2758573736_UHD.jpg&w=1000)Today: [Plantations de thé en terrasses, Sichuan, Chine (© lzf/Shutterstock)](https://www.bing.com/th?id=OHR.SichuanTea_FR-FR2758573736_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SichuanTea_IT-IT6566248519_UHD.jpg&w=1000)Today: [Terrazzamenti da tè nella provincia del Sichuan, Cina (© lzf/Shutterstock)](https://www.bing.com/th?id=OHR.SichuanTea_IT-IT6566248519_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BumbleBee_PT-BR0219466294_UHD.jpg&w=1000)Today: [Abelha-mamangava polinizando, Worcester, Inglaterra (© SimonEastwood87/Shutterstock)](https://www.bing.com/th?id=OHR.BumbleBee_PT-BR0219466294_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SichuanTea_PT-BR0614842404_UHD.jpg&w=1000)Today: [Terraços de chá na província de Sichuan, China (© lzf/Shutterstock)](https://www.bing.com/th?id=OHR.SichuanTea_PT-BR0614842404_UHD.jpg)
 <br><br/>
