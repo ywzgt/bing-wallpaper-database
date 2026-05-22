@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TokyoSkyTreeDay2026_JA-JP8960437090_UHD.jpg&w=1000)今日の壁紙: &nbsp;[東京スカイツリー, 東京 (© GoranQ/Getty Images)](https://www.bing.com/th?id=OHR.TokyoSkyTreeDay2026_JA-JP8960437090_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ThreeTurtlesButterflies_JA-JP9111323268_UHD.jpg&w=1000)今日の壁紙: &nbsp;[カメと蝶 (© Patrick Gallet/Getty Images)](https://www.bing.com/th?id=OHR.ThreeTurtlesButterflies_JA-JP9111323268_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.KauehiAtollLagoon_FR-FR2995406820_UHD.jpg&w=1000)Today: [Kauehi, Archipel des Tuamotu, Polynésie française (© WaterFrame_dpr/Alamy)](https://www.bing.com/th?id=OHR.KauehiAtollLagoon_FR-FR2995406820_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.KauehiAtollLagoon_IT-IT9581557315_UHD.jpg&w=1000)Today: [Atollo di Kauehi, arcipelago delle Tuamotu, Polinesia francese (© WaterFrame_dpr/Alamy)](https://www.bing.com/th?id=OHR.KauehiAtollLagoon_IT-IT9581557315_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SichuanTea_PT-BR0614842404_UHD.jpg&w=1000)Today: [Terraços de chá na província de Sichuan, China (© lzf/Shutterstock)](https://www.bing.com/th?id=OHR.SichuanTea_PT-BR0614842404_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KauehiAtollLagoon_PT-BR7122333549_UHD.jpg&w=1000)Today: [Atol Kauehi, Arquipélago de Tuamotu, Polinésia Francesa (© WaterFrame_dpr/Alamy)](https://www.bing.com/th?id=OHR.KauehiAtollLagoon_PT-BR7122333549_UHD.jpg)
 <br><br/>
