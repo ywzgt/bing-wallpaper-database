@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.DolomitesPark_JA-JP9299187350_UHD.jpg&w=1000)今日の壁紙: &nbsp;[トレ・チーメ自然公園, イタリア (© Adisorn Fineday Chutikunakorn/Getty Images)](https://www.bing.com/th?id=OHR.DolomitesPark_JA-JP9299187350_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TwrMawrLighthouse2026_JA-JP9539215085_UHD.jpg&w=1000)今日の壁紙: &nbsp;[トゥール・マウル灯台, ウェールズ (© Lukas Bischoff/Getty Images)](https://www.bing.com/th?id=OHR.TwrMawrLighthouse2026_JA-JP9539215085_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.DolomitesPark_FR-FR3482729032_UHD.jpg&w=1000)Today: [Parc naturel Trois Cimes, Bolzano, Italie (© Adisorn Fineday Chutikunakorn/Getty Images)](https://www.bing.com/th?id=OHR.DolomitesPark_FR-FR3482729032_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.DolomitesPark_IT-IT4272187498_UHD.jpg&w=1000)Today: [Parco naturale Tre Cime, Trentino-Alto Adige (© Adisorn Fineday Chutikunakorn/Getty Images)](https://www.bing.com/th?id=OHR.DolomitesPark_IT-IT4272187498_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ThreeTurtlesButterflies_PT-BR1084575406_UHD.jpg&w=1000)Today: [Tartarugas com borboletas (© Patrick Gallet/Getty Images)](https://www.bing.com/th?id=OHR.ThreeTurtlesButterflies_PT-BR1084575406_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CoffeeDay_PT-BR1198680562_UHD.jpg&w=1000)Today: [Frutos de café em fazenda no Brasil (© Murilo Gualda/Getty Images)](https://www.bing.com/th?id=OHR.CoffeeDay_PT-BR1198680562_UHD.jpg)
 <br><br/>
