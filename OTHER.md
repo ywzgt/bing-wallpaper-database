@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.TwrMawrLighthouse2026_JA-JP9539215085_UHD.jpg&w=1000)今日の壁紙: &nbsp;[トゥール・マウル灯台, ウェールズ (© Lukas Bischoff/Getty Images)](https://www.bing.com/th?id=OHR.TwrMawrLighthouse2026_JA-JP9539215085_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DolomitesPark_FR-FR3482729032_UHD.jpg&w=1000)Today: [Parc naturel Trois Cimes, Bolzano, Italie (© Adisorn Fineday Chutikunakorn/Getty Images)](https://www.bing.com/th?id=OHR.DolomitesPark_FR-FR3482729032_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HawaMahal2026_FR-FR4307485807_UHD.jpg&w=1000)Today: [Vue sur Jaipur depuis le Palais des Vents, Rajasthan, Inde (© byheaven/Getty Images)](https://www.bing.com/th?id=OHR.HawaMahal2026_FR-FR4307485807_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DolomitesPark_DE-DE0867398048_UHD.jpg&w=1000)Today: [Naturpark Drei Zinnen, Südtirol, Italien (© Adisorn Fineday Chutikunakorn/Getty Images)](https://www.bing.com/th?id=OHR.DolomitesPark_DE-DE0867398048_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HexenlochMill_DE-DE3552158856_UHD.jpg&w=1000)Today: [Die Hexenlochmühle im Schwarzwald bei Furtwangen, Baden‑Württemberg (© Conny Pokorny/Shutterstock)](https://www.bing.com/th?id=OHR.HexenlochMill_DE-DE3552158856_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DolomitesPark_ES-ES7858758961_UHD.jpg&w=1000)Today: [Parque natural Tre Cime, Tirol del Sur, Italia (© Adisorn Fineday Chutikunakorn/Getty Images)](https://www.bing.com/th?id=OHR.DolomitesPark_ES-ES7858758961_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HawaMahal2026_ES-ES8790916426_UHD.jpg&w=1000)Today: [Vista de Jaipur desde el palacio Hawa Mahal, Rajastán, India (© byheaven/Getty Images)](https://www.bing.com/th?id=OHR.HawaMahal2026_ES-ES8790916426_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DolomitesPark_EN-GB5776508823_UHD.jpg&w=1000)Today: [Tre Cime Nature Park, South Tyrol, Italy (© Adisorn Fineday Chutikunakorn/Getty Images)](https://www.bing.com/th?id=OHR.DolomitesPark_EN-GB5776508823_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HawaMahal2026_EN-GB5975614147_UHD.jpg&w=1000)Today: [View over Jaipur from Hawa Mahal, Rajasthan (© byheaven/Getty Images)](https://www.bing.com/th?id=OHR.HawaMahal2026_EN-GB5975614147_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DolomitesPark_IT-IT4272187498_UHD.jpg&w=1000)Today: [Parco naturale Tre Cime, Trentino-Alto Adige (© Adisorn Fineday Chutikunakorn/Getty Images)](https://www.bing.com/th?id=OHR.DolomitesPark_IT-IT4272187498_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TivoliVillaAdriana_IT-IT5000773432_UHD.jpg&w=1000)Today: [Villa Adriana, Tivoli, Lazio (© SeanSavonePhoto/Adobe Stock)](https://www.bing.com/th?id=OHR.TivoliVillaAdriana_IT-IT5000773432_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CoffeeDay_PT-BR1198680562_UHD.jpg&w=1000)Today: [Frutos de café em fazenda no Brasil (© Murilo Gualda/Getty Images)](https://www.bing.com/th?id=OHR.CoffeeDay_PT-BR1198680562_UHD.jpg)
 <br><br/>
