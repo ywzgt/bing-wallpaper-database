@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.LupineBloom_ZH-CN7639721663_UHD.jpg&w=1000)今日图片: &nbsp;[盛开的羽扇豆，北加利福尼亚州，美国 (© Jeffrey Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LupineBloom_ZH-CN7639721663_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_UHD.jpg&w=1000)今日图片: &nbsp;[海獭，霍默卡奇马克湾，阿拉斯加州，美国 (© roclwyr/Getty Images)](https://www.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ArlingtonAmphitheater_EN-US0872772906_UHD.jpg&w=1000)Today: [Memorial Amphitheater at Arlington National Cemetery, Arlington, Virginia (© idesignimages/Getty Images)](https://www.bing.com/th?id=OHR.ArlingtonAmphitheater_EN-US0872772906_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LupineBloom_EN-US0920778137_UHD.jpg&w=1000)Today: [Lupine flowers in bloom, Northern California (© Jeffrey Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LupineBloom_EN-US0920778137_UHD.jpg)
 <br><br/>
