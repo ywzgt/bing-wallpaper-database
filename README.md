@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_UHD.jpg&w=1000)今日图片: &nbsp;[海獭，霍默卡奇马克湾，阿拉斯加州，美国 (© roclwyr/Getty Images)](https://www.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HwaesongFortress_ZH-CN8225341972_UHD.jpg&w=1000)今日图片: &nbsp;[华城堡的古城墙，水原，韩国 (© aomam/Getty Images)](https://www.bing.com/th?id=OHR.HwaesongFortress_ZH-CN8225341972_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LupineBloom_EN-US0920778137_UHD.jpg&w=1000)Today: [Lupine flowers in bloom, Northern California (© Jeffrey Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LupineBloom_EN-US0920778137_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OtterDay_EN-US0973120905_UHD.jpg&w=1000)Today: [Sea otter, Kachemak Bay, Homer, Alaska (© roclwyr/Getty Images)](https://www.bing.com/th?id=OHR.OtterDay_EN-US0973120905_UHD.jpg)
 <br><br/>

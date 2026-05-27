@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.OtterDay_JA-JP9963461992_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ラッコ, 米国 アラスカ州 (© roclwyr/Getty Images)](https://www.bing.com/th?id=OHR.OtterDay_JA-JP9963461992_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HwaesongFortress_JA-JP0157517591_UHD.jpg&w=1000)今日の壁紙: &nbsp;[スウォンファソン, 韓国 水原市 (© aomam/Getty Images)](https://www.bing.com/th?id=OHR.HwaesongFortress_JA-JP0157517591_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.OtterDay_FR-FR4235881841_UHD.jpg&w=1000)Today: [Loutre de mer, Baie de Kachemak, Homer, Alaska, États-Unis (© roclwyr/Getty Images)](https://www.bing.com/th?id=OHR.OtterDay_FR-FR4235881841_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.OtterDay_IT-IT8003946324_UHD.jpg&w=1000)Today: [Lontra marina, Kachemak Bay, Homer, Alaska, USA (© roclwyr/Getty Images)](https://www.bing.com/th?id=OHR.OtterDay_IT-IT8003946324_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LupineBloom_PT-BR2184641426_UHD.jpg&w=1000)Today: [Tremoceiros em flor, Califórnia, Estados Unidos (© Jeffrey Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LupineBloom_PT-BR2184641426_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OtterDay_PT-BR2622670476_UHD.jpg&w=1000)Today: [Lontra-marinha, Baía de Kachemak, Homer, Alasca, Estados Unidos (© roclwyr/Getty Images)](https://www.bing.com/th?id=OHR.OtterDay_PT-BR2622670476_UHD.jpg)
 <br><br/>
