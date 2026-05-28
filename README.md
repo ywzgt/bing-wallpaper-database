@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.HwaesongFortress_ZH-CN8225341972_UHD.jpg&w=1000)今日图片: &nbsp;[华城堡的古城墙，水原，韩国 (© aomam/Getty Images)](https://www.bing.com/th?id=OHR.HwaesongFortress_ZH-CN8225341972_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_UHD.jpg&w=1000)今日图片: &nbsp;[珠穆朗玛峰峰顶，萨加玛塔国家公园，尼泊尔 (© fotoVoyager/Getty Images)](https://www.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.OtterDay_EN-US0973120905_UHD.jpg&w=1000)Today: [Sea otter, Kachemak Bay, Homer, Alaska (© roclwyr/Getty Images)](https://www.bing.com/th?id=OHR.OtterDay_EN-US0973120905_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HwaesongFortress_EN-US1012626869_UHD.jpg&w=1000)Today: [Old city wall of Hwaseong Fortress, Suwon, South Korea (© aomam/Getty Images)](https://www.bing.com/th?id=OHR.HwaesongFortress_EN-US1012626869_UHD.jpg)
 <br><br/>
