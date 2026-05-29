@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SummitEverest_JA-JP1474604254_UHD.jpg&w=1000)今日の壁紙: &nbsp;[エベレスト, ネパール (© fotoVoyager/Getty Images)](https://www.bing.com/th?id=OHR.SummitEverest_JA-JP1474604254_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EquusQuagga_JA-JP7756090544_UHD.jpg&w=1000)今日の壁紙: &nbsp;[サバンナシマウマの子馬, ナミビア (© Sharon Heald/Nature Picture Library)](https://www.bing.com/th?id=OHR.EquusQuagga_JA-JP7756090544_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SummitEverest_FR-FR5658913315_UHD.jpg&w=1000)Today: [Mont Everest, Parc national de Sagarmatha, Népal (© fotoVoyager/Getty Images)](https://www.bing.com/th?id=OHR.SummitEverest_FR-FR5658913315_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SummitEverest_IT-IT4333407961_UHD.jpg&w=1000)Today: [Monte Everest, parco nazionale di Sagarmatha, Nepal (© fotoVoyager/Getty Images)](https://www.bing.com/th?id=OHR.SummitEverest_IT-IT4333407961_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HwaesongFortress_PT-BR2888838798_UHD.jpg&w=1000)Today: [Muralha da Fortaleza de Hwaseong, Suwon, Coreia do Sul (© aomam/Getty Images)](https://www.bing.com/th?id=OHR.HwaesongFortress_PT-BR2888838798_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SummitEverest_PT-BR8310035958_UHD.jpg&w=1000)Today: [Topo do Monte Everest, Parque Nacional de Sagarmatha, Nepal (© fotoVoyager/Getty Images)](https://www.bing.com/th?id=OHR.SummitEverest_PT-BR8310035958_UHD.jpg)
 <br><br/>
