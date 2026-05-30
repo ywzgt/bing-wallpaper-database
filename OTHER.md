@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.EquusQuagga_JA-JP7756090544_UHD.jpg&w=1000)今日の壁紙: &nbsp;[サバンナシマウマの子馬, ナミビア (© Sharon Heald/Nature Picture Library)](https://www.bing.com/th?id=OHR.EquusQuagga_JA-JP7756090544_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EvergladesWetlands_JA-JP7977535602_UHD.jpg&w=1000)今日の壁紙: &nbsp;[エバーグレーズ国立公園, 米国 フロリダ州 (© Tetra Images/Getty Images)](https://www.bing.com/th?id=OHR.EvergladesWetlands_JA-JP7977535602_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.EquusQuagga_FR-FR5450236947_UHD.jpg&w=1000)Today: [Zébreau dans le parc national d’Etosha, Namibie (© Sharon Heald/Nature Picture Library)](https://www.bing.com/th?id=OHR.EquusQuagga_FR-FR5450236947_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.EquusQuagga_IT-IT4668961444_UHD.jpg&w=1000)Today: [Puledro di zebra della pianura, parco nazionale di Etosha, Namibia (© Sharon Heald/Nature Picture Library)](https://www.bing.com/th?id=OHR.EquusQuagga_IT-IT4668961444_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SummitEverest_PT-BR8310035958_UHD.jpg&w=1000)Today: [Topo do Monte Everest, Parque Nacional de Sagarmatha, Nepal (© fotoVoyager/Getty Images)](https://www.bing.com/th?id=OHR.SummitEverest_PT-BR8310035958_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EquusQuagga_PT-BR5698040013_UHD.jpg&w=1000)Today: [Filhote de zebra-da-planície no Parque Nacional Etosha, Namíbia (© Sharon Heald/Nature Picture Library)](https://www.bing.com/th?id=OHR.EquusQuagga_PT-BR5698040013_UHD.jpg)
 <br><br/>
