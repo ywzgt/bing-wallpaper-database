@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_UHD.jpg&w=1000)今日图片: &nbsp;[邓塞弗里克城堡遗址, 安特里姆郡, 北爱尔兰 (© Krzysztof Rogalski/Getty Images)](https://www.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Cyanea_ZH-CN3858079050_UHD.jpg&w=1000)今日图片: &nbsp;[在海洋中游动的狮鬃水母 (© Alexander Semenov Images/Shutterstock)](https://www.bing.com/th?id=OHR.Cyanea_ZH-CN3858079050_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HikingNatchez_EN-US0663065299_UHD.jpg&w=1000)Today: [Natchez Trace Parkway, Tupelo, Mississippi, USA (© The best photo is earned/Getty Images Plus)](https://www.bing.com/th?id=OHR.HikingNatchez_EN-US0663065299_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GardenAtlanta_EN-US2319128074_UHD.jpg&w=1000)Today: [Atlanta Botanical Garden, Atlanta, Georgia (© Marcus E Jones/Shutterstock)](https://www.bing.com/th?id=OHR.GardenAtlanta_EN-US2319128074_UHD.jpg)
 <br><br/>
