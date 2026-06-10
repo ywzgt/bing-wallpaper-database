@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Hnausapollur_ZH-CN4075343976_UHD.jpg&w=1000)今日图片: &nbsp;[赫瑙萨波鲁尔火山口, 菲亚拉巴克自然保护区, 兰德曼纳劳加尔, 冰岛 (© Juan Maria Coy Vergara/Getty Images)](https://www.bing.com/th?id=OHR.Hnausapollur_ZH-CN4075343976_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Limpets_ZH-CN4991771513_UHD.jpg&w=1000)今日图片: &nbsp;[退潮时裸露在乌尔萨海滩海岸上的帽贝, 葡萄牙 (© Theo Bosboom/Nature Picture Library)](https://www.bing.com/th?id=OHR.Limpets_ZH-CN4991771513_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CTNPVernazza_EN-US1571456265_UHD.jpg&w=1000)Today: [Vernazza, Cinque Terre, Liguria, Italy (© Kelly Cheng/Getty Images)](https://www.bing.com/th?id=OHR.CTNPVernazza_EN-US1571456265_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_UHD.jpg&w=1000)Today: [Hnausapollur volcanic crater lake, Fjallabak Nature Reserve, Landmannalaugar, Iceland (© Juan Maria Coy Vergara/Getty Images)](https://www.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_UHD.jpg)
 <br><br/>
