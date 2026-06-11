@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Limpets_ZH-CN4991771513_UHD.jpg&w=1000)今日图片: &nbsp;[退潮时裸露在乌尔萨海滩海岸上的帽贝, 葡萄牙 (© Theo Bosboom/Nature Picture Library)](https://www.bing.com/th?id=OHR.Limpets_ZH-CN4991771513_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpainBeeEater_ZH-CN4424052851_UHD.jpg&w=1000)今日图片: &nbsp;[黄喉蜂虎，格拉萨莱马山自然公园，加的斯，西班牙 (© Andres M. Dominguez/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpainBeeEater_ZH-CN4424052851_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_UHD.jpg&w=1000)Today: [Hnausapollur volcanic crater lake, Fjallabak Nature Reserve, Landmannalaugar, Iceland (© Juan Maria Coy Vergara/Getty Images)](https://www.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Limpets_EN-US1055673545_UHD.jpg&w=1000)Today: [Limpets exposed at low tide on the coast of Praia da Ursa, Portugal (© Theo Bosboom/Nature Picture Library)](https://www.bing.com/th?id=OHR.Limpets_EN-US1055673545_UHD.jpg)
 <br><br/>

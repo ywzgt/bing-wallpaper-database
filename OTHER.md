@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.FireflySeason2026_JA-JP9350920903_UHD.jpg&w=1000)今日の壁紙: &nbsp;[蛍の光がきらめく森, 日本 (© tdub303/Getty Images)](https://www.bing.com/th?id=OHR.FireflySeason2026_JA-JP9350920903_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpainBeeEater_JA-JP8800920985_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ヨーロッパハチクイ, スペイン (© Andres M. Dominguez/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpainBeeEater_JA-JP8800920985_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.Limpets_FR-FR7051500113_UHD.jpg&w=1000)Today: [Des patelles à marée basse sur la Praia da Ursa, Portugal (© Theo Bosboom/Nature Picture Library)](https://www.bing.com/th?id=OHR.Limpets_FR-FR7051500113_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.Limpets_IT-IT0440243465_UHD.jpg&w=1000)Today: [Patelle, costa di Praia da Ursa, Portogallo (© Theo Bosboom/Nature Picture Library)](https://www.bing.com/th?id=OHR.Limpets_IT-IT0440243465_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BOwl_PT-BR4099408173_UHD.jpg&w=1000)Today: [Coruja-buraqueira em sentinela (© Wendy/Jeff Sparks/Torquemada/Getty Images)](https://www.bing.com/th?id=OHR.BOwl_PT-BR4099408173_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Limpets_PT-BR3364231967_UHD.jpg&w=1000)Today: [Lapas expostas na maré baixa na costa da Praia da Ursa, Portugal (© Theo Bosboom/Nature Picture Library)](https://www.bing.com/th?id=OHR.Limpets_PT-BR3364231967_UHD.jpg)
 <br><br/>
