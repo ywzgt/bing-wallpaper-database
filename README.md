@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SpainBeeEater_ZH-CN4424052851_UHD.jpg&w=1000)今日图片: &nbsp;[黄喉蜂虎，格拉萨莱马山自然公园，加的斯，西班牙 (© Andres M. Dominguez/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpainBeeEater_ZH-CN4424052851_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BadSunset_ZH-CN9050997938_UHD.jpg&w=1000)今日图片: &nbsp;[落日，恶地国家公园，南达科他州，美国 (© Troy Harrison/Getty Images)](https://www.bing.com/th?id=OHR.BadSunset_ZH-CN9050997938_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Limpets_EN-US1055673545_UHD.jpg&w=1000)Today: [Limpets exposed at low tide on the coast of Praia da Ursa, Portugal (© Theo Bosboom/Nature Picture Library)](https://www.bing.com/th?id=OHR.Limpets_EN-US1055673545_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpainBeeEater_EN-US5920719155_UHD.jpg&w=1000)Today: [European bee-eater, Sierra de Grazalema Natural Park, Cádiz, Spain (© Andres M. Dominguez/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpainBeeEater_EN-US5920719155_UHD.jpg)
 <br><br/>
