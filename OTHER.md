@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.HayabusaDay2026_JA-JP6590656546_UHD.jpg&w=1000)今日の壁紙: &nbsp;[はやぶさ 2 から切り離されたカプセル (© MORGAN SETTE/Getty Images)](https://www.bing.com/th?id=OHR.HayabusaDay2026_JA-JP6590656546_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SpainBeeEater_FR-FR5420456430_UHD.jpg&w=1000)Today: [Guêpier d’Europe, Parc naturel de la Sierra de Grazalema, Cadix, Espagne (© Andres M. Dominguez/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpainBeeEater_FR-FR5420456430_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BadSunset_FR-FR8337431465_UHD.jpg&w=1000)Today: [Coucher de soleil au parc national des Badlands, Dakota du Sud, États-Unis (© Troy Harrison/Getty Images)](https://www.bing.com/th?id=OHR.BadSunset_FR-FR8337431465_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SpainBeeEater_DE-DE9310458421_UHD.jpg&w=1000)Today: [Europäischer Bienenfresser im Naturpark Sierra de Grazalema, Cádiz, Spanien (© Andres M. Dominguez/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpainBeeEater_DE-DE9310458421_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BadSunset_DE-DE9498581527_UHD.jpg&w=1000)Today: [Sonnenuntergang im Badlands-Nationalpark, South Dakota, USA (© Troy Harrison/Getty Images)](https://www.bing.com/th?id=OHR.BadSunset_DE-DE9498581527_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SpainBeeEater_ES-ES8052156644_UHD.jpg&w=1000)Today: [Abejaruco europeo en el parque natural de la Sierra de Grazalema, Cádiz (© Andres M. Dominguez/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpainBeeEater_ES-ES8052156644_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AltafullaTarragona_ES-ES8470758712_UHD.jpg&w=1000)Today: [Castillo de Altafulla, Tarragona (© Mario Marco/Getty Images)](https://www.bing.com/th?id=OHR.AltafullaTarragona_ES-ES8470758712_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SpainBeeEater_EN-GB0400736039_UHD.jpg&w=1000)Today: [European bee-eater in Sierra de Grazalema Natural Park, Cádiz, Spain (© Andres M. Dominguez/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpainBeeEater_EN-GB0400736039_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TroopingTheColour2026_EN-GB9412651820_UHD.jpg&w=1000)Today: [Members of the Household Cavalry Mounted Regiment at Hyde Park, London (© Leon Neal/Staff/Getty Images)](https://www.bing.com/th?id=OHR.TroopingTheColour2026_EN-GB9412651820_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SpainBeeEater_IT-IT9615288576_UHD.jpg&w=1000)Today: [Gruccione comune, parco naturale della Sierra de Grazalema, Spagna (© Andres M. Dominguez/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpainBeeEater_IT-IT9615288576_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BadSunset_IT-IT7610700468_UHD.jpg&w=1000)Today: [Parco nazionale delle Badlands, South Dakota, USA (© Troy Harrison/Getty Images)](https://www.bing.com/th?id=OHR.BadSunset_IT-IT7610700468_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ValentineFrog_PT-BR1899609261_UHD.jpg&w=1000)Today: [Casal de rãs-leitosas-da-amazônia, ou pererecas-de-leite (© Lauren Suryanata/Shutterstock)](https://www.bing.com/th?id=OHR.ValentineFrog_PT-BR1899609261_UHD.jpg)
 <br><br/>
