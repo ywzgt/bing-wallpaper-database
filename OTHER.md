@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.HayabusaDay2026_JA-JP6590656546_UHD.jpg&w=1000)今日の壁紙: &nbsp;[はやぶさ 2 から切り離されたカプセル (© MORGAN SETTE/Getty Images)](https://www.bing.com/th?id=OHR.HayabusaDay2026_JA-JP6590656546_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BadSunset_JA-JP5960860484_UHD.jpg&w=1000)今日の壁紙: &nbsp;[バッドランズ国立公園, 米国 サウスダコタ州 (© Troy Harrison/Getty Images)](https://www.bing.com/th?id=OHR.BadSunset_JA-JP5960860484_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BadSunset_FR-FR8337431465_UHD.jpg&w=1000)Today: [Coucher de soleil au parc national des Badlands, Dakota du Sud, États-Unis (© Troy Harrison/Getty Images)](https://www.bing.com/th?id=OHR.BadSunset_FR-FR8337431465_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BadSunset_IT-IT7610700468_UHD.jpg&w=1000)Today: [Parco nazionale delle Badlands, South Dakota, USA (© Troy Harrison/Getty Images)](https://www.bing.com/th?id=OHR.BadSunset_IT-IT7610700468_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ValentineFrog_PT-BR1899609261_UHD.jpg&w=1000)Today: [Casal de rãs-leitosas-da-amazônia, ou pererecas-de-leite (© Lauren Suryanata/Shutterstock)](https://www.bing.com/th?id=OHR.ValentineFrog_PT-BR1899609261_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpainBeeEater_PT-BR8358258406_UHD.jpg&w=1000)Today: [Abelharuco no Parque Natural Sierra de Grazalema, Cádiz, Espanha (© Andres M. Dominguez/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpainBeeEater_PT-BR8358258406_UHD.jpg)
 <br><br/>
