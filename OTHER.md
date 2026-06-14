@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BadSunset_JA-JP5960860484_UHD.jpg&w=1000)今日の壁紙: &nbsp;[バッドランズ国立公園, 米国 サウスダコタ州 (© Troy Harrison/Getty Images)](https://www.bing.com/th?id=OHR.BadSunset_JA-JP5960860484_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ParkEstd_JA-JP9205724491_UHD.jpg&w=1000)今日の壁紙: &nbsp;[グレート・スモーキー山脈国立公園, 米国 テネシー州 (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.ParkEstd_JA-JP9205724491_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.DuckPond_FR-FR7676171535_UHD.jpg&w=1000)Today: [Canard colvert (© Philippe Paternolli/Getty Images)](https://www.bing.com/th?id=OHR.DuckPond_FR-FR7676171535_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.DuckPond_IT-IT3562995004_UHD.jpg&w=1000)Today: [Germano reale (© Philippe Paternolli/Getty Images)](https://www.bing.com/th?id=OHR.DuckPond_IT-IT3562995004_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SpainBeeEater_PT-BR8358258406_UHD.jpg&w=1000)Today: [Abelharuco no Parque Natural Sierra de Grazalema, Cádiz, Espanha (© Andres M. Dominguez/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpainBeeEater_PT-BR8358258406_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DuckPond_PT-BR2199019099_UHD.jpg&w=1000)Today: [Pato-real (© Philippe Paternolli/Getty Images)](https://www.bing.com/th?id=OHR.DuckPond_PT-BR2199019099_UHD.jpg)
 <br><br/>
