@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ParkEstd_ZH-CN3419035151_UHD.jpg&w=1000)今日图片: &nbsp;[大烟山国家公园，田纳西州，美国 (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.ParkEstd_ZH-CN3419035151_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SevenMileTurtle_ZH-CN4346512721_UHD.jpg&w=1000)今日图片: &nbsp;[七英里海滩附近的玳瑁海龟伴侣，大开曼岛，开曼群岛 (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.SevenMileTurtle_ZH-CN4346512721_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.FlagsMonument_EN-US6034154869_UHD.jpg&w=1000)Today: [US flags surrounding the Washington Monument, Washington, DC  (© Orhan Cam/Shutterstock)](https://www.bing.com/th?id=OHR.FlagsMonument_EN-US6034154869_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ParkEstd_EN-US6114949122_UHD.jpg&w=1000)Today: [Great Smoky Mountains National Park, Tennessee (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.ParkEstd_EN-US6114949122_UHD.jpg)
 <br><br/>
