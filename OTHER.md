@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SevenMileTurtle_JA-JP9577560353_UHD.jpg&w=1000)今日の壁紙: &nbsp;[優雅に泳ぐタイマイ, ケイマン諸島 (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.SevenMileTurtle_JA-JP9577560353_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TremolaRoad_JA-JP0031183332_UHD.jpg&w=1000)今日の壁紙: &nbsp;[トレモラ道路, スイス (© Sandro Bisaro/Getty Images)](https://www.bing.com/th?id=OHR.TremolaRoad_JA-JP0031183332_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SevenMileTurtle_FR-FR7065841321_UHD.jpg&w=1000)Today: [Un couple de tortues imbriquées près de Seven Mile Beach, Grand Cayman, Îles Caïmans (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.SevenMileTurtle_FR-FR7065841321_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SevenMileTurtle_IT-IT4183755480_UHD.jpg&w=1000)Today: [Tartarughe embricate, Seven Mile Beach, Isole Cayman (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.SevenMileTurtle_IT-IT4183755480_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ParkEstd_PT-BR2427992581_UHD.jpg&w=1000)Today: [Parque Nacional Great Smoky Mountains, Tennessee, Estados Unidos (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.ParkEstd_PT-BR2427992581_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SevenMileTurtle_PT-BR3827841290_UHD.jpg&w=1000)Today: [Tartarugas-de-pente perto de Seven Mile Beach, Grand Cayman, Ilhas Cayman (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.SevenMileTurtle_PT-BR3827841290_UHD.jpg)
 <br><br/>
