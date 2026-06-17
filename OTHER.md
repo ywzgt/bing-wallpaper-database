@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TremolaRoad_JA-JP0031183332_UHD.jpg&w=1000)今日の壁紙: &nbsp;[トレモラ道路, スイス (© Sandro Bisaro/Getty Images)](https://www.bing.com/th?id=OHR.TremolaRoad_JA-JP0031183332_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Saqsaywaman_JA-JP0282514779_UHD.jpg&w=1000)今日の壁紙: &nbsp;[サクサイワマン, ペルー (© Creative-Family/Getty Images Plus)](https://www.bing.com/th?id=OHR.Saqsaywaman_JA-JP0282514779_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TremolaRoad_FR-FR5199411184_UHD.jpg&w=1000)Today: [Route de la Tremola sur le col du Saint-Gothard, Airolo, Suisse (© Sandro Bisaro/Getty Images)](https://www.bing.com/th?id=OHR.TremolaRoad_FR-FR5199411184_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.TremolaRoad_IT-IT1436390409_UHD.jpg&w=1000)Today: [Strada della Tremola, passo del San Gottardo, Airolo, Svizzera (© Sandro Bisaro/Getty Images)](https://www.bing.com/th?id=OHR.TremolaRoad_IT-IT1436390409_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SevenMileTurtle_PT-BR3827841290_UHD.jpg&w=1000)Today: [Tartarugas-de-pente perto de Seven Mile Beach, Grand Cayman, Ilhas Cayman (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.SevenMileTurtle_PT-BR3827841290_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TremolaRoad_PT-BR4929951755_UHD.jpg&w=1000)Today: [Estrada Tremola no Passo de São Gotardo, Airolo, Suíça (© Sandro Bisaro/Getty Images)](https://www.bing.com/th?id=OHR.TremolaRoad_PT-BR4929951755_UHD.jpg)
 <br><br/>
