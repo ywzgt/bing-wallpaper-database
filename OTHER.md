@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.GrandPlace_JA-JP0571812680_UHD.jpg&w=1000)今日の壁紙: &nbsp;[グラン＝プラス, ベルギー (© Vladislav Zolotov/Getty Images Plus)](https://www.bing.com/th?id=OHR.GrandPlace_JA-JP0571812680_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Saqsaywaman_FR-FR7364469911_UHD.jpg&w=1000)Today: [Vue aérienne des ruines de Sacsayhuamán, Cusco, Pérou (© Creative-Family/Getty Images Plus)](https://www.bing.com/th?id=OHR.Saqsaywaman_FR-FR7364469911_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IsolaElba_FR-FR6759091748_UHD.jpg&w=1000)Today: [Phare de La Rocchetta, Piombino, Toscane, Italie (© StevanZZ/Getty Images)](https://www.bing.com/th?id=OHR.IsolaElba_FR-FR6759091748_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Saqsaywaman_DE-DE3241976270_UHD.jpg&w=1000)Today: [Luftaufnahme der Ruinen von Sacsayhuamán, Cusco, Peru (© Creative-Family/Getty Images Plus)](https://www.bing.com/th?id=OHR.Saqsaywaman_DE-DE3241976270_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IsolaElba_DE-DE0710166341_UHD.jpg&w=1000)Today: [Leuchtturm „La Rocchetta“, Piombino, Italien (© StevanZZ/Getty Images)](https://www.bing.com/th?id=OHR.IsolaElba_DE-DE0710166341_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Saqsaywaman_ES-ES9301445722_UHD.jpg&w=1000)Today: [Vista aérea de las ruinas de Sacsayhuamán, Cuzco, Perú (© Creative-Family/Getty Images Plus)](https://www.bing.com/th?id=OHR.Saqsaywaman_ES-ES9301445722_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IsolaElba_ES-ES9499583337_UHD.jpg&w=1000)Today: [Faro de La Rocchetta, Piombino, Toscana, Italia (© StevanZZ/Getty Images)](https://www.bing.com/th?id=OHR.IsolaElba_ES-ES9499583337_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Saqsaywaman_EN-GB0811852640_UHD.jpg&w=1000)Today: [Aerial view of the ruins of Sacsayhuamán, Cusco, Peru (© Creative-Family/Getty Images Plus)](https://www.bing.com/th?id=OHR.Saqsaywaman_EN-GB0811852640_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IsolaElba_EN-GB6917681747_UHD.jpg&w=1000)Today: [La Rocchetta Lighthouse, Piombino, Tuscany, Italy (© StevanZZ/Getty Images)](https://www.bing.com/th?id=OHR.IsolaElba_EN-GB6917681747_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Saqsaywaman_IT-IT8503253730_UHD.jpg&w=1000)Today: [Rovine di Sacsayhuamán, Cusco, Perù (© Creative-Family/Getty Images Plus)](https://www.bing.com/th?id=OHR.Saqsaywaman_IT-IT8503253730_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IsolaElba_IT-IT8863679360_UHD.jpg&w=1000)Today: [Faro di Piombino, provincia di Livorno, Toscana (© StevanZZ/Getty Images)](https://www.bing.com/th?id=OHR.IsolaElba_IT-IT8863679360_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.Saqsaywaman_PT-BR5528021582_UHD.jpg&w=1000)Today: [Vista aérea das ruínas de Sacsayhuamán, Cusco, Peru (© Creative-Family/Getty Images Plus)](https://www.bing.com/th?id=OHR.Saqsaywaman_PT-BR5528021582_UHD.jpg)
 <br><br/>
