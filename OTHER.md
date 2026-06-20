@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ArchedIceberg_JA-JP0865478817_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アーチ状の氷山, 南極半島西部 (© Steven Kazlowski/Nature Picture Library)](https://www.bing.com/th?id=OHR.ArchedIceberg_JA-JP0865478817_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EggDad_JA-JP1066785458_UHD.jpg&w=1000)今日の壁紙: &nbsp;[オウサマペンギンの父親 (© McDonald Wildlife Photography Inc./Getty Images)](https://www.bing.com/th?id=OHR.EggDad_JA-JP1066785458_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ArchedIceberg_FR-FR8603937918_UHD.jpg&w=1000)Today: [Arche naturelle sculptée dans un iceberg, Océan Antarctique (© Steven Kazlowski/Nature Picture Library)](https://www.bing.com/th?id=OHR.ArchedIceberg_FR-FR8603937918_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ArchedIceberg_IT-IT9191790217_UHD.jpg&w=1000)Today: [Iceberg, costa occidentale della penisola Antartica, oceano Antartico (© Steven Kazlowski/Nature Picture Library)](https://www.bing.com/th?id=OHR.ArchedIceberg_IT-IT9191790217_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.IsolaElba_PT-BR4257374246_UHD.jpg&w=1000)Today: [Farol La Rocchetta, Piombino, Toscana, Itália (© StevanZZ/Getty Images)](https://www.bing.com/th?id=OHR.IsolaElba_PT-BR4257374246_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ArchedIceberg_PT-BR4679375878_UHD.jpg&w=1000)Today: [Iceberg flutuando na Antártica Ocidental, oceano Antártico (© Steven Kazlowski/Nature Picture Library)](https://www.bing.com/th?id=OHR.ArchedIceberg_PT-BR4679375878_UHD.jpg)
 <br><br/>
