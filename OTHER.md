@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.EggDad_JA-JP1066785458_UHD.jpg&w=1000)今日の壁紙: &nbsp;[オウサマペンギンの父親 (© McDonald Wildlife Photography Inc./Getty Images)](https://www.bing.com/th?id=OHR.EggDad_JA-JP1066785458_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ArchedIceberg_FR-FR8603937918_UHD.jpg&w=1000)Today: [Arche naturelle sculptée dans un iceberg, Océan Antarctique (© Steven Kazlowski/Nature Picture Library)](https://www.bing.com/th?id=OHR.ArchedIceberg_FR-FR8603937918_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SeineRiverside_FR-FR9034174472_UHD.jpg&w=1000)Today: [Notre-Dame de Paris et les quais de Seine, Paris (© RudyBalasko/Getty Images)](https://www.bing.com/th?id=OHR.SeineRiverside_FR-FR9034174472_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.KielSailing_DE-DE0980571166_UHD.jpg&w=1000)Today: [Windjammerparade zur Kieler Woche in Kiel, Schleswig-Holstein (© Snapshot freddy/Shutterstock)](https://www.bing.com/th?id=OHR.KielSailing_DE-DE0980571166_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EggDad_DE-DE1185821144_UHD.jpg&w=1000)Today: [Ein Königspinguin-Männchen schaut nach seinem Ei (© McDonald Wildlife Photography Inc./Getty Images)](https://www.bing.com/th?id=OHR.EggDad_DE-DE1185821144_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ArchedIceberg_ES-ES9715091871_UHD.jpg&w=1000)Today: [Iceberg arqueado flotando frente a la península Antártica occidental, océano Austral (© Steven Kazlowski/Nature Picture Library)](https://www.bing.com/th?id=OHR.ArchedIceberg_ES-ES9715091871_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Fujisan_ES-ES0010704933_UHD.jpg&w=1000)Today: [Monte Fuji en la isla de Honshu, Japón (© phutthiseth thongtae/Getty Images)](https://www.bing.com/th?id=OHR.Fujisan_ES-ES0010704933_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ArchedIceberg_EN-GB1807420935_UHD.jpg&w=1000)Today: [Arched iceberg floating off the western Antarctic Peninsula, Southern Ocean (© Steven Kazlowski/Nature Picture Library)](https://www.bing.com/th?id=OHR.ArchedIceberg_EN-GB1807420935_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EggDad_EN-GB2308215035_UHD.jpg&w=1000)Today: [King penguin father checking egg (© McDonald Wildlife Photography Inc./Getty Images)](https://www.bing.com/th?id=OHR.EggDad_EN-GB2308215035_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ArchedIceberg_IT-IT9191790217_UHD.jpg&w=1000)Today: [Iceberg, costa occidentale della penisola Antartica, oceano Antartico (© Steven Kazlowski/Nature Picture Library)](https://www.bing.com/th?id=OHR.ArchedIceberg_IT-IT9191790217_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Cesenatico_IT-IT1478062900_UHD.jpg&w=1000)Today: [Barche a vela tradizionali, Porto Canale Leonardesco, Cesenatico, Emilia-Romagna (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.Cesenatico_IT-IT1478062900_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ArchedIceberg_PT-BR4679375878_UHD.jpg&w=1000)Today: [Iceberg flutuando na Antártica Ocidental, oceano Antártico (© Steven Kazlowski/Nature Picture Library)](https://www.bing.com/th?id=OHR.ArchedIceberg_PT-BR4679375878_UHD.jpg)
 <br><br/>
