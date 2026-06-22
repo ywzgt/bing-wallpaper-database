@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.QuinaultFerns_ZH-CN6696428927_UHD.jpg&w=1000)今日图片: &nbsp;[奎诺尔特雨林, 奥林匹克国家公园, 华盛顿州, 美国 (© Chris Moore/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.QuinaultFerns_ZH-CN6696428927_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Fujisan_ZH-CN7203975085_UHD.jpg&w=1000)今日图片: &nbsp;[本州岛上的富士山, 日本 (© phutthiseth thongtae/Getty Images)](https://www.bing.com/th?id=OHR.Fujisan_ZH-CN7203975085_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.EggDad_EN-US6390221455_UHD.jpg&w=1000)Today: [King penguin father checking egg (© McDonald Wildlife Photography Inc./Getty Images)](https://www.bing.com/th?id=OHR.EggDad_EN-US6390221455_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.QuinaultFerns_EN-US6436576493_UHD.jpg&w=1000)Today: [Quinault rainforest, Olympic National Park, Washington state (© Chris Moore/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.QuinaultFerns_EN-US6436576493_UHD.jpg)
 <br><br/>

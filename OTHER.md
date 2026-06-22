@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Fujisan_JA-JP1483326201_UHD.jpg&w=1000)今日の壁紙: &nbsp;[富士山 (© phutthiseth thongtae/Getty Images)](https://www.bing.com/th?id=OHR.Fujisan_JA-JP1483326201_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.QuinaultFerns_JA-JP6908853562_UHD.jpg&w=1000)今日の壁紙: &nbsp;[キノート・レイン・フォレスト, 米国 ワシントン州 (© Chris Moore/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.QuinaultFerns_JA-JP6908853562_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.QuinaultFerns_FR-FR2142936548_UHD.jpg&w=1000)Today: [Forêt humide de Quinault, Parc national Olympique, État de Washington, États-Unis (© Chris Moore/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.QuinaultFerns_FR-FR2142936548_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.QuinaultFerns_IT-IT2013381547_UHD.jpg&w=1000)Today: [Foresta pluviale di Quinault, parco nazionale Olympic, Washington, USA (© Chris Moore/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.QuinaultFerns_IT-IT2013381547_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.EggDad_PT-BR4988690729_UHD.jpg&w=1000)Today: [Pinguim-rei protegendo um ovo (© McDonald Wildlife Photography Inc./Getty Images)](https://www.bing.com/th?id=OHR.EggDad_PT-BR4988690729_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.QuinaultFerns_PT-BR5147575881_UHD.jpg&w=1000)Today: [Floresta tropical de Quinault, Parque Nacional Olímpico, estado de Washington, Estados Unidos (© Chris Moore/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.QuinaultFerns_PT-BR5147575881_UHD.jpg)
 <br><br/>
