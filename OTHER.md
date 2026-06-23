@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.QuinaultFerns_JA-JP6908853562_UHD.jpg&w=1000)今日の壁紙: &nbsp;[キノート・レイン・フォレスト, 米国 ワシントン州 (© Chris Moore/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.QuinaultFerns_JA-JP6908853562_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.QuinaultFerns_FR-FR2142936548_UHD.jpg&w=1000)Today: [Forêt humide de Quinault, Parc national Olympique, État de Washington, États-Unis (© Chris Moore/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.QuinaultFerns_FR-FR2142936548_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Fujisan_FR-FR9764365414_UHD.jpg&w=1000)Today: [Mont Fuji sur l’île de Honshū, Japon (© phutthiseth thongtae/Getty Images)](https://www.bing.com/th?id=OHR.Fujisan_FR-FR9764365414_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.QuinaultFerns_DE-DE3985266590_UHD.jpg&w=1000)Today: [Quinault‑Regenwald im Olympic‑Nationalpark, Washington, USA (© Chris Moore/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.QuinaultFerns_DE-DE3985266590_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Fujisan_DE-DE4332870275_UHD.jpg&w=1000)Today: [Berg Fuji auf der Insel Honshū, Japan (© phutthiseth thongtae/Getty Images)](https://www.bing.com/th?id=OHR.Fujisan_DE-DE4332870275_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.QuinaultFerns_ES-ES0176872139_UHD.jpg&w=1000)Today: [Selva tropical de Quinault, parque nacional Olympic, estado de Washington, EE. UU. (© Chris Moore/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.QuinaultFerns_ES-ES0176872139_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SanJuanFuegos_ES-ES0457674498_UHD.jpg&w=1000)Today: [Fuegos artificiales en la Noche de San Juan (© rui_noronha/Getty Images)](https://www.bing.com/th?id=OHR.SanJuanFuegos_ES-ES0457674498_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.QuinaultFerns_EN-GB3562324915_UHD.jpg&w=1000)Today: [Quinault rainforest, Olympic National Park, Washington, United States (© Chris Moore/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.QuinaultFerns_EN-GB3562324915_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Fujisan_EN-GB3917508589_UHD.jpg&w=1000)Today: [Mount Fuji on Honshu Island, Japan (© phutthiseth thongtae/Getty Images)](https://www.bing.com/th?id=OHR.Fujisan_EN-GB3917508589_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.QuinaultFerns_IT-IT2013381547_UHD.jpg&w=1000)Today: [Foresta pluviale di Quinault, parco nazionale Olympic, Washington, USA (© Chris Moore/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.QuinaultFerns_IT-IT2013381547_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Fujisan_IT-IT7252704388_UHD.jpg&w=1000)Today: [Monte Fuji, Honshu, Giappone (© phutthiseth thongtae/Getty Images)](https://www.bing.com/th?id=OHR.Fujisan_IT-IT7252704388_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.QuinaultFerns_PT-BR5147575881_UHD.jpg&w=1000)Today: [Floresta tropical de Quinault, Parque Nacional Olímpico, estado de Washington, Estados Unidos (© Chris Moore/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.QuinaultFerns_PT-BR5147575881_UHD.jpg)
 <br><br/>
