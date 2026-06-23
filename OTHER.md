@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.QuinaultFerns_JA-JP6908853562_UHD.jpg&w=1000)今日の壁紙: &nbsp;[キノート・レイン・フォレスト, 米国 ワシントン州 (© Chris Moore/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.QuinaultFerns_JA-JP6908853562_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BFPollin_JA-JP2026844024_UHD.jpg&w=1000)今日の壁紙: &nbsp;[花の蜜を味わう蝶 (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.BFPollin_JA-JP2026844024_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.Fujisan_FR-FR9764365414_UHD.jpg&w=1000)Today: [Mont Fuji sur l’île de Honshū, Japon (© phutthiseth thongtae/Getty Images)](https://www.bing.com/th?id=OHR.Fujisan_FR-FR9764365414_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.Fujisan_IT-IT7252704388_UHD.jpg&w=1000)Today: [Monte Fuji, Honshu, Giappone (© phutthiseth thongtae/Getty Images)](https://www.bing.com/th?id=OHR.Fujisan_IT-IT7252704388_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.QuinaultFerns_PT-BR5147575881_UHD.jpg&w=1000)Today: [Floresta tropical de Quinault, Parque Nacional Olímpico, estado de Washington, Estados Unidos (© Chris Moore/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.QuinaultFerns_PT-BR5147575881_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Fujisan_PT-BR5438513277_UHD.jpg&w=1000)Today: [Monte Fuji na ilha de Honshu, Japão (© phutthiseth thongtae/Getty Images)](https://www.bing.com/th?id=OHR.Fujisan_PT-BR5438513277_UHD.jpg)
 <br><br/>
