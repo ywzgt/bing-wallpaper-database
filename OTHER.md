@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.BFPollin_JA-JP2026844024_UHD.jpg&w=1000)今日の壁紙: &nbsp;[花の蜜を味わう蝶 (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.BFPollin_JA-JP2026844024_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Fujisan_FR-FR9764365414_UHD.jpg&w=1000)Today: [Mont Fuji sur l’île de Honshū, Japon (© phutthiseth thongtae/Getty Images)](https://www.bing.com/th?id=OHR.Fujisan_FR-FR9764365414_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BFPollin_FR-FR2895321472_UHD.jpg&w=1000)Today: [Papillon sur une fleur jaune (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.BFPollin_FR-FR2895321472_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Fujisan_DE-DE4332870275_UHD.jpg&w=1000)Today: [Berg Fuji auf der Insel Honshū, Japan (© phutthiseth thongtae/Getty Images)](https://www.bing.com/th?id=OHR.Fujisan_DE-DE4332870275_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BFPollin_DE-DE1648202484_UHD.jpg&w=1000)Today: [Schmetterling beim Bestäuben einer gelben Blüte (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.BFPollin_DE-DE1648202484_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SanJuanFuegos_ES-ES0457674498_UHD.jpg&w=1000)Today: [Fuegos artificiales en la Noche de San Juan (© rui_noronha/Getty Images)](https://www.bing.com/th?id=OHR.SanJuanFuegos_ES-ES0457674498_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BFPollin_ES-ES0605051254_UHD.jpg&w=1000)Today: [Mariposa polinizando una flor amarilla (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.BFPollin_ES-ES0605051254_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Fujisan_EN-GB3917508589_UHD.jpg&w=1000)Today: [Mount Fuji on Honshu Island, Japan (© phutthiseth thongtae/Getty Images)](https://www.bing.com/th?id=OHR.Fujisan_EN-GB3917508589_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BFPollin_EN-GB9787494533_UHD.jpg&w=1000)Today: [Butterfly pollinating on yellow flower (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.BFPollin_EN-GB9787494533_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Fujisan_IT-IT7252704388_UHD.jpg&w=1000)Today: [Monte Fuji, Honshu, Giappone (© phutthiseth thongtae/Getty Images)](https://www.bing.com/th?id=OHR.Fujisan_IT-IT7252704388_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BFPollin_IT-IT1968773839_UHD.jpg&w=1000)Today: [Farfalla che impollina un fiore giallo (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.BFPollin_IT-IT1968773839_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.Fujisan_PT-BR5438513277_UHD.jpg&w=1000)Today: [Monte Fuji na ilha de Honshu, Japão (© phutthiseth thongtae/Getty Images)](https://www.bing.com/th?id=OHR.Fujisan_PT-BR5438513277_UHD.jpg)
 <br><br/>
