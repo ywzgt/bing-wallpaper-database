@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BFPollin_JA-JP2026844024_UHD.jpg&w=1000)今日の壁紙: &nbsp;[花の蜜を味わう蝶 (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.BFPollin_JA-JP2026844024_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LavenderSeason2026_JA-JP7050134160_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ラベンダー畑, 北海道 中富良野町 (© Weiheng Pan/Getty Images Plus)](https://www.bing.com/th?id=OHR.LavenderSeason2026_JA-JP7050134160_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BFPollin_FR-FR2895321472_UHD.jpg&w=1000)Today: [Papillon sur une fleur jaune (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.BFPollin_FR-FR2895321472_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BFPollin_IT-IT1968773839_UHD.jpg&w=1000)Today: [Farfalla che impollina un fiore giallo (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.BFPollin_IT-IT1968773839_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Fujisan_PT-BR5438513277_UHD.jpg&w=1000)Today: [Monte Fuji na ilha de Honshu, Japão (© phutthiseth thongtae/Getty Images)](https://www.bing.com/th?id=OHR.Fujisan_PT-BR5438513277_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BFPollin_PT-BR5634257849_UHD.jpg&w=1000)Today: [Borboleta polinizando uma flor amarela (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.BFPollin_PT-BR5634257849_UHD.jpg)
 <br><br/>
