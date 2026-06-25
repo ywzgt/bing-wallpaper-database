@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.LavenderSeason2026_JA-JP7050134160_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ラベンダー畑, 北海道 中富良野町 (© Weiheng Pan/Getty Images Plus)](https://www.bing.com/th?id=OHR.LavenderSeason2026_JA-JP7050134160_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ThamesSummer_JA-JP5302199333_UHD.jpg&w=1000)今日の壁紙: &nbsp;[テムズ川, イングランド ロンドン (© Daniel Lange/Getty Images)](https://www.bing.com/th?id=OHR.ThamesSummer_JA-JP5302199333_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.GrandPlace_FR-FR1172312712_UHD.jpg&w=1000)Today: [Bâtiments sur la Grand-Place de Bruxelles, Belgique (© Vladislav Zolotov/Getty Images Plus)](https://www.bing.com/th?id=OHR.GrandPlace_FR-FR1172312712_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.GrandPlace_IT-IT4483523148_UHD.jpg&w=1000)Today: [Edifici sulla Grand-Place a Bruxelles, Belgio (© Vladislav Zolotov/Getty Images Plus)](https://www.bing.com/th?id=OHR.GrandPlace_IT-IT4483523148_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BFPollin_PT-BR5634257849_UHD.jpg&w=1000)Today: [Borboleta polinizando uma flor amarela (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.BFPollin_PT-BR5634257849_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IbiSP_PT-BR5842175553_UHD.jpg&w=1000)Today: [Parque Ibirapuera, São Paulo, estado de São Paulo (© Brasil2/Getty Images)](https://www.bing.com/th?id=OHR.IbiSP_PT-BR5842175553_UHD.jpg)
 <br><br/>
