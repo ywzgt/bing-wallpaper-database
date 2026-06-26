@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ThamesSummer_ZH-CN5292532714_UHD.jpg&w=1000)今日图片: &nbsp;[泰晤士河, 伦敦, 英格兰 (© Daniel Lange/Getty Images)](https://www.bing.com/th?id=OHR.ThamesSummer_ZH-CN5292532714_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_UHD.jpg&w=1000)今日图片: &nbsp;[博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州, 美国 (© Frances/Adobe Stock)](https://www.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GrandPlace_EN-US6561229456_UHD.jpg&w=1000)Today: [Buildings on Grand-Place Square in Brussels, Belgium (© Vladislav Zolotov/Getty Images Plus)](https://www.bing.com/th?id=OHR.GrandPlace_EN-US6561229456_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ThamesSummer_EN-US6783349970_UHD.jpg&w=1000)Today: [The River Thames, London, England (© Daniel Lange/Getty Images)](https://www.bing.com/th?id=OHR.ThamesSummer_EN-US6783349970_UHD.jpg)
 <br><br/>
