@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Ajisai2026_JA-JP5953428145_UHD.jpg&w=1000)今日の壁紙: &nbsp;[あじさいの花房, 岩手県 奥州市 (© nattya3714/Getty Images)](https://www.bing.com/th?id=OHR.Ajisai2026_JA-JP5953428145_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SaguaroSun_JA-JP5856249761_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ウィンドゲートパス, 米国 アリゾナ州 (© Eric Mischke/Getty Images)](https://www.bing.com/th?id=OHR.SaguaroSun_JA-JP5856249761_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BoneyardBeach_FR-FR6517949092_UHD.jpg&w=1000)Today: [Bois flotté sur la plage de Beaufort, Hunting Island, Caroline du Sud, États-Unis (© Frances/Adobe Stock)](https://www.bing.com/th?id=OHR.BoneyardBeach_FR-FR6517949092_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BoneyardBeach_IT-IT9837372965_UHD.jpg&w=1000)Today: [Spiaggia di Boneyard Beach, Hunting Island, Carolina del Sud, USA (© Frances/Adobe Stock)](https://www.bing.com/th?id=OHR.BoneyardBeach_IT-IT9837372965_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Parintins_PT-BR8364769128_UHD.jpg&w=1000)Today: [Integrantes do Bloco Boi Faceiro na celebração do bumba-meu-boi, São Caetano de Odivelas, Pará (© Pedro Vilela/Stringer/Getty Images)](https://www.bing.com/th?id=OHR.Parintins_PT-BR8364769128_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BoneyardBeach_PT-BR8811510135_UHD.jpg&w=1000)Today: [Troncos na Boneyard Beach, Hunting Island, Carolina do Sul, Estados Unidos (© Frances/Adobe Stock)](https://www.bing.com/th?id=OHR.BoneyardBeach_PT-BR8811510135_UHD.jpg)
 <br><br/>
