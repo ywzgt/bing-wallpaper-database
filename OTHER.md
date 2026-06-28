@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SaguaroSun_JA-JP5856249761_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ウィンドゲートパス, 米国 アリゾナ州 (© Eric Mischke/Getty Images)](https://www.bing.com/th?id=OHR.SaguaroSun_JA-JP5856249761_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BoraBoraLagoon_JA-JP3981162879_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ボラボラ島, フランス領ポリネシア (© Frederick Millett/Shutterstock)](https://www.bing.com/th?id=OHR.BoraBoraLagoon_JA-JP3981162879_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SaguaroSun_FR-FR5935266298_UHD.jpg&w=1000)Today: [Cactus saguaro près de Windgate Pass, chaîne des McDowell, Arizona, États‑Unis (© Eric Mischke/Getty Images)](https://www.bing.com/th?id=OHR.SaguaroSun_FR-FR5935266298_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SaguaroSun_IT-IT8055685927_UHD.jpg&w=1000)Today: [Cactus Saguaro vicino al Passo Windgate, McDowell Range, Arizona, USA (© Eric Mischke/Getty Images)](https://www.bing.com/th?id=OHR.SaguaroSun_IT-IT8055685927_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BoneyardBeach_PT-BR8811510135_UHD.jpg&w=1000)Today: [Troncos na Boneyard Beach, Hunting Island, Carolina do Sul, Estados Unidos (© Frances/Adobe Stock)](https://www.bing.com/th?id=OHR.BoneyardBeach_PT-BR8811510135_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SaguaroSun_PT-BR3626457853_UHD.jpg&w=1000)Today: [Cactos-saguaro perto de Windgate Pass, cordilheira McDowell, Arizona, Estados Unidos (© Eric Mischke/Getty Images)](https://www.bing.com/th?id=OHR.SaguaroSun_PT-BR3626457853_UHD.jpg)
 <br><br/>
