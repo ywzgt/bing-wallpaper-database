@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MasaiGiraffe_ZH-CN1665123897_UHD.jpg&w=1000)今日图片: &nbsp;[马赛马拉国家保护区日落时分的长颈鹿, 肯尼亚 (© danm/Getty Images)](https://www.bing.com/th?id=OHR.MasaiGiraffe_ZH-CN1665123897_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg&w=1000)今日图片: &nbsp;[地牢省立公园, 纽芬兰和拉布拉多省, 加拿大 (© Kaitlyn McLachlan/Getty Images)](https://www.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BoraBoraLagoon_EN-US1491116478_UHD.jpg&w=1000)Today: [Bora Bora and its lagoon, South Pacific, French Polynesia (© Frederick Millett/Shutterstock)](https://www.bing.com/th?id=OHR.BoraBoraLagoon_EN-US1491116478_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MasaiGiraffe_EN-US2240704874_UHD.jpg&w=1000)Today: [Giraffes at sunset in the Masai Mara National Reserve, Kenya (© danm/Getty Images)](https://www.bing.com/th?id=OHR.MasaiGiraffe_EN-US2240704874_UHD.jpg)
 <br><br/>
