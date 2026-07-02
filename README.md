@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TempleEsna_ZH-CN9834689523_UHD.jpg&w=1000)今日图片: &nbsp;[埃斯纳神庙穹顶天花板, 埃及 (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.TempleEsna_ZH-CN9834689523_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FirefliesJapan_ZH-CN0071253415_UHD.jpg&w=1000)今日图片: &nbsp;[小溪上方的萤火虫，冈山县，日本 (© tdub303/Getty Images)](https://www.bing.com/th?id=OHR.FirefliesJapan_ZH-CN0071253415_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DungeonPark_EN-US2499621341_UHD.jpg&w=1000)Today: [Dungeon Provincial Park, Newfoundland and Labrador, Canada (© Kaitlyn McLachlan/Getty Images)](https://www.bing.com/th?id=OHR.DungeonPark_EN-US2499621341_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_UHD.jpg&w=1000)Today: [Ceiling of the Temple of Esna, Egypt (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_UHD.jpg)
 <br><br/>
