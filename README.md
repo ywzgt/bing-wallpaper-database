@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.FirefliesJapan_ZH-CN0071253415_UHD.jpg&w=1000)今日图片: &nbsp;[小溪上方的萤火虫，冈山县，日本 (© tdub303/Getty Images)](https://www.bing.com/th?id=OHR.FirefliesJapan_ZH-CN0071253415_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KaysersbergVillage_ZH-CN0445080679_UHD.jpg&w=1000)今日图片: &nbsp;[凯泽斯堡，阿尔萨斯，法国 (© Federica Gentile/Getty Images)](https://www.bing.com/th?id=OHR.KaysersbergVillage_ZH-CN0445080679_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_UHD.jpg&w=1000)Today: [Ceiling of the Temple of Esna, Egypt (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FirefliesJapan_EN-US2315956275_UHD.jpg&w=1000)Today: [Fireflies glowing above a stream, Okayama Prefecture, Japan (© tdub303/Getty Images)](https://www.bing.com/th?id=OHR.FirefliesJapan_EN-US2315956275_UHD.jpg)
 <br><br/>
