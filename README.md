@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.LavenderRows_ZH-CN0676810895_UHD.jpg&w=1000)今日图片: &nbsp;[瓦朗索勒高原的薰衣草行，普罗旺斯，法国 (© Robert Harding/Shutterstock)](https://www.bing.com/th?id=OHR.LavenderRows_ZH-CN0676810895_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_UHD.jpg&w=1000)今日图片: &nbsp;[锡拉库萨的日落，西西里岛，意大利 (© Balate Dorin/Getty Images)](https://www.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LibertyHall_EN-US2562041614_UHD.jpg&w=1000)Today: [Liberty Bell and Independence Hall, Independence National Historical Park, Philadelphia, Pennsylvania (© f11photo/Shutterstock)](https://www.bing.com/th?id=OHR.LibertyHall_EN-US2562041614_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_UHD.jpg&w=1000)Today: [Lavender rows, Plateau de Valensole, Provence, France (© Robert Harding/Shutterstock)](https://www.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_UHD.jpg)
 <br><br/>
