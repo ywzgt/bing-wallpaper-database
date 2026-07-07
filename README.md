@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_UHD.jpg&w=1000)今日图片: &nbsp;[板嘴山巨嘴鸟与兰花，厄瓜多尔 (© Murray Cooper/Minden Pictures)](https://www.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LakeAtitlan_ZH-CN1920221893_UHD.jpg&w=1000)今日图片: &nbsp;[阿蒂特兰湖的日出，危地马拉 (© shayes17/Getty Images)](https://www.bing.com/th?id=OHR.LakeAtitlan_ZH-CN1920221893_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SyracuseItaly_EN-US3071727282_UHD.jpg&w=1000)Today: [Syracuse at sunset, Sicily, Italy (© Balate Dorin/Getty Images)](https://www.bing.com/th?id=OHR.SyracuseItaly_EN-US3071727282_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MountainToucanOrchids_EN-US3433249651_UHD.jpg&w=1000)Today: [Plate-billed mountain toucan with orchids, Ecuador (© Murray Cooper/Minden Pictures)](https://www.bing.com/th?id=OHR.MountainToucanOrchids_EN-US3433249651_UHD.jpg)
 <br><br/>
