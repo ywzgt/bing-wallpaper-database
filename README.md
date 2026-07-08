@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.LakeAtitlan_ZH-CN1920221893_UHD.jpg&w=1000)今日图片: &nbsp;[阿蒂特兰湖的日出，危地马拉 (© shayes17/Getty Images)](https://www.bing.com/th?id=OHR.LakeAtitlan_ZH-CN1920221893_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SapaVietnam_ZH-CN2178893672_UHD.jpg&w=1000)今日图片: &nbsp;[在沙巴的水稻田，老街，越南 (© Anujak Jaimook/Getty Images)](https://www.bing.com/th?id=OHR.SapaVietnam_ZH-CN2178893672_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MountainToucanOrchids_EN-US3433249651_UHD.jpg&w=1000)Today: [Plate-billed mountain toucan with orchids, Ecuador (© Murray Cooper/Minden Pictures)](https://www.bing.com/th?id=OHR.MountainToucanOrchids_EN-US3433249651_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LakeAtitlan_EN-US3747076006_UHD.jpg&w=1000)Today: [Sunrise at Lake Atitlán, Guatemala (© shayes17/Getty Images)](https://www.bing.com/th?id=OHR.LakeAtitlan_EN-US3747076006_UHD.jpg)
 <br><br/>
