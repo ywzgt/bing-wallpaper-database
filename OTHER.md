@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.VictoriaBeach_JA-JP5622574083_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ビクトリア州にあるビーチ, オーストラリア (© Nearmap/Getty Images)](https://www.bing.com/th?id=OHR.VictoriaBeach_JA-JP5622574083_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AurayBrittany_JA-JP5965695214_UHD.jpg&w=1000)今日の壁紙: &nbsp;[サン＝グスタン港, フランス (© Rolf E. Staerk/Shutterstock)](https://www.bing.com/th?id=OHR.AurayBrittany_JA-JP5965695214_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.VictoriaBeach_FR-FR3702097800_UHD.jpg&w=1000)Today: [Vue aérienne des terres et de l'océan, Victoria, Australie (© Nearmap/Getty Images)](https://www.bing.com/th?id=OHR.VictoriaBeach_FR-FR3702097800_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.VictoriaBeach_IT-IT7530420052_UHD.jpg&w=1000)Today: [Veduta aerea di terra e oceano, Victoria, Australia (© Nearmap/Getty Images)](https://www.bing.com/th?id=OHR.VictoriaBeach_IT-IT7530420052_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SapaVietnam_PT-BR6337399774_UHD.jpg&w=1000)Today: [Campos de arroz em Sapa, província de Lào Cai, Vietnã (© Anujak Jaimook/Getty Images)](https://www.bing.com/th?id=OHR.SapaVietnam_PT-BR6337399774_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VictoriaBeach_PT-BR0308396736_UHD.jpg&w=1000)Today: [Vista aérea da costa de Vitória, Austrália (© Nearmap/Getty Images)](https://www.bing.com/th?id=OHR.VictoriaBeach_PT-BR0308396736_UHD.jpg)
 <br><br/>

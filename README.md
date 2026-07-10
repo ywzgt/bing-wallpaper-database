@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.VictoriaBeach_ZH-CN8892195426_UHD.jpg&w=1000)今日图片: &nbsp;[陆地与海洋的鸟瞰图，维多利亚州，澳大利亚 (© Nearmap/Getty Images)](https://www.bing.com/th?id=OHR.VictoriaBeach_ZH-CN8892195426_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AurayBrittany_ZH-CN5549157888_UHD.jpg&w=1000)今日图片: &nbsp;[圣古斯坦港, 欧赖, 布列塔尼, 法国 (© Rolf E. Staerk/Shutterstock)](https://www.bing.com/th?id=OHR.AurayBrittany_ZH-CN5549157888_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SapaVietnam_EN-US4008171614_UHD.jpg&w=1000)Today: [Rice fields at Sapa, Lào Cai, Vietnam (© Anujak Jaimook/Getty Images)](https://www.bing.com/th?id=OHR.SapaVietnam_EN-US4008171614_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VictoriaBeach_EN-US7607379912_UHD.jpg&w=1000)Today: [Aerial view of land and ocean, Victoria, Australia (© Nearmap/Getty Images)](https://www.bing.com/th?id=OHR.VictoriaBeach_EN-US7607379912_UHD.jpg)
 <br><br/>
