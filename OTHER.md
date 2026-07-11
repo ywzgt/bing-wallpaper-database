@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AurayBrittany_JA-JP5965695214_UHD.jpg&w=1000)今日の壁紙: &nbsp;[サン＝グスタン港, フランス (© Rolf E. Staerk/Shutterstock)](https://www.bing.com/th?id=OHR.AurayBrittany_JA-JP5965695214_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KatahdinWWNM_JA-JP6177719073_UHD.jpg&w=1000)今日の壁紙: &nbsp;[カタディン・ウッズ・アンド・ウォーターズ国定記念物, 米国 メイン州 (© Cavan Images/Offset/Shutterstock)](https://www.bing.com/th?id=OHR.KatahdinWWNM_JA-JP6177719073_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AurayBrittany_FR-FR2151221761_UHD.jpg&w=1000)Today: [Port de Saint-Goustan, Auray, Bretagne (© Rolf E. Staerk/Shutterstock)](https://www.bing.com/th?id=OHR.AurayBrittany_FR-FR2151221761_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.IsolaBella_IT-IT9517303219_UHD.jpg&w=1000)Today: [Veduta aerea di Isola Bella a Taormina, Sicilia, Italia (© DaLiu/iStock/Getty Images)](https://www.bing.com/th?id=OHR.IsolaBella_IT-IT9517303219_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.VictoriaBeach_PT-BR0308396736_UHD.jpg&w=1000)Today: [Vista aérea da costa de Vitória, Austrália (© Nearmap/Getty Images)](https://www.bing.com/th?id=OHR.VictoriaBeach_PT-BR0308396736_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AurayBrittany_PT-BR2396626414_UHD.jpg&w=1000)Today: [Porto de Saint-Goustan, Auray, Bretanha, França (© Rolf E. Staerk/Shutterstock)](https://www.bing.com/th?id=OHR.AurayBrittany_PT-BR2396626414_UHD.jpg)
 <br><br/>
