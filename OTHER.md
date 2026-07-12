@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.KatahdinWWNM_JA-JP6177719073_UHD.jpg&w=1000)今日の壁紙: &nbsp;[カタディン・ウッズ・アンド・ウォーターズ国定記念物, 米国 メイン州 (© Cavan Images/Offset/Shutterstock)](https://www.bing.com/th?id=OHR.KatahdinWWNM_JA-JP6177719073_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NavajoSandstone_JA-JP6458327046_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アンテロープ・キャニオン, 米国 アリゾナ州 (© Mark Skalny/Getty Images)](https://www.bing.com/th?id=OHR.NavajoSandstone_JA-JP6458327046_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.KatahdinWWNM_FR-FR2337328139_UHD.jpg&w=1000)Today: [Monument national des bois et des eaux de Katahdin, Maine, États-Unis (© Cavan Images/Offset/Shutterstock)](https://www.bing.com/th?id=OHR.KatahdinWWNM_FR-FR2337328139_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.KatahdinWWNM_IT-IT7750657395_UHD.jpg&w=1000)Today: [Il Monumento Nazionale Katahdin Woods and Waters, Maine, USA (© Cavan Images/Offset/Shutterstock)](https://www.bing.com/th?id=OHR.KatahdinWWNM_IT-IT7750657395_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AurayBrittany_PT-BR2396626414_UHD.jpg&w=1000)Today: [Porto de Saint-Goustan, Auray, Bretanha, França (© Rolf E. Staerk/Shutterstock)](https://www.bing.com/th?id=OHR.AurayBrittany_PT-BR2396626414_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KatahdinWWNM_PT-BR2485169040_UHD.jpg&w=1000)Today: [Monumento Nacional Katahdin Woods and Waters, Maine, Estados Unidos (© Cavan Images/Offset/Shutterstock)](https://www.bing.com/th?id=OHR.KatahdinWWNM_PT-BR2485169040_UHD.jpg)
 <br><br/>
