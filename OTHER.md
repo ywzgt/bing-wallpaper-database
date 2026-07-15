@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MarieLake_JA-JP9898730602_UHD.jpg&w=1000)今日の壁紙: &nbsp;[マリー・レイク, 米国 カリフォルニア州 (© Steve Dunleavy/Getty Images)](https://www.bing.com/th?id=OHR.MarieLake_JA-JP9898730602_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NavyPier_JA-JP0160307645_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ネイビー・ピア, 米国イリノイ州 (© Christopher.F Photography/Getty Images)](https://www.bing.com/th?id=OHR.NavyPier_JA-JP0160307645_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.LemonShark_FR-FR4291742004_UHD.jpg&w=1000)Today: [Jeune requin-citron dans la mangrove, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)](https://www.bing.com/th?id=OHR.LemonShark_FR-FR4291742004_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MarieLake_IT-IT8390636002_UHD.jpg&w=1000)Today: [Marie Lake, Area selvaggia John Muir vicino a Bishop, California, USA (© Steve Dunleavy/Getty Images)](https://www.bing.com/th?id=OHR.MarieLake_IT-IT8390636002_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LemonShark_PT-BR3191818241_UHD.jpg&w=1000)Today: [Filhote de tubarão-limão em floresta de mangue, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)](https://www.bing.com/th?id=OHR.LemonShark_PT-BR3191818241_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Tanager_PT-BR3453059902_UHD.jpg&w=1000)Today: [Saíra-sete-cores pousada em um galho em São Paulo (© Juan Carlos Vindas/Getty Images)](https://www.bing.com/th?id=OHR.Tanager_PT-BR3453059902_UHD.jpg)
 <br><br/>
