@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.DevilsBridge_JA-JP0713285567_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ラコツ橋, ドイツ (© Mike Mareen/Getty Images)](https://www.bing.com/th?id=OHR.DevilsBridge_JA-JP0713285567_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HirundoRustica_JA-JP1327555795_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ツバメ (© Oscar Dominguez/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HirundoRustica_JA-JP1327555795_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.DevilsBridge_FR-FR5259113427_UHD.jpg&w=1000)Today: [Pont du Diable dans le parc aux rhododendrons de Kromlau, en Saxe, Allemagne (© Mike Mareen/Getty Images)](https://www.bing.com/th?id=OHR.DevilsBridge_FR-FR5259113427_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.FestaVenezia_IT-IT8709585056_UHD.jpg&w=1000)Today: [Le case colorate di Burano, Venezia, Veneto, Italia (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.FestaVenezia_IT-IT8709585056_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HirundoRustica_PT-BR5068728715_UHD.jpg&w=1000)Today: [Andorinhas-das-chaminés de diferentes subespécies pousadas juntas (© Oscar Dominguez/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HirundoRustica_PT-BR5068728715_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DevilsBridge_PT-BR5443302606_UHD.jpg&w=1000)Today: [Ponte do Diabo no Parque dos Rododendros de Kromlau, Saxônia, Alemanha (© Mike Mareen/Getty Images)](https://www.bing.com/th?id=OHR.DevilsBridge_PT-BR5443302606_UHD.jpg)
 <br><br/>
