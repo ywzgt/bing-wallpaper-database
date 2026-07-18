@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.DevilsBridge_JA-JP0713285567_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ラコツ橋, ドイツ (© Mike Mareen/Getty Images)](https://www.bing.com/th?id=OHR.DevilsBridge_JA-JP0713285567_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.VaiUmbrellas_FR-FR3414218342_UHD.jpg&w=1000)Today: [Chaises longues sur la plage de Vaï, Crète, Grèce (© borchee/Getty Images)](https://www.bing.com/th?id=OHR.VaiUmbrellas_FR-FR3414218342_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DevilsBridge_FR-FR5259113427_UHD.jpg&w=1000)Today: [Pont du Diable dans le parc aux rhododendrons de Kromlau, en Saxe, Allemagne (© Mike Mareen/Getty Images)](https://www.bing.com/th?id=OHR.DevilsBridge_FR-FR5259113427_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.VaiUmbrellas_DE-DE2887576952_UHD.jpg&w=1000)Today: [Liegestühle am Sandstrand von Vai, Kreta, Griechenland (© borchee/Getty Images)](https://www.bing.com/th?id=OHR.VaiUmbrellas_DE-DE2887576952_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DevilsBridge_DE-DE6987454445_UHD.jpg&w=1000)Today: [Rakotzbrücke in Kromlau, Sachsen (© Mike Mareen/Getty Images)](https://www.bing.com/th?id=OHR.DevilsBridge_DE-DE6987454445_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PerseidasTenerife_ES-ES7757979261_UHD.jpg&w=1000)Today: [Vía Láctea y meteoros de las Perseidas sobre el Teide, Observatorio Astronómico de Izaña, Tenerife, Islas Canarias (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.PerseidasTenerife_ES-ES7757979261_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DevilsBridge_ES-ES8242183956_UHD.jpg&w=1000)Today: [Puente Rakotzbrücke en Rhododendronpark Kromlau, Sajonia, Alemania (© Mike Mareen/Getty Images)](https://www.bing.com/th?id=OHR.DevilsBridge_ES-ES8242183956_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.VaiUmbrellas_EN-GB3361752741_UHD.jpg&w=1000)Today: [Blue sunbeds on a sandy beach in Vai, Crete, Greece (© borchee/Getty Images)](https://www.bing.com/th?id=OHR.VaiUmbrellas_EN-GB3361752741_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DevilsBridge_EN-GB3657419694_UHD.jpg&w=1000)Today: [Devil's Bridge in Rhododendron Park Kromlau, Saxony, Germany (© Mike Mareen/Getty Images)](https://www.bing.com/th?id=OHR.DevilsBridge_EN-GB3657419694_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.VaiUmbrellas_IT-IT8454370780_UHD.jpg&w=1000)Today: [Ombrelloni blu su una spiaggia sabbiosa a Vai, Creta, Grecia (© borchee/Getty Images)](https://www.bing.com/th?id=OHR.VaiUmbrellas_IT-IT8454370780_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FestaVenezia_IT-IT8709585056_UHD.jpg&w=1000)Today: [Le case colorate di Burano, Venezia, Veneto, Italia (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.FestaVenezia_IT-IT8709585056_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.HirundoRustica_PT-BR5068728715_UHD.jpg&w=1000)Today: [Andorinhas-das-chaminés de diferentes subespécies pousadas juntas (© Oscar Dominguez/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HirundoRustica_PT-BR5068728715_UHD.jpg)
 <br><br/>
