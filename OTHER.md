@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.HirundoRustica_JA-JP1327555795_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ツバメ (© Oscar Dominguez/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HirundoRustica_JA-JP1327555795_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Artemis_JA-JP1736021856_UHD.jpg&w=1000)今日の壁紙: &nbsp;[月から見た地球 (© NASA)](https://www.bing.com/th?id=OHR.Artemis_JA-JP1736021856_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.HirundoRustica_FR-FR5403619513_UHD.jpg&w=1000)Today: [Hirondelles rustiques de différentes sous-espèces se reposant ensemble (© Oscar Dominguez/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HirundoRustica_FR-FR5403619513_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.HirundoRustica_IT-IT8852691530_UHD.jpg&w=1000)Today: [Rondini di diverse sottospecie che riposano insieme (© Oscar Dominguez/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HirundoRustica_IT-IT8852691530_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DevilsBridge_PT-BR5443302606_UHD.jpg&w=1000)Today: [Ponte do Diabo no Parque dos Rododendros de Kromlau, Saxônia, Alemanha (© Mike Mareen/Getty Images)](https://www.bing.com/th?id=OHR.DevilsBridge_PT-BR5443302606_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SoccerDay_PT-BR5859476382_UHD.jpg&w=1000)Today: [Vista aérea de jovens jogando futebol em um campo de terra em uma comunidade do Rio de Janeiro, RJ (© Tom Wilde/Getty Images)](https://www.bing.com/th?id=OHR.SoccerDay_PT-BR5859476382_UHD.jpg)
 <br><br/>
