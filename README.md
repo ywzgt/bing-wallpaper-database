@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Artemis_ZH-CN3540365575_UHD.jpg&w=1000)今日图片: &nbsp;[月球与地球由阿耳忒弥斯2号机组人员拍摄 (© NASA)](https://www.bing.com/th?id=OHR.Artemis_ZH-CN3540365575_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SantaCatalina_ZH-CN6223370790_UHD.jpg&w=1000)今日图片: &nbsp;[圣卡塔琳娜拱门，安提瓜，危地马拉 (© Filippo Maria Bianchi/Getty Images)](https://www.bing.com/th?id=OHR.SantaCatalina_ZH-CN6223370790_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.HirundoRustica_EN-US3193611104_UHD.jpg&w=1000)Today: [Barn swallows of different subspecies resting together (© Oscar Dominguez/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HirundoRustica_EN-US3193611104_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Artemis_EN-US0683925849_UHD.jpg&w=1000)Today: [Moon and Earth captured by the Artemis II crew (© NASA)](https://www.bing.com/th?id=OHR.Artemis_EN-US0683925849_UHD.jpg)
 <br><br/>

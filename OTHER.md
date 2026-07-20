@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Artemis_JA-JP1736021856_UHD.jpg&w=1000)今日の壁紙: &nbsp;[月から見た地球 (© NASA)](https://www.bing.com/th?id=OHR.Artemis_JA-JP1736021856_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Kawagoe2026_JA-JP2060864918_UHD.jpg&w=1000)今日の壁紙: &nbsp;[川越氷川神社, 埼玉県 川越市 (© kudosstudio/Adobe)](https://www.bing.com/th?id=OHR.Kawagoe2026_JA-JP2060864918_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.Artemis_FR-FR5561744161_UHD.jpg&w=1000)Today: [La Lune et la Terre capturées par l'équipage d'Artemis II (© NASA)](https://www.bing.com/th?id=OHR.Artemis_FR-FR5561744161_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.Artemis_IT-IT9087187961_UHD.jpg&w=1000)Today: [Luna e Terra catturate dall'equipaggio di Artemis II (© NASA)](https://www.bing.com/th?id=OHR.Artemis_IT-IT9087187961_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SoccerDay_PT-BR5859476382_UHD.jpg&w=1000)Today: [Vista aérea de jovens jogando futebol em um campo de terra em uma comunidade do Rio de Janeiro, RJ (© Tom Wilde/Getty Images)](https://www.bing.com/th?id=OHR.SoccerDay_PT-BR5859476382_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Artemis_PT-BR6100754238_UHD.jpg&w=1000)Today: [Lua e Terra fotografadas pela tripulação da missão Artemis II (© NASA)](https://www.bing.com/th?id=OHR.Artemis_PT-BR6100754238_UHD.jpg)
 <br><br/>
