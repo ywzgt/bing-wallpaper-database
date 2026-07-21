@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Kawagoe2026_JA-JP2060864918_UHD.jpg&w=1000)今日の壁紙: &nbsp;[川越氷川神社, 埼玉県 川越市 (© kudosstudio/Adobe)](https://www.bing.com/th?id=OHR.Kawagoe2026_JA-JP2060864918_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CoralAwareness_JA-JP2408708579_UHD.jpg&w=1000)今日の壁紙: &nbsp;[サンゴ礁, インドネシア (© SergeUWPhoto/Shutterstock)](https://www.bing.com/th?id=OHR.CoralAwareness_JA-JP2408708579_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SantaCatalina_FR-FR5835984495_UHD.jpg&w=1000)Today: [Arche de Santa Catalina, Antigua, Guatemala (© Filippo Maria Bianchi/Getty Images)](https://www.bing.com/th?id=OHR.SantaCatalina_FR-FR5835984495_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SantaCatalina_IT-IT4012109567_UHD.jpg&w=1000)Today: [L'Arco di Santa Catalina, Antigua, Guatemala (© Filippo Maria Bianchi/Getty Images)](https://www.bing.com/th?id=OHR.SantaCatalina_IT-IT4012109567_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Artemis_PT-BR6100754238_UHD.jpg&w=1000)Today: [Lua e Terra fotografadas pela tripulação da missão Artemis II (© NASA)](https://www.bing.com/th?id=OHR.Artemis_PT-BR6100754238_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SantaCatalina_PT-BR6725083050_UHD.jpg&w=1000)Today: [Arco de Santa Catalina, Antígua, Guatemala (© Filippo Maria Bianchi/Getty Images)](https://www.bing.com/th?id=OHR.SantaCatalina_PT-BR6725083050_UHD.jpg)
 <br><br/>
