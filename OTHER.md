@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.CoralAwareness_JA-JP2408708579_UHD.jpg&w=1000)今日の壁紙: &nbsp;[サンゴ礁, インドネシア (© SergeUWPhoto/Shutterstock)](https://www.bing.com/th?id=OHR.CoralAwareness_JA-JP2408708579_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PinkDahlia_JA-JP3415436544_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ピンクのダリア (© Harald Biebel/Getty Images)](https://www.bing.com/th?id=OHR.PinkDahlia_JA-JP3415436544_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CoralAwareness_FR-FR4288203085_UHD.jpg&w=1000)Today: [Récif corallien et plage de Raja Ampat, Indonésie (© SergeUWPhoto/Shutterstock)](https://www.bing.com/th?id=OHR.CoralAwareness_FR-FR4288203085_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CoralAwareness_IT-IT9276048724_UHD.jpg&w=1000)Today: [Barriera corallina e spiaggia a Raja Ampat, Indonesia (© SergeUWPhoto/Shutterstock)](https://www.bing.com/th?id=OHR.CoralAwareness_IT-IT9276048724_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SantaCatalina_PT-BR6725083050_UHD.jpg&w=1000)Today: [Arco de Santa Catalina, Antígua, Guatemala (© Filippo Maria Bianchi/Getty Images)](https://www.bing.com/th?id=OHR.SantaCatalina_PT-BR6725083050_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CoralAwareness_PT-BR7463277144_UHD.jpg&w=1000)Today: [Recife de coral e praia em Raja Ampat, Indonésia (© SergeUWPhoto/Shutterstock)](https://www.bing.com/th?id=OHR.CoralAwareness_PT-BR7463277144_UHD.jpg)
 <br><br/>
