@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.GalapagosFlamingos_JA-JP2749729014_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ベニイロフラミンゴ, エクアドル (© Tui De Roy/Nature Picture Library)](https://www.bing.com/th?id=OHR.GalapagosFlamingos_JA-JP2749729014_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GaliciaBeach_JA-JP2958100609_UHD.jpg&w=1000)今日の壁紙: &nbsp;[カテドラル・ビーチ, スペイン (© Tui De Roy/Amazing Aerial Agency/Abobe Stock)](https://www.bing.com/th?id=OHR.GaliciaBeach_JA-JP2958100609_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.GalapagosFlamingos_FR-FR0682662624_UHD.jpg&w=1000)Today: [Flamboyance de flamants des Caraïbes, île Isabela, îles Galápagos, Équateur (© Tui De Roy/Nature Picture Library)](https://www.bing.com/th?id=OHR.GalapagosFlamingos_FR-FR0682662624_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.GalapagosFlamingos_IT-IT7890055647_UHD.jpg&w=1000)Today: [Stormo di fenicotteri americani, Isola Isabela, Isole Galápagos, Ecuador (© Tui De Roy/Nature Picture Library)](https://www.bing.com/th?id=OHR.GalapagosFlamingos_IT-IT7890055647_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PinkDahlia_PT-BR7612133818_UHD.jpg&w=1000)Today: [Dália rosa (© Harald Biebel/Getty Images)](https://www.bing.com/th?id=OHR.PinkDahlia_PT-BR7612133818_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GalapagosFlamingos_PT-BR5022467535_UHD.jpg&w=1000)Today: [Bando de flamingos-americanos, Ilha Isabela, Ilhas Galápagos, Equador (© Tui De Roy/Nature Picture Library)](https://www.bing.com/th?id=OHR.GalapagosFlamingos_PT-BR5022467535_UHD.jpg)
 <br><br/>
