@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.GaliciaBeach_JA-JP2958100609_UHD.jpg&w=1000)今日の壁紙: &nbsp;[カテドラル・ビーチ, スペイン (© Tui De Roy/Amazing Aerial Agency/Abobe Stock)](https://www.bing.com/th?id=OHR.GaliciaBeach_JA-JP2958100609_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RedMangroveSunrise_JA-JP3991738335_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アカマングローブ, ホンジュラス (© Mac Stone/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.RedMangroveSunrise_JA-JP3991738335_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.GaliciaBeach_FR-FR6503602591_UHD.jpg&w=1000)Today: [Plage des Cathédrales, Galice, Espagne (© Tui De Roy/Amazing Aerial Agency/Abobe Stock)](https://www.bing.com/th?id=OHR.GaliciaBeach_FR-FR6503602591_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SardegnaFaro_IT-IT8009785446_UHD.jpg&w=1000)Today: [Il Faro Mangiabarche, Sant'Antioco, Sulcis, Sardegna (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.SardegnaFaro_IT-IT8009785446_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GalapagosFlamingos_PT-BR5022467535_UHD.jpg&w=1000)Today: [Bando de flamingos-americanos, Ilha Isabela, Ilhas Galápagos, Equador (© Tui De Roy/Nature Picture Library)](https://www.bing.com/th?id=OHR.GalapagosFlamingos_PT-BR5022467535_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GaliciaBeach_PT-BR6668206229_UHD.jpg&w=1000)Today: [Praia das Catedrais, Galícia, Espanha (© Tui De Roy/Amazing Aerial Agency/Abobe Stock)](https://www.bing.com/th?id=OHR.GaliciaBeach_PT-BR6668206229_UHD.jpg)
 <br><br/>
