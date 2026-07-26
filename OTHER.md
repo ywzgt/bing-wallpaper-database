@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.RedMangroveSunrise_JA-JP3991738335_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アカマングローブ, ホンジュラス (© Mac Stone/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.RedMangroveSunrise_JA-JP3991738335_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChicagoTiffany_JA-JP4240566318_UHD.jpg&w=1000)今日の壁紙: &nbsp;[シカゴ文化センター, 米国 イリノイ州 (© Felix Lipov/Shutterstock)](https://www.bing.com/th?id=OHR.ChicagoTiffany_JA-JP4240566318_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.RedMangroveSunrise_FR-FR6736116710_UHD.jpg&w=1000)Today: [Lever de soleil sur un palétuvier rouge, Cayos Cochinos, Honduras (© Mac Stone/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.RedMangroveSunrise_FR-FR6736116710_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.RedMangroveSunrise_IT-IT8134664377_UHD.jpg&w=1000)Today: [Alba su una mangrovia rossa nei Pig Keys, Honduras (© Mac Stone/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.RedMangroveSunrise_IT-IT8134664377_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GaliciaBeach_PT-BR6668206229_UHD.jpg&w=1000)Today: [Praia das Catedrais, Galícia, Espanha (© Tui De Roy/Amazing Aerial Agency/Abobe Stock)](https://www.bing.com/th?id=OHR.GaliciaBeach_PT-BR6668206229_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RedMangroveSunrise_PT-BR7414229565_UHD.jpg&w=1000)Today: [Nascer do sol sobre um mangue-vermelho em Pig Keys, Honduras (© Mac Stone/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.RedMangroveSunrise_PT-BR7414229565_UHD.jpg)
 <br><br/>
