@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.ChicagoTiffany_JA-JP4240566318_UHD.jpg&w=1000)今日の壁紙: &nbsp;[シカゴ文化センター, 米国 イリノイ州 (© Felix Lipov/Shutterstock)](https://www.bing.com/th?id=OHR.ChicagoTiffany_JA-JP4240566318_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RedMangroveSunrise_FR-FR6736116710_UHD.jpg&w=1000)Today: [Lever de soleil sur un palétuvier rouge, Cayos Cochinos, Honduras (© Mac Stone/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.RedMangroveSunrise_FR-FR6736116710_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VerdonKayaks_FR-FR6935931270_UHD.jpg&w=1000)Today: [Canoë-kayaks au cœur des gorges du Verdon, Provence-Alpes-Côte d'Azur (© Joran Maaswinkel Fotografie/Getty Images)](https://www.bing.com/th?id=OHR.VerdonKayaks_FR-FR6935931270_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RedMangroveSunrise_DE-DE1889746547_UHD.jpg&w=1000)Today: [Sonnenaufgang an einer roten Mangrove auf den Pig Keys, Honduras (© Mac Stone/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.RedMangroveSunrise_DE-DE1889746547_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChicagoTiffany_DE-DE2141043635_UHD.jpg&w=1000)Today: [Tiffany-Kuppel, Chicago Cultural Center, Illinois, USA (© Felix Lipov/Shutterstock)](https://www.bing.com/th?id=OHR.ChicagoTiffany_DE-DE2141043635_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RedMangroveSunrise_ES-ES2463781861_UHD.jpg&w=1000)Today: [Amanecer en un mangle rojo en los Pig Keys, Honduras (© Mac Stone/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.RedMangroveSunrise_ES-ES2463781861_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GaliciaSpain_ES-ES2553115650_UHD.jpg&w=1000)Today: [Veleros cerca de las Islas Cíes en Galicia, España (© AndresGarciaM/Getty Images)](https://www.bing.com/th?id=OHR.GaliciaSpain_ES-ES2553115650_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RedMangroveSunrise_EN-GB5065847965_UHD.jpg&w=1000)Today: [Red mangrove in the Pig Keys, Honduras (© Mac Stone/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.RedMangroveSunrise_EN-GB5065847965_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChicagoTiffany_EN-GB5292533317_UHD.jpg&w=1000)Today: [Tiffany Dome, Chicago Cultural Center, Illinois, United States (© Felix Lipov/Shutterstock)](https://www.bing.com/th?id=OHR.ChicagoTiffany_EN-GB5292533317_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RedMangroveSunrise_IT-IT8134664377_UHD.jpg&w=1000)Today: [Alba su una mangrovia rossa nei Pig Keys, Honduras (© Mac Stone/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.RedMangroveSunrise_IT-IT8134664377_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GaliciaBeach_IT-IT8238080614_UHD.jpg&w=1000)Today: [Spiaggia delle Cattedrali, Galizia, Spagna (© Tui De Roy/Amazing Aerial Agency/Abobe Stock)](https://www.bing.com/th?id=OHR.GaliciaBeach_IT-IT8238080614_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.RedMangroveSunrise_PT-BR7414229565_UHD.jpg&w=1000)Today: [Nascer do sol sobre um mangue-vermelho em Pig Keys, Honduras (© Mac Stone/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.RedMangroveSunrise_PT-BR7414229565_UHD.jpg)
 <br><br/>
