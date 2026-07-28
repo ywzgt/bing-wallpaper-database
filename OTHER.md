@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.KaysersbergVillage_JA-JP4774929635_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ケゼルスベール, フランス (© Federica Gentile/Getty Images)](https://www.bing.com/th?id=OHR.KaysersbergVillage_JA-JP4774929635_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TigerFamily_JA-JP4965219864_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ベンガルトラの家族, インド (© Archna Singh/Shutterstock)](https://www.bing.com/th?id=OHR.TigerFamily_JA-JP4965219864_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ChannelKelp_FR-FR7114923921_UHD.jpg&w=1000)Today: [Une forêt de varech au large d'Anacapa Island, Parc national des Channel Islands, Californie, États-Unis (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.ChannelKelp_FR-FR7114923921_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ChannelKelp_IT-IT8356704681_UHD.jpg&w=1000)Today: [Una foresta di alghe al largo dell'isola di Anacapa, Parco Nazionale delle Isole del Canale, California, USA (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.ChannelKelp_IT-IT8356704681_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ChicagoTiffany_PT-BR8094909459_UHD.jpg&w=1000)Today: [Cúpula Tiffany, Centro Cultural de Chicago, Illinois, Estados Unidos (© Felix Lipov/Shutterstock)](https://www.bing.com/th?id=OHR.ChicagoTiffany_PT-BR8094909459_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChannelKelp_PT-BR8544444735_UHD.jpg&w=1000)Today: [Floresta de kelp perto da Ilha Anacapa, Parque Nacional das Ilhas do Canal, Califórnia, Estados Unidos (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.ChannelKelp_PT-BR8544444735_UHD.jpg)
 <br><br/>

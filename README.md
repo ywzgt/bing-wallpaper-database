@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ChannelKelp_ZH-CN8732903732_UHD.jpg&w=1000)今日图片: &nbsp;[一片海藻林在安纳卡帕岛附近，海峡群岛国家公园，加利福尼亚州，美国 (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.ChannelKelp_ZH-CN8732903732_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TigerFamily_ZH-CN9064744163_UHD.jpg&w=1000)今日图片: &nbsp;[孟加拉虎一家在兰坦博尔国家公园，拉贾斯坦邦，印度 (© Archna Singh/Shutterstock)](https://www.bing.com/th?id=OHR.TigerFamily_ZH-CN9064744163_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_UHD.jpg&w=1000)Today: [Tiffany Dome, Chicago Cultural Center, Illinois (© Felix Lipov/Shutterstock)](https://www.bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChannelKelp_EN-US3809417919_UHD.jpg&w=1000)Today: [A kelp forest off Anacapa Island, Channel Islands National Park, California (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.ChannelKelp_EN-US3809417919_UHD.jpg)
 <br><br/>
