@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.VirginiaTrail_ZH-CN2299501599_UHD.jpg&w=1000)今日图片: &nbsp;[鸟瞰弗吉尼亚爬山虎步道，达马斯克斯，弗吉尼亚州，美国 (© Eifel Kreutz/Getty Images)](https://www.bing.com/th?id=OHR.VirginiaTrail_ZH-CN2299501599_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HawaiiLava_ZH-CN3257621771_UHD.jpg&w=1000)今日图片: &nbsp;[大批熔岩流涌入大洋，大岛，夏威夷州，美国 (© Ken McCurdy/Getty Images)](https://www.bing.com/th?id=OHR.HawaiiLava_ZH-CN3257621771_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.NavajoNation_EN-US6947714656_UHD.jpg&w=1000)Today: [Monument Valley, Navajo Nation, Arizona (© Westend61/Adobe Stock)](https://www.bing.com/th?id=OHR.NavajoNation_EN-US6947714656_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VirginiaTrail_EN-US9403114082_UHD.jpg&w=1000)Today: [Aerial view of the Virginia Creeper Trail, Damascus, Virginia (© Eifel Kreutz/Getty Images)](https://www.bing.com/th?id=OHR.VirginiaTrail_EN-US9403114082_UHD.jpg)
 <br><br/>
