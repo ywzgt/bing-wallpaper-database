@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.HawaiiLava_ZH-CN3257621771_UHD.jpg&w=1000)今日图片: &nbsp;[大批熔岩流涌入大洋，大岛，夏威夷州，美国 (© Ken McCurdy/Getty Images)](https://www.bing.com/th?id=OHR.HawaiiLava_ZH-CN3257621771_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HelsinkiBlue_ZH-CN3961551568_UHD.jpg&w=1000)今日图片: &nbsp;[马尔萨什洛克港口五彩斑斓的渔船，马耳他 (© Klubovy/Getty Images)](https://www.bing.com/th?id=OHR.HelsinkiBlue_ZH-CN3961551568_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.VirginiaTrail_EN-US9403114082_UHD.jpg&w=1000)Today: [Aerial view of the Virginia Creeper Trail, Damascus, Virginia (© Eifel Kreutz/Getty Images)](https://www.bing.com/th?id=OHR.VirginiaTrail_EN-US9403114082_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HawaiiLava_EN-US4126737972_UHD.jpg&w=1000)Today: [A series of lava flows spill into the ocean, Big Island, Hawaii (© Ken McCurdy/Getty Images)](https://www.bing.com/th?id=OHR.HawaiiLava_EN-US4126737972_UHD.jpg)
 <br><br/>
