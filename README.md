@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AdorableOwlet_ZH-CN6929234033_UHD.jpg&w=1000)今日图片: &nbsp;[佛罗里达穴鸮幼鸟，开普科拉尔，佛罗里达州，美国 (© mlorenzphotography/Getty Images)](https://www.bing.com/th?id=OHR.AdorableOwlet_ZH-CN6929234033_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FezMorocco_ZH-CN7662339428_UHD.jpg&w=1000)今日图片: &nbsp;[非斯皇宫装饰华丽的大门，摩洛哥 (© cgst26/Shutterstock)](https://www.bing.com/th?id=OHR.FezMorocco_ZH-CN7662339428_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BoatsMalta_EN-US5373607495_UHD.jpg&w=1000)Today: [Colorful boats in Marsaxlokk Harbor, Malta (© Klubovy/Getty Images)](https://www.bing.com/th?id=OHR.BoatsMalta_EN-US5373607495_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AdorableOwlet_EN-US7873975586_UHD.jpg&w=1000)Today: [Florida burrowing owlet, Cape Coral, Florida, USA (© mlorenzphotography/Getty Images)](https://www.bing.com/th?id=OHR.AdorableOwlet_EN-US7873975586_UHD.jpg)
 <br><br/>
