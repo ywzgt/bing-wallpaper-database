@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.StocktonInfinity_ZH-CN5941379745_UHD.jpg&w=1000)今日图片: &nbsp;[蒂斯河畔斯托克顿无限桥，英格兰 (© Bahadir Yeniceri/Shutterstock)](https://www.bing.com/th?id=OHR.StocktonInfinity_ZH-CN5941379745_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JMTjibaou_ZH-CN6992670356_UHD.jpg&w=1000)今日图片: &nbsp;[让-马里·吉巴乌文化中心，新喀里多尼亚 (© Fabien Astre/Alamy)](https://www.bing.com/th?id=OHR.JMTjibaou_ZH-CN6992670356_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LimeKiln_EN-US2748515593_UHD.jpg&w=1000)Today: [Lime Kiln Lighthouse on San Juan Island, Washington State (© Edmund Lowe Photography/Shutterstock)](https://www.bing.com/th?id=OHR.LimeKiln_EN-US2748515593_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.StocktonInfinity_EN-US3006724421_UHD.jpg&w=1000)Today: [Infinity Bridge in Stockton-on-Tees, England (© Bahadir Yeniceri/Shutterstock)](https://www.bing.com/th?id=OHR.StocktonInfinity_EN-US3006724421_UHD.jpg)
 <br><br/>
