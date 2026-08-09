@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.JMTjibaou_ZH-CN6992670356_UHD.jpg&w=1000)今日图片: &nbsp;[让-马里·吉巴乌文化中心，新喀里多尼亚 (© Fabien Astre/Alamy)](https://www.bing.com/th?id=OHR.JMTjibaou_ZH-CN6992670356_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SandPath_ZH-CN7820825668_UHD.jpg&w=1000)今日图片: &nbsp;[约书亚树国家公园，加利福尼亚州，美国 (© JJ Landscapes/Getty Images)](https://www.bing.com/th?id=OHR.SandPath_ZH-CN7820825668_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.StocktonInfinity_EN-US3006724421_UHD.jpg&w=1000)Today: [Infinity Bridge in Stockton-on-Tees, England (© Bahadir Yeniceri/Shutterstock)](https://www.bing.com/th?id=OHR.StocktonInfinity_EN-US3006724421_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JMTjibaou_EN-US3454380257_UHD.jpg&w=1000)Today: [Jean-Marie Tjibaou Cultural Centre, New Caledonia (© Fabien Astre/Alamy)](https://www.bing.com/th?id=OHR.JMTjibaou_EN-US3454380257_UHD.jpg)
 <br><br/>
