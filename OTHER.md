@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ColorfulCop_JA-JP4331289983_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ニューハウン, デンマーク (© emicristea/Getty Images)](https://www.bing.com/th?id=OHR.ColorfulCop_JA-JP4331289983_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MountainDay2026_JA-JP4675980762_UHD.jpg&w=1000)今日の壁紙: &nbsp;[日本アルプス (© Sergey Alimov/Getty Images)](https://www.bing.com/th?id=OHR.MountainDay2026_JA-JP4675980762_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SandPath_FR-FR7702357138_UHD.jpg&w=1000)Today: [Parc national Joshua Tree, Californie, États-Unis (© JJ Landscapes/Getty Images)](https://www.bing.com/th?id=OHR.SandPath_FR-FR7702357138_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.DolomitiAgosto_IT-IT3030401591_UHD.jpg&w=1000)Today: [Il Lago di Carezza nelle Dolomiti all'alba, Bolzano, Italia (© Putt Sakdhnagool/Moment/Getty Images)](https://www.bing.com/th?id=OHR.DolomitiAgosto_IT-IT3030401591_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.JMTjibaou_PT-BR1657011012_UHD.jpg&w=1000)Today: [Centro Cultural Jean-Marie Tjibaou, Nouméa, Nova Caledônia (© Fabien Astre/Alamy)](https://www.bing.com/th?id=OHR.JMTjibaou_PT-BR1657011012_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Golfinhos_PT-BR2634808905_UHD.jpg&w=1000)Today: [Golfinhos-rotadores no mar azul de Fernando de Noronha, Pernambuco (© cabuscaa/Getty Images)](https://www.bing.com/th?id=OHR.Golfinhos_PT-BR2634808905_UHD.jpg)
 <br><br/>
