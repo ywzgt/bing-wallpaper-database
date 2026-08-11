@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MountainDay2026_JA-JP4675980762_UHD.jpg&w=1000)今日の壁紙: &nbsp;[日本アルプス (© Sergey Alimov/Getty Images)](https://www.bing.com/th?id=OHR.MountainDay2026_JA-JP4675980762_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ElephantDay_JA-JP5660368264_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ゾウの群れ, ケニア (© Ibrahim Suha Derbent/Getty Images)](https://www.bing.com/th?id=OHR.ElephantDay_JA-JP5660368264_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ColorfulCop_FR-FR8595384019_UHD.jpg&w=1000)Today: [Maisons colorées sur les rives du canal Nyhavn, Copenhague, Danemark (© emicristea/Getty Images)](https://www.bing.com/th?id=OHR.ColorfulCop_FR-FR8595384019_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ColorfulCop_IT-IT3126463813_UHD.jpg&w=1000)Today: [Case colorate lungo il Canale di Nyhavn, Copenaghen, Danimarca (© emicristea/Getty Images)](https://www.bing.com/th?id=OHR.ColorfulCop_IT-IT3126463813_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Golfinhos_PT-BR2634808905_UHD.jpg&w=1000)Today: [Golfinhos-rotadores no mar azul de Fernando de Noronha, Pernambuco (© cabuscaa/Getty Images)](https://www.bing.com/th?id=OHR.Golfinhos_PT-BR2634808905_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.StuDay_PT-BR3798231635_UHD.jpg&w=1000)Today: [Real Gabinete Português de Leitura, Rio de Janeiro, Rio de Janeiro (© Pulsar Imagens/Alamy)](https://www.bing.com/th?id=OHR.StuDay_PT-BR3798231635_UHD.jpg)
 <br><br/>
