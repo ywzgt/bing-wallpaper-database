@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ElephantDay_ZH-CN8350171749_UHD.jpg&w=1000)今日图片: &nbsp;[安博塞利国家公园的非洲草原象群，卡贾多郡，肯尼亚 (© Ibrahim Suha Derbent/Getty Images)](https://www.bing.com/th?id=OHR.ElephantDay_ZH-CN8350171749_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PerseidasTenerife_ZH-CN8520379683_UHD.jpg&w=1000)今日图片: &nbsp;[泰德天文台上空的英仙座流星，加那利群岛，西班牙 (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.PerseidasTenerife_ZH-CN8520379683_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ColorfulCop_EN-US3993977654_UHD.jpg&w=1000)Today: [Colorful homes line Nyhavn Canal, Copenhagen, Denmark (© emicristea/Getty Images)](https://www.bing.com/th?id=OHR.ColorfulCop_EN-US3993977654_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ElephantDay_EN-US4280370948_UHD.jpg&w=1000)Today: [A group of elephants, Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)](https://www.bing.com/th?id=OHR.ElephantDay_EN-US4280370948_UHD.jpg)
 <br><br/>
