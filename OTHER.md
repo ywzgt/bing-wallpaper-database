@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ValleyDreams_JA-JP6579828761_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ア・シ・スレ・パ自然保護区, 米国 ニューメキシコ州 (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.ValleyDreams_JA-JP6579828761_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RossErrillyRuins_JA-JP6822363126_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ロス・エリリー修道院跡, アイルランド (© Maria Janus/Shutterstock)](https://www.bing.com/th?id=OHR.RossErrillyRuins_JA-JP6822363126_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ValleyDreams_FR-FR7228733244_UHD.jpg&w=1000)Today: [Cheminées de fées à Ah Shi Sle Pah Wilderness dans le comté de San Juan, Nouveau-Mexique, États-Unis (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.ValleyDreams_FR-FR7228733244_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.EstateItaliana_IT-IT7841784337_UHD.jpg&w=1000)Today: [Cala Spinosa, Capo Testa, Santa Teresa di Gallura, Sardegna, Italia (© Francesco Riccardo Iacomino/Moment/Getty Images)](https://www.bing.com/th?id=OHR.EstateItaliana_IT-IT7841784337_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WildlifeCrossingPoland_PT-BR9589823073_UHD.jpg&w=1000)Today: [Vista aérea de um ecoduto perto de Zakrzów, Polônia (© bbsferrari/Getty Images)](https://www.bing.com/th?id=OHR.WildlifeCrossingPoland_PT-BR9589823073_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ColorfulCop_PT-BR4548843545_UHD.jpg&w=1000)Today: [Casas coloridas às margens do Canal Nyhavn, Copenhague, Dinamarca (© emicristea/Getty Images)](https://www.bing.com/th?id=OHR.ColorfulCop_PT-BR4548843545_UHD.jpg)
 <br><br/>
