@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.RossErrillyRuins_JA-JP6822363126_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ロス・エリリー修道院跡, アイルランド (© Maria Janus/Shutterstock)](https://www.bing.com/th?id=OHR.RossErrillyRuins_JA-JP6822363126_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CabilaoClowns_JA-JP7034609036_UHD.jpg&w=1000)今日の壁紙: &nbsp;[カクレクマノミ, フィリピン (© Franco Banfi/Nature Picture Library)](https://www.bing.com/th?id=OHR.CabilaoClowns_JA-JP7034609036_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.RossErrillyRuins_FR-FR6708321048_UHD.jpg&w=1000)Today: [Monastère de Ross Errilly, Comté de Galway, Irlande (© Maria Janus/Shutterstock)](https://www.bing.com/th?id=OHR.RossErrillyRuins_FR-FR6708321048_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.RossErrillyRuins_IT-IT6009541490_UHD.jpg&w=1000)Today: [Rovine del convento Ross Errilly, Contea di Galway, Irlanda (© Maria Janus/Shutterstock)](https://www.bing.com/th?id=OHR.RossErrillyRuins_IT-IT6009541490_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ColorfulCop_PT-BR4548843545_UHD.jpg&w=1000)Today: [Casas coloridas às margens do Canal Nyhavn, Copenhague, Dinamarca (© emicristea/Getty Images)](https://www.bing.com/th?id=OHR.ColorfulCop_PT-BR4548843545_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RossErrillyRuins_PT-BR4842065654_UHD.jpg&w=1000)Today: [Ruínas do Convento de Ross Errilly, Condado de Galway, Irlanda (© Maria Janus/Shutterstock)](https://www.bing.com/th?id=OHR.RossErrillyRuins_PT-BR4842065654_UHD.jpg)
 <br><br/>
