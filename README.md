@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.CabilaoClowns_ZH-CN0147033898_UHD.jpg&w=1000)今日图片: &nbsp;[海葵中的三条眼斑双锯鱼，卡比劳岛，薄荷省，菲律宾 (© Franco Banfi/Nature Picture Library)](https://www.bing.com/th?id=OHR.CabilaoClowns_ZH-CN0147033898_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Palmanova_ZH-CN0378401592_UHD.jpg&w=1000)今日图片: &nbsp;[弗留利要塞城市帕尔马诺瓦航拍图，意大利 (© Riccardo Saponi/Getty Images)](https://www.bing.com/th?id=OHR.Palmanova_ZH-CN0378401592_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_UHD.jpg&w=1000)Today: [Ruins of Ross Errilly Friary, County Galway, Ireland (© Maria Janus/Shutterstock)](https://www.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_UHD.jpg&w=1000)Today: [Three false clownfish in a sea anemone, Cabilao Island, Bohol, Philippines (© Franco Banfi/Nature Picture Library)](https://www.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_UHD.jpg)
 <br><br/>
