@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Palmanova_JA-JP7271854286_UHD.jpg&w=1000)今日の壁紙: &nbsp;[パルマノーヴァ, イタリア (© Riccardo Saponi/Getty Images)](https://www.bing.com/th?id=OHR.Palmanova_JA-JP7271854286_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WildlifeCrossingPoland_JA-JP7553811306_UHD.jpg&w=1000)今日の壁紙: &nbsp;[エコダクト, ポーランド (© bbsferrari/Getty Images)](https://www.bing.com/th?id=OHR.WildlifeCrossingPoland_JA-JP7553811306_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.Palmanova_FR-FR7049551960_UHD.jpg&w=1000)Today: [Vue aérienne de Palmanova, Friuli, Italie (© Riccardo Saponi/Getty Images)](https://www.bing.com/th?id=OHR.Palmanova_FR-FR7049551960_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.Palmanova_IT-IT8638241680_UHD.jpg&w=1000)Today: [Veduta aerea di Palmanova, una città-fortezza in Friuli, Italia (© Riccardo Saponi/Getty Images)](https://www.bing.com/th?id=OHR.Palmanova_IT-IT8638241680_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CabilaoClowns_PT-BR4676255668_UHD.jpg&w=1000)Today: [Três peixes-palhaço falsos em uma anêmona-do-mar, Ilha Cabilao, Bohol, Filipinas (© Franco Banfi/Nature Picture Library)](https://www.bing.com/th?id=OHR.CabilaoClowns_PT-BR4676255668_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Palmanova_PT-BR5252698571_UHD.jpg&w=1000)Today: [Vista aérea de Palmanova, cidade-fortaleza em Friuli, Itália (© Riccardo Saponi/Getty Images)](https://www.bing.com/th?id=OHR.Palmanova_PT-BR5252698571_UHD.jpg)
 <br><br/>
