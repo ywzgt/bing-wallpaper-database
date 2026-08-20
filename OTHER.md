@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.LynnCanalOrca_JA-JP7810665550_UHD.jpg&w=1000)今日の壁紙: &nbsp;[シャチ, 米国 アラスカ州 (© John Hyde/Alamy)](https://www.bing.com/th?id=OHR.LynnCanalOrca_JA-JP7810665550_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JulierPass_JA-JP8487146662_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ユリア峠, スイス (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.JulierPass_JA-JP8487146662_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.LynnCanalOrca_FR-FR3710534707_UHD.jpg&w=1000)Today: [Une orque à la surface du canal de Lynn, près des montagnes Chilkat, Alaska, États-Unis (© John Hyde/Alamy)](https://www.bing.com/th?id=OHR.LynnCanalOrca_FR-FR3710534707_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.LynnCanalOrca_IT-IT4270143164_UHD.jpg&w=1000)Today: [Un'orca emerge nel Lynn Canal vicino ai Monti Chilkat, Alaska, USA (© John Hyde/Alamy)](https://www.bing.com/th?id=OHR.LynnCanalOrca_IT-IT4270143164_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WhyteCliffP_PT-BR5369285709_UHD.jpg&w=1000)Today: [Parque Whytecliff, West Vancouver, Canadá (© Aolin Chen/Getty Images)](https://www.bing.com/th?id=OHR.WhyteCliffP_PT-BR5369285709_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LynnCanalOrca_PT-BR5511829673_UHD.jpg&w=1000)Today: [Orca no Canal Lynn, próximo às Montanhas Chilkat, Alasca, Estados Unidos (© John Hyde/Alamy)](https://www.bing.com/th?id=OHR.LynnCanalOrca_PT-BR5511829673_UHD.jpg)
 <br><br/>
