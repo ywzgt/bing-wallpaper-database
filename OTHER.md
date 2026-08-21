@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.JulierPass_JA-JP8487146662_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ユリア峠, スイス (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.JulierPass_JA-JP8487146662_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CommonBlue_JA-JP8682246058_UHD.jpg&w=1000)今日の壁紙: &nbsp;[イカルスヒメシジミ, イングランド (© Ross Hoddinott/Nature Picture Library)](https://www.bing.com/th?id=OHR.CommonBlue_JA-JP8682246058_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.JulierPass_FR-FR0870283971_UHD.jpg&w=1000)Today: [Route sinueuse du col du Julier, Suisse (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.JulierPass_FR-FR0870283971_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.JulierPass_IT-IT0417165500_UHD.jpg&w=1000)Today: [Passo del Giulio, Svizzera (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.JulierPass_IT-IT0417165500_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LynnCanalOrca_PT-BR5511829673_UHD.jpg&w=1000)Today: [Orca no Canal Lynn, próximo às Montanhas Chilkat, Alasca, Estados Unidos (© John Hyde/Alamy)](https://www.bing.com/th?id=OHR.LynnCanalOrca_PT-BR5511829673_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JulierPass_PT-BR6496661993_UHD.jpg&w=1000)Today: [Estrada sinuosa da Passagem de Julier, Suíça (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.JulierPass_PT-BR6496661993_UHD.jpg)
 <br><br/>

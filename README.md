@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.JulierPass_ZH-CN3064797820_UHD.jpg&w=1000)今日图片: &nbsp;[尤利尔山口蜿蜒的公路，瑞士 (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.JulierPass_ZH-CN3064797820_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CommonBlue_ZH-CN8521430009_UHD.jpg&w=1000)今日图片: &nbsp;[普通蓝灰蝶，德文郡，英格兰 (© Ross Hoddinott/Nature Picture Library)](https://www.bing.com/th?id=OHR.CommonBlue_ZH-CN8521430009_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LynnCanalOrca_EN-US0537229184_UHD.jpg&w=1000)Today: [An orca surfaces in Lynn Canal near the Chilkat Mountains, Alaska (© John Hyde/Alamy)](https://www.bing.com/th?id=OHR.LynnCanalOrca_EN-US0537229184_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JulierPass_EN-US2643379571_UHD.jpg&w=1000)Today: [Winding road of Julier Pass, Switzerland (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.JulierPass_EN-US2643379571_UHD.jpg)
 <br><br/>
