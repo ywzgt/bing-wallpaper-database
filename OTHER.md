@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.CommonBlue_JA-JP8682246058_UHD.jpg&w=1000)今日の壁紙: &nbsp;[イカルスヒメシジミ, イングランド (© Ross Hoddinott/Nature Picture Library)](https://www.bing.com/th?id=OHR.CommonBlue_JA-JP8682246058_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ShizuokaSummer2026_JA-JP8848642076_UHD.jpg&w=1000)今日の壁紙: &nbsp;[夏の森を潤す清流, 静岡県 (© Keiji Komatsu/AFLO/Getty Images)](https://www.bing.com/th?id=OHR.ShizuokaSummer2026_JA-JP8848642076_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CommonBlue_FR-FR7050471063_UHD.jpg&w=1000)Today: [Argus bleu, Devon, Angleterre (© Ross Hoddinott/Nature Picture Library)](https://www.bing.com/th?id=OHR.CommonBlue_FR-FR7050471063_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.NotteTaranta_IT-IT0811899295_UHD.jpg&w=1000)Today: [Torre Sant'Andrea, Salento, Puglia, Italia (© Balate.Dorin/Shutterstock)](https://www.bing.com/th?id=OHR.NotteTaranta_IT-IT0811899295_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.JulierPass_PT-BR6496661993_UHD.jpg&w=1000)Today: [Estrada sinuosa da Passagem de Julier, Suíça (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.JulierPass_PT-BR6496661993_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FolkRJ_PT-BR6598036806_UHD.jpg&w=1000)Today: [Integrantes da Salgueiro na Marquês de Sapucaí em 2022, Rio de Janeiro (© MAURO PIMENTEL/Getty Images)](https://www.bing.com/th?id=OHR.FolkRJ_PT-BR6598036806_UHD.jpg)
 <br><br/>
