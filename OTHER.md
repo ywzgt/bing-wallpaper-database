@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ShizuokaSummer2026_JA-JP8848642076_UHD.jpg&w=1000)今日の壁紙: &nbsp;[夏の森を潤す清流, 静岡県 (© Keiji Komatsu/AFLO/Getty Images)](https://www.bing.com/th?id=OHR.ShizuokaSummer2026_JA-JP8848642076_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BKBridge_JA-JP9540004516_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ブルックリン橋, 米国 ニューヨーク州 (© shayes17/Getty Images)](https://www.bing.com/th?id=OHR.BKBridge_JA-JP9540004516_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.KatmaiBear_FR-FR3593143405_UHD.jpg&w=1000)Today: [Ours brun en pleine pêche au saumon rouge, Parc national de Katmai, Alaska, États-Unis (© Pal Hermansen/Nature Picture Library)](https://www.bing.com/th?id=OHR.KatmaiBear_FR-FR3593143405_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.KatmaiBear_IT-IT0998174582_UHD.jpg&w=1000)Today: [Pesca dell'orso bruno, Parco Nazionale e Riserva di Katmai, Alaska, USA (© Pal Hermansen/Nature Picture Library)](https://www.bing.com/th?id=OHR.KatmaiBear_IT-IT0998174582_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.FolkRJ_PT-BR6598036806_UHD.jpg&w=1000)Today: [Integrantes da Salgueiro na Marquês de Sapucaí em 2022, Rio de Janeiro (© MAURO PIMENTEL/Getty Images)](https://www.bing.com/th?id=OHR.FolkRJ_PT-BR6598036806_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KatmaiBear_PT-BR9294561770_UHD.jpg&w=1000)Today: [Urso-pardo pescando em um rio no Parque Nacional de Katmai, Alasca, Estados Unidos (© Pal Hermansen/Nature Picture Library)](https://www.bing.com/th?id=OHR.KatmaiBear_PT-BR9294561770_UHD.jpg)
 <br><br/>
