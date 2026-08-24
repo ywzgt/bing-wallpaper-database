@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BKBridge_JA-JP9540004516_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ブルックリン橋, 米国 ニューヨーク州 (© shayes17/Getty Images)](https://www.bing.com/th?id=OHR.BKBridge_JA-JP9540004516_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RedwoodPark_JA-JP9805095528_UHD.jpg&w=1000)今日の壁紙: &nbsp;[レッドウッド国立州立公園, 米国 カリフォルニア州 (© HadelProductions/Getty Images)](https://www.bing.com/th?id=OHR.RedwoodPark_JA-JP9805095528_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BKBridge_FR-FR7150855439_UHD.jpg&w=1000)Today: [Pont de Brooklyn, New York, États-Unis (© shayes17/Getty Images)](https://www.bing.com/th?id=OHR.BKBridge_FR-FR7150855439_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BKBridge_IT-IT1092253957_UHD.jpg&w=1000)Today: [Ponte di Brooklyn, New York City, USA (© shayes17/Getty Images)](https://www.bing.com/th?id=OHR.BKBridge_IT-IT1092253957_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.KatmaiBear_PT-BR9294561770_UHD.jpg&w=1000)Today: [Urso-pardo pescando em um rio no Parque Nacional de Katmai, Alasca, Estados Unidos (© Pal Hermansen/Nature Picture Library)](https://www.bing.com/th?id=OHR.KatmaiBear_PT-BR9294561770_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Lencois_PT-BR9491147631_UHD.jpg&w=1000)Today: [Parque Nacional dos Lençóis Maranhenses, Maranhão (© Ignacio Palacios/Getty Images)](https://www.bing.com/th?id=OHR.Lencois_PT-BR9491147631_UHD.jpg)
 <br><br/>
