@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.RedwoodPark_JA-JP9805095528_UHD.jpg&w=1000)今日の壁紙: &nbsp;[レッドウッド国立州立公園, 米国 カリフォルニア州 (© HadelProductions/Getty Images)](https://www.bing.com/th?id=OHR.RedwoodPark_JA-JP9805095528_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AurorasIceland_JA-JP9970815507_UHD.jpg&w=1000)今日の壁紙: &nbsp;[オーロラ, アイスランド (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.AurorasIceland_JA-JP9970815507_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.GlenanSummer_FR-FR4786744371_UHD.jpg&w=1000)Today: [Plage de sable blanc sur l’archipel des Glénan, Bretagne (© HadelProductions/Getty Images)](https://www.bing.com/th?id=OHR.GlenanSummer_FR-FR4786744371_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.RedwoodPark_IT-IT1204038943_UHD.jpg&w=1000)Today: [Parchi Nazionali e Statali di Redwood, California, USA (© HadelProductions/Getty Images)](https://www.bing.com/th?id=OHR.RedwoodPark_IT-IT1204038943_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Lencois_PT-BR9491147631_UHD.jpg&w=1000)Today: [Parque Nacional dos Lençóis Maranhenses, Maranhão (© Ignacio Palacios/Getty Images)](https://www.bing.com/th?id=OHR.Lencois_PT-BR9491147631_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RedwoodPark_PT-BR4867222756_UHD.jpg&w=1000)Today: [Nascer do sol no Parque Nacional e Estadual de Redwood, Califórnia, Estados Unidos (© HadelProductions/Getty Images)](https://www.bing.com/th?id=OHR.RedwoodPark_PT-BR4867222756_UHD.jpg)
 <br><br/>
