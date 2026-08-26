@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AurorasIceland_JA-JP9970815507_UHD.jpg&w=1000)今日の壁紙: &nbsp;[オーロラ, アイスランド (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.AurorasIceland_JA-JP9970815507_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LakeMagadi_JA-JP0125683063_UHD.jpg&w=1000)今日の壁紙: &nbsp;[マガディ湖, ケニア (© Denis-Huot/Nature Picture Library)](https://www.bing.com/th?id=OHR.LakeMagadi_JA-JP0125683063_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AurorasIceland_FR-FR6287537082_UHD.jpg&w=1000)Today: [Aurores boréales sur Kirkjufell, Islande (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.AurorasIceland_FR-FR6287537082_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AurorasIceland_IT-IT1298284038_UHD.jpg&w=1000)Today: [L'aurora boreale su Kirkjufell, Islanda (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.AurorasIceland_IT-IT1298284038_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RedwoodPark_PT-BR4867222756_UHD.jpg&w=1000)Today: [Nascer do sol no Parque Nacional e Estadual de Redwood, Califórnia, Estados Unidos (© HadelProductions/Getty Images)](https://www.bing.com/th?id=OHR.RedwoodPark_PT-BR4867222756_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AurorasIceland_PT-BR0858766581_UHD.jpg&w=1000)Today: [Auroras sobre Kirkjufell, Islândia (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.AurorasIceland_PT-BR0858766581_UHD.jpg)
 <br><br/>
