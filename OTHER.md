@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.LakeMagadi_JA-JP0125683063_UHD.jpg&w=1000)今日の壁紙: &nbsp;[マガディ湖, ケニア (© Denis-Huot/Nature Picture Library)](https://www.bing.com/th?id=OHR.LakeMagadi_JA-JP0125683063_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MichelSunset_JA-JP0274204340_UHD.jpg&w=1000)今日の壁紙: &nbsp;[モン・サン＝ミシェル, フランス (© Clement LEONARD/Getty Images)](https://www.bing.com/th?id=OHR.MichelSunset_JA-JP0274204340_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.LakeMagadi_FR-FR8316800874_UHD.jpg&w=1000)Today: [Volée de flamants nains à l’aube, Lac Magadi, Kenya (© Denis-Huot/Nature Picture Library)](https://www.bing.com/th?id=OHR.LakeMagadi_FR-FR8316800874_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.LakeMagadi_IT-IT1397011994_UHD.jpg&w=1000)Today: [Il fenicottero minore all'alba, Lago Magadi, Kenya (© Denis-Huot/Nature Picture Library)](https://www.bing.com/th?id=OHR.LakeMagadi_IT-IT1397011994_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AurorasIceland_PT-BR0858766581_UHD.jpg&w=1000)Today: [Auroras sobre Kirkjufell, Islândia (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.AurorasIceland_PT-BR0858766581_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LakeMagadi_PT-BR1138055993_UHD.jpg&w=1000)Today: [Bando de flamingos-pequenos ao nascer do sol no Lago Magadi, Quênia (© Denis-Huot/Nature Picture Library)](https://www.bing.com/th?id=OHR.LakeMagadi_PT-BR1138055993_UHD.jpg)
 <br><br/>
