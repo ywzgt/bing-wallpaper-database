@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_UHD.jpg&w=1000)今日图片: &nbsp;[冲浪者航拍图，圣卡塔琳娜州，巴西 (© Wonderful Nature/Shutterstock)](https://www.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_UHD.jpg&w=1000)今日图片: &nbsp;[鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚 (© Pete Oxford/Nature Picture Library)](https://www.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MichelSunset_EN-US3527235033_UHD.jpg&w=1000)Today: [Mont-Saint-Michel during high tide, Manche, Normandy, France (© Clement LEONARD/Getty Images)](https://www.bing.com/th?id=OHR.MichelSunset_EN-US3527235033_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SantaCatarina_EN-US3600536393_UHD.jpg&w=1000)Today: [Aerial view of surfers, Santa Catarina, Brazil (© Wonderful Nature/Shutterstock)](https://www.bing.com/th?id=OHR.SantaCatarina_EN-US3600536393_UHD.jpg)
 <br><br/>
