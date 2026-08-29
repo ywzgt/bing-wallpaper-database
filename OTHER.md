@@ -1,15 +1,15 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MichelSunset_JA-JP0274204340_UHD.jpg&w=1000)今日の壁紙: &nbsp;[モン・サン＝ミシェル, フランス (© Clement LEONARD/Getty Images)](https://www.bing.com/th?id=OHR.MichelSunset_JA-JP0274204340_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OmagariFireworks2026_JA-JP0416831919_UHD.jpg&w=1000)今日の壁紙: &nbsp;[全国花火競技大会, 秋田県, 大仙市 (© Toru Hanai/Getty Images)](https://www.bing.com/th?id=OHR.OmagariFireworks2026_JA-JP0416831919_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MichelSunset_FR-FR8060193680_UHD.jpg&w=1000)Today: [Le Mont-Saint-Michel à marée haute, Manche, Normandie (© Clement LEONARD/Getty Images)](https://www.bing.com/th?id=OHR.MichelSunset_FR-FR8060193680_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SantaCatarina_FR-FR8615743181_UHD.jpg&w=1000)Today: [Vue aérienne de surfeurs, Santa Catarina, Brésil (© Wonderful Nature/Shutterstock)](https://www.bing.com/th?id=OHR.SantaCatarina_FR-FR8615743181_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MichelSunset_DE-DE7463636835_UHD.jpg&w=1000)Today: [Mont-Saint-Michel bei Flut, Manche, Normandie, Frankreich (© Clement LEONARD/Getty Images)](https://www.bing.com/th?id=OHR.MichelSunset_DE-DE7463636835_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SantaCatarina_DE-DE7458345257_UHD.jpg&w=1000)Today: [Luftaufnahme von Surfern, Santa Catarina, Brasilien (© Wonderful Nature/Shutterstock)](https://www.bing.com/th?id=OHR.SantaCatarina_DE-DE7458345257_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MichelSunset_ES-ES9649662621_UHD.jpg&w=1000)Today: [Monte Saint-Michel durante la marea alta, Mancha, Normandía, Francia (© Clement LEONARD/Getty Images)](https://www.bing.com/th?id=OHR.MichelSunset_ES-ES9649662621_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SantaCatarina_ES-ES9631069615_UHD.jpg&w=1000)Today: [Vista aérea de surfistas, Santa Catarina, Brasil (© Wonderful Nature/Shutterstock)](https://www.bing.com/th?id=OHR.SantaCatarina_ES-ES9631069615_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MichelSunset_EN-GB1738815139_UHD.jpg&w=1000)Today: [Mont-Saint-Michel during high tide, Manche, Normandy, France (© Clement LEONARD/Getty Images)](https://www.bing.com/th?id=OHR.MichelSunset_EN-GB1738815139_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NottingHillCarnival2026_EN-GB1828107135_UHD.jpg&w=1000)Today: [Notting Hill Carnival, London (© Sebastian Remme/Alamy Live News)](https://www.bing.com/th?id=OHR.NottingHillCarnival2026_EN-GB1828107135_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MichelSunset_IT-IT1503723648_UHD.jpg&w=1000)Today: [Le Mont-Saint-Michel, Manica, Normandia, Francia (© Clement LEONARD/Getty Images)](https://www.bing.com/th?id=OHR.MichelSunset_IT-IT1503723648_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SantaCatarina_IT-IT1605956723_UHD.jpg&w=1000)Today: [Veduta aerea di surfisti a Santa Catarina, Brasile (© Wonderful Nature/Shutterstock)](https://www.bing.com/th?id=OHR.SantaCatarina_IT-IT1605956723_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.LakeMagadi_PT-BR1138055993_UHD.jpg&w=1000)Today: [Bando de flamingos-pequenos ao nascer do sol no Lago Magadi, Quênia (© Denis-Huot/Nature Picture Library)](https://www.bing.com/th?id=OHR.LakeMagadi_PT-BR1138055993_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MichelSunset_PT-BR1793038232_UHD.jpg&w=1000)Today: [Monte Saint-Michel durante a maré alta, Manche, Normandia, França (© Clement LEONARD/Getty Images)](https://www.bing.com/th?id=OHR.MichelSunset_PT-BR1793038232_UHD.jpg)
 <br><br/>
