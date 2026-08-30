@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.YellowShark_JA-JP0572284773_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ジンベエザメ, インドネシア (© Pete Oxford/Nature Picture Library)](https://www.bing.com/th?id=OHR.YellowShark_JA-JP0572284773_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SantaCatarina_FR-FR8615743181_UHD.jpg&w=1000)Today: [Vue aérienne de surfeurs, Santa Catarina, Brésil (© Wonderful Nature/Shutterstock)](https://www.bing.com/th?id=OHR.SantaCatarina_FR-FR8615743181_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YellowShark_FR-FR9208937852_UHD.jpg&w=1000)Today: [Requin-baleine et carangues royales, Golfe de Cenderawasih, Papouasie occidentale, Indonésie (© Pete Oxford/Nature Picture Library)](https://www.bing.com/th?id=OHR.YellowShark_FR-FR9208937852_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SantaCatarina_DE-DE7458345257_UHD.jpg&w=1000)Today: [Luftaufnahme von Surfern, Santa Catarina, Brasilien (© Wonderful Nature/Shutterstock)](https://www.bing.com/th?id=OHR.SantaCatarina_DE-DE7458345257_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YellowShark_DE-DE7632036192_UHD.jpg&w=1000)Today: [Walhai und Goldmakrelen, Cenderawasih-Bucht, West-Papua, Indonesien (© Pete Oxford/Nature Picture Library)](https://www.bing.com/th?id=OHR.YellowShark_DE-DE7632036192_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SantaCatarina_ES-ES9631069615_UHD.jpg&w=1000)Today: [Vista aérea de surfistas, Santa Catarina, Brasil (© Wonderful Nature/Shutterstock)](https://www.bing.com/th?id=OHR.SantaCatarina_ES-ES9631069615_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YellowShark_ES-ES9780213231_UHD.jpg&w=1000)Today: [Tiburón ballena y jurel real dorado, Bahía de Cenderawasih, Papúa Occidental, Indonesia (© Pete Oxford/Nature Picture Library)](https://www.bing.com/th?id=OHR.YellowShark_ES-ES9780213231_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.NottingHillCarnival2026_EN-GB1828107135_UHD.jpg&w=1000)Today: [Notting Hill Carnival, London (© Sebastian Remme/Alamy Live News)](https://www.bing.com/th?id=OHR.NottingHillCarnival2026_EN-GB1828107135_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YellowShark_EN-GB1905405727_UHD.jpg&w=1000)Today: [Whale shark and golden trevally, Cenderawasih Bay, West Papua, Indonesia (© Pete Oxford/Nature Picture Library)](https://www.bing.com/th?id=OHR.YellowShark_EN-GB1905405727_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SantaCatarina_IT-IT1605956723_UHD.jpg&w=1000)Today: [Veduta aerea di surfisti a Santa Catarina, Brasile (© Wonderful Nature/Shutterstock)](https://www.bing.com/th?id=OHR.SantaCatarina_IT-IT1605956723_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YellowShark_IT-IT2405493473_UHD.jpg&w=1000)Today: [Squalo balena e carango dorato, Baia di Cenderawasih, Papua Occidentale, Indonesia (© Pete Oxford/Nature Picture Library)](https://www.bing.com/th?id=OHR.YellowShark_IT-IT2405493473_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SantaCatarina_PT-BR2149597812_UHD.jpg&w=1000)Today: [Vista aérea de surfistas em Santa Catarina (© Wonderful Nature/Shutterstock)](https://www.bing.com/th?id=OHR.SantaCatarina_PT-BR2149597812_UHD.jpg)
 <br><br/>
