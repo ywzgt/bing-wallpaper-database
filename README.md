@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BeechEngland_ZH-CN1807343872_UHD.jpg&w=1000)今日图片: &nbsp;[东米恩南唐斯国家公园谷物田中的山毛榉树，汉普郡，英格兰 (© Guy Edwardes/Minden Pictures)](https://www.bing.com/th?id=OHR.BeechEngland_ZH-CN1807343872_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GabitKeni_ZH-CN2314122948_UHD.jpg&w=1000)今日图片: &nbsp;[安科拉附近的加比特凯尼海滩，卡纳塔克邦，印度 (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.GabitKeni_ZH-CN2314122948_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RalphStackpole_EN-US4463800234_UHD.jpg&w=1000)Today: ['Industries of California' mural by Ralph Stackpole at Coit Tower, San Francisco, California (© David R. Frazier Photolibrary, Inc./Alamy)](https://www.bing.com/th?id=OHR.RalphStackpole_EN-US4463800234_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BeechEngland_EN-US4535769514_UHD.jpg&w=1000)Today: [Beech tree in a cereal field, East Meon, South Downs National Park, Hampshire, England (© Guy Edwardes/Minden Pictures)](https://www.bing.com/th?id=OHR.BeechEngland_EN-US4535769514_UHD.jpg)
 <br><br/>
