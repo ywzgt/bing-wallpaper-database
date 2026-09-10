@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Olvera_JA-JP5093791420_UHD.jpg&w=1000)今日の壁紙: &nbsp;[オルベラ, スペイン (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.Olvera_JA-JP5093791420_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GabitKeni_JA-JP3823379916_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ガビット・ケニ・ビーチ, インド (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.GabitKeni_JA-JP3823379916_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.Olvera_FR-FR2163620703_UHD.jpg&w=1000)Today: [Vue aérienne d’Olvera, Andalousie, Espagne (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.Olvera_FR-FR2163620703_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.Olvera_IT-IT3958001884_UHD.jpg&w=1000)Today: [Vista aerea di Olvera, Cadice, Andalusia, Spagna (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.Olvera_IT-IT3958001884_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GabitKeni_PT-BR1706073463_UHD.jpg&w=1000)Today: [Praia de Gabit Keni, perto de Ankola, Carnataca, Índia (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.GabitKeni_PT-BR1706073463_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Olvera_PT-BR2296737928_UHD.jpg&w=1000)Today: [Vista aérea de Olvera, Andaluzia, Espanha (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.Olvera_PT-BR2296737928_UHD.jpg)
 <br><br/>
