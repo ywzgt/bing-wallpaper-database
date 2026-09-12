@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SardineBait_ZH-CN3256234033_UHD.jpg&w=1000)今日图片: &nbsp;[墨西哥近海围猎沙丁鱼饵球的加州海狮，太平洋 (© Henley Spiers/Nature Picture Library)](https://www.bing.com/th?id=OHR.SardineBait_ZH-CN3256234033_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MisurinaPeak_ZH-CN3877105161_UHD.jpg&w=1000)今日图片: &nbsp;[米苏里纳群峰，多洛米蒂山脉，威尼托大区，意大利 (© Vithun Khamsong/Getty Images)](https://www.bing.com/th?id=OHR.MisurinaPeak_ZH-CN3877105161_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Flight93_EN-US5966783443_UHD.jpg&w=1000)Today: [The Flight 93 National Memorial Visitor Center near Shanksville, Pennsylvania (© Maurice Savage/Alamy)](https://www.bing.com/th?id=OHR.Flight93_EN-US5966783443_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SardineBait_EN-US4802395270_UHD.jpg&w=1000)Today: [California sea lions hunting a sardine bait ball, offshore Mexico, Pacific Ocean (© Henley Spiers/Nature Picture Library)](https://www.bing.com/th?id=OHR.SardineBait_EN-US4802395270_UHD.jpg)
 <br><br/>

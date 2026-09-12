@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SardineBait_JA-JP5540649445_UHD.jpg&w=1000)今日の壁紙: &nbsp;[カリフォルニアアシカ, メキシコ沖 (© Henley Spiers/Nature Picture Library)](https://www.bing.com/th?id=OHR.SardineBait_JA-JP5540649445_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MisurinaPeak_JA-JP5655621348_UHD.jpg&w=1000)今日の壁紙: &nbsp;[カディーニ・ディ・ミズリーナ山塊, イタリア (© Vithun Khamsong/Getty Images)](https://www.bing.com/th?id=OHR.MisurinaPeak_JA-JP5655621348_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SardineBait_FR-FR6373570079_UHD.jpg&w=1000)Today: [Des lions de mer de Californie chassant un banc de sardines au large du Mexique, Océan Pacifique (© Henley Spiers/Nature Picture Library)](https://www.bing.com/th?id=OHR.SardineBait_FR-FR6373570079_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SardineBait_IT-IT4326891508_UHD.jpg&w=1000)Today: [Leoni marini della California a caccia di una palla di esca per sardine, al largo del Messico, Oceano Pacifico (© Henley Spiers/Nature Picture Library)](https://www.bing.com/th?id=OHR.SardineBait_IT-IT4326891508_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RedMacaws_PT-BR5164998297_UHD.jpg&w=1000)Today: [Araras-vermelhas, América do Sul (© markes51/Getty Images)](https://www.bing.com/th?id=OHR.RedMacaws_PT-BR5164998297_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SardineBait_PT-BR1473169959_UHD.jpg&w=1000)Today: [Leões-marinhos-da-califórnia caçando cardume de sardinhas no litoral do México, Oceano Pacífico (© Henley Spiers/Nature Picture Library)](https://www.bing.com/th?id=OHR.SardineBait_PT-BR1473169959_UHD.jpg)
 <br><br/>
