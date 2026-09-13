@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MisurinaPeak_JA-JP5655621348_UHD.jpg&w=1000)今日の壁紙: &nbsp;[カディーニ・ディ・ミズリーナ山塊, イタリア (© Vithun Khamsong/Getty Images)](https://www.bing.com/th?id=OHR.MisurinaPeak_JA-JP5655621348_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Cosmos2026_JA-JP5810317842_UHD.jpg&w=1000)今日の壁紙: &nbsp;[川辺のコスモス (© iplan/a.collectionRF/Getty Images)](https://www.bing.com/th?id=OHR.Cosmos2026_JA-JP5810317842_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MisurinaPeak_FR-FR3560016710_UHD.jpg&w=1000)Today: [Cadini di Misurina, Dolomites, Vénétie, Italie (© Vithun Khamsong/Getty Images)](https://www.bing.com/th?id=OHR.MisurinaPeak_FR-FR3560016710_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MisurinaPeak_IT-IT4415699665_UHD.jpg&w=1000)Today: [Cadini di Misurina, Dolomiti, Veneto, Italia (© Vithun Khamsong/Getty Images)](https://www.bing.com/th?id=OHR.MisurinaPeak_IT-IT4415699665_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.SardineBait_PT-BR1473169959_UHD.jpg&w=1000)Today: [Leões-marinhos-da-califórnia caçando cardume de sardinhas no litoral do México, Oceano Pacífico (© Henley Spiers/Nature Picture Library)](https://www.bing.com/th?id=OHR.SardineBait_PT-BR1473169959_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MisurinaPeak_PT-BR1204765846_UHD.jpg&w=1000)Today: [Cadini di Misurina, Dolomitas, Vêneto, Itália (© Vithun Khamsong/Getty Images)](https://www.bing.com/th?id=OHR.MisurinaPeak_PT-BR1204765846_UHD.jpg)
 <br><br/>
