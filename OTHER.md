@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.KochiaChina_JA-JP6121199727_UHD.jpg&w=1000)今日の壁紙: &nbsp;[コキア, 中国 (© lingqi xie/Getty Images)](https://www.bing.com/th?id=OHR.KochiaChina_JA-JP6121199727_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IcyCubs_JA-JP6302430788_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ホッキョクグマの子, ノルウェー (© Danny Green/Nature Picture Library)](https://www.bing.com/th?id=OHR.IcyCubs_JA-JP6302430788_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.RedMacawsFlight_FR-FR7707103223_UHD.jpg&w=1000)Today: [Aras chloroptères, Amérique du Sud (© markes51/Getty Images)](https://www.bing.com/th?id=OHR.RedMacawsFlight_FR-FR7707103223_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.RedMacawsFlight_IT-IT4575485670_UHD.jpg&w=1000)Today: [L'ara dalle ali verdi, Brasile (© markes51/Getty Images)](https://www.bing.com/th?id=OHR.RedMacawsFlight_IT-IT4575485670_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.KochiaChina_PT-BR0883558645_UHD.jpg&w=1000)Today: [Campo de kochia, China (© lingqi xie/Getty Images)](https://www.bing.com/th?id=OHR.KochiaChina_PT-BR0883558645_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FrenchRivieraVillage_PT-BR0717885034_UHD.jpg&w=1000)Today: [Baía de Villefranche-sur-Mer, Alpes-Maritimes, Provença-Alpes-Côte d'Azur, França (© StockByM/Getty Images)](https://www.bing.com/th?id=OHR.FrenchRivieraVillage_PT-BR0717885034_UHD.jpg)
 <br><br/>
