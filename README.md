@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_UHD.jpg&w=1000)今日图片: &nbsp;[温纳茨山口，峰区国家公园，英格兰 (© Daniel_Kay/Getty Images)](https://www.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AlphornBavaria_ZH-CN5896237112_UHD.jpg&w=1000)今日图片: &nbsp;[阿尔卑斯长号演奏者，巴伐利亚州，德国 (© U. J. Alexander/Shutterstock)](https://www.bing.com/th?id=OHR.AlphornBavaria_ZH-CN5896237112_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Santenay_EN-US5299702509_UHD.jpg&w=1000)Today: [Sorine windmill and vineyards, Santenay wine region, Côte de Beaune, Burgundy, France (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.Santenay_EN-US5299702509_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WinnatsPassPeak_EN-US6112068451_UHD.jpg&w=1000)Today: [Winnats Pass, Peak District National Park, England (© Daniel_Kay/Getty Images)](https://www.bing.com/th?id=OHR.WinnatsPassPeak_EN-US6112068451_UHD.jpg)
 <br><br/>
