@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AlphornBavaria_ZH-CN5896237112_UHD.jpg&w=1000)今日图片: &nbsp;[阿尔卑斯长号演奏者，巴伐利亚州，德国 (© U. J. Alexander/Shutterstock)](https://www.bing.com/th?id=OHR.AlphornBavaria_ZH-CN5896237112_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ParisSunset_ZH-CN6050686638_UHD.jpg&w=1000)今日图片: &nbsp;[日落时分的埃菲尔铁塔，巴黎，法国 (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.ParisSunset_ZH-CN6050686638_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WinnatsPassPeak_EN-US6112068451_UHD.jpg&w=1000)Today: [Winnats Pass, Peak District National Park, England (© Daniel_Kay/Getty Images)](https://www.bing.com/th?id=OHR.WinnatsPassPeak_EN-US6112068451_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AlphornBavaria_EN-US6200857270_UHD.jpg&w=1000)Today: [Alphorn players, Bavaria, Germany (© U. J. Alexander/Shutterstock)](https://www.bing.com/th?id=OHR.AlphornBavaria_EN-US6200857270_UHD.jpg)
 <br><br/>
