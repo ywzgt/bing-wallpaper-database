@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.FallAspens_JA-JP7201900997_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アスペンの森, 米国 ユタ州 (© Danita Delimont/Shutterstock)](https://www.bing.com/th?id=OHR.FallAspens_JA-JP7201900997_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GroomingOtter_FR-FR7953128169_UHD.jpg&w=1000)Today: [Loutre de mer peignant son pelage, Baie de Monterey, Californie, États-Unis (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.GroomingOtter_FR-FR7953128169_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TolkienWeek_FR-FR8060088549_UHD.jpg&w=1000)Today: [Maison Hobbit dans le décor de Hobbiton, Matamata, Nouvelle-Zélande (© djr-photography/Shutterstock)](https://www.bing.com/th?id=OHR.TolkienWeek_FR-FR8060088549_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GroomingOtter_DE-DE1586162162_UHD.jpg&w=1000)Today: [Seeotter bei der Fellpflege, Monterey Bay, Kalifornien, USA (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.GroomingOtter_DE-DE1586162162_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TolkienWeek_DE-DE1744424672_UHD.jpg&w=1000)Today: [Hobbit-Haus am Filmset von Hobbiton, Matamata, Neuseeland (© djr-photography/Shutterstock)](https://www.bing.com/th?id=OHR.TolkienWeek_DE-DE1744424672_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GroomingOtter_ES-ES7483799211_UHD.jpg&w=1000)Today: [Nutria marina acicalándose, Bahía de Monterey, California, EE. UU. (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.GroomingOtter_ES-ES7483799211_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TolkienWeek_ES-ES8577009856_UHD.jpg&w=1000)Today: [Casa de Hobbit en el decorado de películas de Hobbiton, Matamata, Nueva Zelanda (© djr-photography/Shutterstock)](https://www.bing.com/th?id=OHR.TolkienWeek_ES-ES8577009856_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GroomingOtter_EN-GB9079842121_UHD.jpg&w=1000)Today: [Sea otter grooming fur, Monterey Bay, California, United States (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.GroomingOtter_EN-GB9079842121_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ElGolfo_EN-GB9192637782_UHD.jpg&w=1000)Today: [Aerial view of black lava beach, El Golfo, Lanzarote, Canary Islands, Spain (© Westend61/Adobe Stock)](https://www.bing.com/th?id=OHR.ElGolfo_EN-GB9192637782_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GroomingOtter_IT-IT7662965878_UHD.jpg&w=1000)Today: [Lontra marina, baia di Monterey, California, USA (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.GroomingOtter_IT-IT7662965878_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TolkienWeek_IT-IT7744314580_UHD.jpg&w=1000)Today: [La Casa di Hobbit presso il Set Cinematografico di Hobbiton, Matamata, Nuova Zelanda (© djr-photography/Shutterstock)](https://www.bing.com/th?id=OHR.TolkienWeek_IT-IT7744314580_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.GroomingOtter_PT-BR4986034219_UHD.jpg&w=1000)Today: [Lontra-marinha na Baía de Monterey, Califórnia, EUA (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.GroomingOtter_PT-BR4986034219_UHD.jpg)
 <br><br/>
