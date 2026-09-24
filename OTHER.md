@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.ElGolfo_JA-JP7674043520_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ランサローテ島, スペイン (© Westend61/Adobe Stock)](https://www.bing.com/th?id=OHR.ElGolfo_JA-JP7674043520_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.FallAspens_FR-FR8326000854_UHD.jpg&w=1000)Today: [Peupliers faux-trembles près du col de Guardsman Pass, Utah, États-Unis (© Danita Delimont/Shutterstock)](https://www.bing.com/th?id=OHR.FallAspens_FR-FR8326000854_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ElGolfo_FR-FR8422872224_UHD.jpg&w=1000)Today: [Vue aérienne de la plage de sable noir El Golfo, Lanzarote, Îles Canaries, Espagne (© Westend61/Adobe Stock)](https://www.bing.com/th?id=OHR.ElGolfo_FR-FR8422872224_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.FallAspens_DE-DE1894805045_UHD.jpg&w=1000)Today: [Herbstliche Espen nahe dem Guardsman Pass, Utah, USA (© Danita Delimont/Shutterstock)](https://www.bing.com/th?id=OHR.FallAspens_DE-DE1894805045_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ElGolfo_DE-DE2094132875_UHD.jpg&w=1000)Today: [Luftaufnahme des schwarzen Lavastrandes in El Golfo, Lanzarote, Kanarische Inseln, Spanien (© Westend61/Adobe Stock)](https://www.bing.com/th?id=OHR.ElGolfo_DE-DE2094132875_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.FallAspens_ES-ES8557164613_UHD.jpg&w=1000)Today: [Álamos de otoño cerca de Guardsman Pass, Utah, EE. UU. (© Danita Delimont/Shutterstock)](https://www.bing.com/th?id=OHR.FallAspens_ES-ES8557164613_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FiestaMerceBarcelona_ES-ES7742458972_UHD.jpg&w=1000)Today: [Vista del Parque Güell en Barcelona, Cataluña, España (© Vershinin/Getty Images)](https://www.bing.com/th?id=OHR.FiestaMerceBarcelona_ES-ES7742458972_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.FallAspens_EN-GB9268931266_UHD.jpg&w=1000)Today: [Autumn aspen trees near Guardsman Pass, Utah, United States (© Danita Delimont/Shutterstock)](https://www.bing.com/th?id=OHR.FallAspens_EN-GB9268931266_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TolkienWeek_EN-GB9361035480_UHD.jpg&w=1000)Today: [Hobbit house at Hobbiton Movie Set, Matamata, New Zealand (© djr-photography/Shutterstock)](https://www.bing.com/th?id=OHR.TolkienWeek_EN-GB9361035480_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AutumnTrentino_IT-IT8118999546_UHD.jpg&w=1000)Today: [Chiesa in Val di Funes, Trentino-Alto Adige, Dolomiti, Italia (© DieterMeyrl/Getty Images)](https://www.bing.com/th?id=OHR.AutumnTrentino_IT-IT8118999546_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ElGolfo_IT-IT8270823745_UHD.jpg&w=1000)Today: [Vista aerea della spiaggia di lava nera, El Golfo, Lanzarote, Isole Canarie, Spagna (© Westend61/Adobe Stock)](https://www.bing.com/th?id=OHR.ElGolfo_IT-IT8270823745_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SpringTree_PT-BR3107057910_UHD.jpg&w=1000)Today: [Ipê-amarelo florido contra o céu azul (© Rogerio Peccioli/Getty Images)](https://www.bing.com/th?id=OHR.SpringTree_PT-BR3107057910_UHD.jpg)
 <br><br/>
