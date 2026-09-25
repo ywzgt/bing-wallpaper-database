@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MidAutumn2026_JA-JP8034446964_UHD.jpg&w=1000)今日の壁紙: &nbsp;[中秋節用の中国提灯 (© LeeYiuTung/Getty Images)](https://www.bing.com/th?id=OHR.MidAutumn2026_JA-JP8034446964_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BearsEars_JA-JP8214752036_UHD.jpg&w=1000)今日の壁紙: &nbsp;[シーダーメサ, 米国 ユタ州 (© Jeff Clay/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BearsEars_JA-JP8214752036_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MidAutumn2026_FR-FR8607088238_UHD.jpg&w=1000)Today: [Lanternes chinoises lors de la Fête de la Mi-Automne (© LeeYiuTung/Getty Images)](https://www.bing.com/th?id=OHR.MidAutumn2026_FR-FR8607088238_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.MidAutumn2026_IT-IT8365698421_UHD.jpg&w=1000)Today: [Lanterne cinesi per la celebrazione della Festa di metà autunno (© LeeYiuTung/Getty Images)](https://www.bing.com/th?id=OHR.MidAutumn2026_IT-IT8365698421_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TolkienWeek_PT-BR2214990560_UHD.jpg&w=1000)Today: [Vila dos Hobbits em Matamata, Nova Zelândia (© djr-photography/Shutterstock)](https://www.bing.com/th?id=OHR.TolkienWeek_PT-BR2214990560_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MidAutumn2026_PT-BR2970027415_UHD.jpg&w=1000)Today: [Lanternas chinesas para a celebração do Festival da Lua, Hong Kong, China (© LeeYiuTung/Getty Images)](https://www.bing.com/th?id=OHR.MidAutumn2026_PT-BR2970027415_UHD.jpg)
 <br><br/>
