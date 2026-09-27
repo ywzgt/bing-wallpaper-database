@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.YokohamaBayBridge_JA-JP8812921625_UHD.jpg&w=1000)今日の壁紙: &nbsp;[横浜ベイブリッジ, 神奈川県 横浜市 (© Yuga Kurita/Getty Images)](https://www.bing.com/th?id=OHR.YokohamaBayBridge_JA-JP8812921625_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AmberHall_JA-JP9172458689_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アンベール城, インド (© R.M. Nunes/Getty Images)](https://www.bing.com/th?id=OHR.AmberHall_JA-JP9172458689_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.DecoCrab_FR-FR8789802868_UHD.jpg&w=1000)Today: [Crabe décorateur sur une plume de mer, Parc national de Komodo, Indonésie (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.DecoCrab_FR-FR8789802868_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.DecoCrab_IT-IT5114188667_UHD.jpg&w=1000)Today: [Granchio decoratore su penna marina, Parco Nazionale di Komodo, Indonesia (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.DecoCrab_IT-IT5114188667_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ElGolfo_PT-BR1964322549_UHD.jpg&w=1000)Today: [Vista aérea da praia de lava negra, El Golfo, Lanzarote, Ilhas Canárias, Espanha (© Westend61/Adobe Stock)](https://www.bing.com/th?id=OHR.ElGolfo_PT-BR1964322549_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DecoCrab_PT-BR1863827080_UHD.jpg&w=1000)Today: [Caranguejo-decorador em pena-do-mar, Parque Nacional de Komodo, Indonésia (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.DecoCrab_PT-BR1863827080_UHD.jpg)
 <br><br/>
