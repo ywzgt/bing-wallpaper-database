@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AmberHall_JA-JP9172458689_UHD.jpg&w=1000)今日の壁紙: &nbsp;[アンベール城, インド (© R.M. Nunes/Getty Images)](https://www.bing.com/th?id=OHR.AmberHall_JA-JP9172458689_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KasilofRiver_JA-JP7219675730_UHD.jpg&w=1000)今日の壁紙: &nbsp;[カシロフ川, 米国 アラスカ州 (© jared lloyd/Getty Images)](https://www.bing.com/th?id=OHR.KasilofRiver_JA-JP7219675730_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AmberHall_FR-FR6136179100_UHD.jpg&w=1000)Today: [La salle Sattais Katcheri dans le fort d’Amber près de Jaipur, Rajasthan, Inde (© R.M. Nunes/Getty Images)](https://www.bing.com/th?id=OHR.AmberHall_FR-FR6136179100_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AmberHall_IT-IT8621021328_UHD.jpg&w=1000)Today: [Sattais Katcheri, Forte Amber vicino a Jaipur, Rajasthan, India (© R.M. Nunes/Getty Images)](https://www.bing.com/th?id=OHR.AmberHall_IT-IT8621021328_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DecoCrab_PT-BR1863827080_UHD.jpg&w=1000)Today: [Caranguejo-decorador em pena-do-mar, Parque Nacional de Komodo, Indonésia (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.DecoCrab_PT-BR1863827080_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AmberHall_PT-BR1465916376_UHD.jpg&w=1000)Today: [Salão Sattais Katcheri no Forte de Amber, perto de Jaipur, Rajastão, Índia (© R.M. Nunes/Getty Images)](https://www.bing.com/th?id=OHR.AmberHall_PT-BR1465916376_UHD.jpg)
 <br><br/>

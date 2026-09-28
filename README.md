@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AmberHall_ZH-CN1223127100_UHD.jpg&w=1000)今日图片: &nbsp;[斋浦尔附近琥珀堡内的 Sattais Katcheri 大厅，拉贾斯坦邦，印度 (© R.M. Nunes/Getty Images)](https://www.bing.com/th?id=OHR.AmberHall_ZH-CN1223127100_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_UHD.jpg&w=1000)今日图片: &nbsp;[卡西洛夫河冰川融水滋养的湛蓝河水，阿拉斯加州，美国 (© jared lloyd/Getty Images)](https://www.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DecoCrab_EN-US9587426678_UHD.jpg&w=1000)Today: [Decorator crab on a sea pen, Komodo National Park, Indonesia (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.DecoCrab_EN-US9587426678_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AmberHall_EN-US9930812541_UHD.jpg&w=1000)Today: [Sattais Katcheri Hall in Amber Fort near Jaipur, Rajasthan, India (© R.M. Nunes/Getty Images)](https://www.bing.com/th?id=OHR.AmberHall_EN-US9930812541_UHD.jpg)
 <br><br/>
