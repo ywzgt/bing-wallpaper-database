@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_UHD.jpg&w=1000)今日图片: &nbsp;[雄性文须雀，诺福克郡，英格兰 (© Andrew Sproule/Shutterstock)](https://www.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OlmstedPoint_ZH-CN4182671075_UHD.jpg&w=1000)今日图片: &nbsp;[奥姆斯特德观景点的日落，优胜美地国家公园，加利福尼亚州，美国 (© Robb Hirsch/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.OlmstedPoint_ZH-CN4182671075_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.KasilofRiver_EN-US0047556055_UHD.jpg&w=1000)Today: [The blue, glacier-fed waters of the Kasilof River, Alaska, USA (© jared lloyd/Getty Images)](https://www.bing.com/th?id=OHR.KasilofRiver_EN-US0047556055_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BeardReedling_EN-US0124350202_UHD.jpg&w=1000)Today: [Male bearded reedling, Norfolk, England (© Andrew Sproule/Shutterstock)](https://www.bing.com/th?id=OHR.BeardReedling_EN-US0124350202_UHD.jpg)
 <br><br/>
