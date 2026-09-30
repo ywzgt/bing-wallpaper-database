@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.BeardReedling_JA-JP9843863193_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ヒゲガラ, イングランド (© Andrew Sproule/Shutterstock)](https://www.bing.com/th?id=OHR.BeardReedling_JA-JP9843863193_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.KasilofRiver_FR-FR9609860572_UHD.jpg&w=1000)Today: [Les eaux bleues de la rivière Kasilof, Alaska, États-Unis (© jared lloyd/Getty Images)](https://www.bing.com/th?id=OHR.KasilofRiver_FR-FR9609860572_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BeardReedling_FR-FR6298814586_UHD.jpg&w=1000)Today: [Panure à moustaches mâle, Norfolk, Angleterre (© Andrew Sproule/Shutterstock)](https://www.bing.com/th?id=OHR.BeardReedling_FR-FR6298814586_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.KasilofRiver_DE-DE4065933153_UHD.jpg&w=1000)Today: [Das blaue, von Gletschern gespeiste Wasser des Kasilof River in Alaska, USA (© jared lloyd/Getty Images)](https://www.bing.com/th?id=OHR.KasilofRiver_DE-DE4065933153_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AlphornBavaria_DE-DE4197541227_UHD.jpg&w=1000)Today: [Alphornbläser in Bayern (© U. J. Alexander/Shutterstock)](https://www.bing.com/th?id=OHR.AlphornBavaria_DE-DE4197541227_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.KasilofRiver_ES-ES8214443142_UHD.jpg&w=1000)Today: [Las aguas azules alimentadas por glaciares del río Kasilof, Alaska, EE. UU. (© jared lloyd/Getty Images)](https://www.bing.com/th?id=OHR.KasilofRiver_ES-ES8214443142_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BeardReedling_ES-ES8271136302_UHD.jpg&w=1000)Today: [Macho de bigotudo, Norfolk, Inglaterra (© Andrew Sproule/Shutterstock)](https://www.bing.com/th?id=OHR.BeardReedling_ES-ES8271136302_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.KasilofRiver_EN-GB9796874794_UHD.jpg&w=1000)Today: [The blue, glacier-fed waters of the Kasilof River, Alaska, United States (© jared lloyd/Getty Images)](https://www.bing.com/th?id=OHR.KasilofRiver_EN-GB9796874794_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BeardReedling_EN-GB9865111388_UHD.jpg&w=1000)Today: [Male bearded reedling, Norfolk, England (© Andrew Sproule/Shutterstock)](https://www.bing.com/th?id=OHR.BeardReedling_EN-GB9865111388_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.KasilofRiver_IT-IT8693387372_UHD.jpg&w=1000)Today: [Le acque blu alimentate dai ghiacciai del fiume Kasilof, Alaska, USA (© jared lloyd/Getty Images)](https://www.bing.com/th?id=OHR.KasilofRiver_IT-IT8693387372_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BeardReedling_IT-IT8754476280_UHD.jpg&w=1000)Today: [Maschio di basettino, Norfolk, Inghilterra (© Andrew Sproule/Shutterstock)](https://www.bing.com/th?id=OHR.BeardReedling_IT-IT8754476280_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.KasilofRiver_PT-BR1313310893_UHD.jpg&w=1000)Today: [Rio Kasilof, Península de Kenai, Alasca, Estados Unidos (© jared lloyd/Getty Images)](https://www.bing.com/th?id=OHR.KasilofRiver_PT-BR1313310893_UHD.jpg)
 <br><br/>
