@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.DanxiaLandform_ZH-CN2386060246_UHD.jpg&w=1000)今日图片: &nbsp;[丹霞地貌，张掖国家地质公园，甘肃省，中国 (© Weiquan Lin/Getty Images)](https://www.bing.com/th?id=OHR.DanxiaLandform_ZH-CN2386060246_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_UHD.jpg&w=1000)今日图片: &nbsp;[覆满苔藓的岩石，英国格洛斯特郡谜林，迪恩森林，格洛斯特郡，英格兰 (© Fulcanelli_AOS/Getty Images)](https://www.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AdelieTeacher_EN-US5343194378_UHD.jpg&w=1000)Today: [Adélie penguins, Antarctica (© Otto Plantema/Minden Pictures)](https://www.bing.com/th?id=OHR.AdelieTeacher_EN-US5343194378_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DanxiaLandform_EN-US5459628079_UHD.jpg&w=1000)Today: [Danxia landform, Zhangye National Geopark, Gansu, China (© Weiquan Lin/Getty Images)](https://www.bing.com/th?id=OHR.DanxiaLandform_EN-US5459628079_UHD.jpg)
 <br><br/>
