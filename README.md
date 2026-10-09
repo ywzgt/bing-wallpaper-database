@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.IlesSanguinaires_ZH-CN3149346035_UHD.jpg&w=1000)今日图片: &nbsp;[桑吉奈尔群岛景观，摄自科西嘉岛，法国 (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.IlesSanguinaires_ZH-CN3149346035_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CormorantsFlight_ZH-CN0770863330_UHD.jpg&w=1000)今日图片: &nbsp;[蒙特雷湾上空的双冠鸬鹚，加利福尼亚州，美国 (© Hiroya Minakuchi/Minden Pictures)](https://www.bing.com/th?id=OHR.CormorantsFlight_ZH-CN0770863330_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.MayotteOctopus_EN-US5694987016_UHD.jpg&w=1000)Today: [Octopus in defensive posture, Mayotte, Indian Ocean (© Gabriel Barathieu/Minden Pictures)](https://www.bing.com/th?id=OHR.MayotteOctopus_EN-US5694987016_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IlesSanguinaires_EN-US5801644173_UHD.jpg&w=1000)Today: [View of the Sanguinaires Islands from Corsica, France (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.IlesSanguinaires_EN-US5801644173_UHD.jpg)
 <br><br/>
