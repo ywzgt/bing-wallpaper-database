@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BabcockSP_JA-JP1996620132_UHD.jpg&w=1000)今日の壁紙: &nbsp;[グレイド・クリーク・グリスト・ミル, 米国 ウェストバージニア州 (© dszc/Getty Images)](https://www.bing.com/th?id=OHR.BabcockSP_JA-JP1996620132_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RedMacawsFlight_JA-JP3781300138_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ベニコンゴウインコのペア (© markes51/Getty Images)](https://www.bing.com/th?id=OHR.RedMacawsFlight_JA-JP3781300138_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BabcockSP_FR-FR9462539296_UHD.jpg&w=1000)Today: [Moulin de Glade Creek, parc d'État de Babcock, Virginie-Occidentale, États-Unis (© dszc/Getty Images)](https://www.bing.com/th?id=OHR.BabcockSP_FR-FR9462539296_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BarcolanaBoats_IT-IT7828341555_UHD.jpg&w=1000)Today: [La regata della Barcolana nel Golfo di Trieste, Friuli-Venezia Giulia, Italia (© Marco Saracco/Getty Images)](https://www.bing.com/th?id=OHR.BarcolanaBoats_IT-IT7828341555_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CormorantsFlight_PT-BR9427423298_UHD.jpg&w=1000)Today: [Corvos-marinhos-de-orelhas sobre a baía de Monterey, Califórnia, EUA (© Hiroya Minakuchi/Minden Pictures)](https://www.bing.com/th?id=OHR.CormorantsFlight_PT-BR9427423298_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BabcockSP_PT-BR9617512928_UHD.jpg&w=1000)Today: [Moinho de Glade Creek, Parque Estadual Babcock, Virgínia Ocidental, EUA (© dszc/Getty Images)](https://www.bing.com/th?id=OHR.BabcockSP_PT-BR9617512928_UHD.jpg)
 <br><br/>
