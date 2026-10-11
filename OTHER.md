@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.BabcockSP_JA-JP1996620132_UHD.jpg&w=1000)今日の壁紙: &nbsp;[グレイド・クリーク・グリスト・ミル, 米国 ウェストバージニア州 (© dszc/Getty Images)](https://www.bing.com/th?id=OHR.BabcockSP_JA-JP1996620132_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ArtemisRocket_FR-FR7987344274_UHD.jpg&w=1000)Today: [Fusée lunaire Artemis I au complexe de lancement 39B, Centre spatial Kennedy, Floride, 15 juin 2022 (© EVA MARIE UZCATEGUI/Getty Images)](https://www.bing.com/th?id=OHR.ArtemisRocket_FR-FR7987344274_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BabcockSP_FR-FR9462539296_UHD.jpg&w=1000)Today: [Moulin de Glade Creek, parc d'État de Babcock, Virginie-Occidentale, États-Unis (© dszc/Getty Images)](https://www.bing.com/th?id=OHR.BabcockSP_FR-FR9462539296_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CormorantsFlight_DE-DE5717719144_UHD.jpg&w=1000)Today: [Ohrenscharben über der Monterey Bay, Kalifornien, USA (© Hiroya Minakuchi/Minden Pictures)](https://www.bing.com/th?id=OHR.CormorantsFlight_DE-DE5717719144_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MouflonAutumn_DE-DE6144771164_UHD.jpg&w=1000)Today: [Europäisches Mufflon (Widder) im Herbstwald, Bayern (© imageBROKER/David & Micha Sheldon/Getty Images)](https://www.bing.com/th?id=OHR.MouflonAutumn_DE-DE6144771164_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.ZaragozaBasilica_ES-ES1990532240_UHD.jpg&w=1000)Today: [Catedral-Basílica de Nuestra Señora del Pilar, Zaragoza, Aragón, España (© frantic00/Getty Images)](https://www.bing.com/th?id=OHR.ZaragozaBasilica_ES-ES1990532240_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BabcockSP_ES-ES4865600988_UHD.jpg&w=1000)Today: [Molino de Glade Creek, Parque Estatal Babcock, Virginia Occidental, EE. UU. (© dszc/Getty Images)](https://www.bing.com/th?id=OHR.BabcockSP_ES-ES4865600988_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CormorantsFlight_EN-GB3315477514_UHD.jpg&w=1000)Today: [Double-crested cormorants over Monterey Bay, California, United States (© Hiroya Minakuchi/Minden Pictures)](https://www.bing.com/th?id=OHR.CormorantsFlight_EN-GB3315477514_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BabcockSP_EN-GB3870597164_UHD.jpg&w=1000)Today: [Glade Creek Grist Mill, Babcock State Park, West Virginia, United States (© dszc/Getty Images)](https://www.bing.com/th?id=OHR.BabcockSP_EN-GB3870597164_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CormorantsFlight_IT-IT0012209213_UHD.jpg&w=1000)Today: [Cormorani crestati americani sopra la baia di Monterey, California, Stati Uniti (© Hiroya Minakuchi/Minden Pictures)](https://www.bing.com/th?id=OHR.CormorantsFlight_IT-IT0012209213_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BarcolanaBoats_IT-IT7828341555_UHD.jpg&w=1000)Today: [La regata della Barcolana nel Golfo di Trieste, Friuli-Venezia Giulia, Italia (© Marco Saracco/Getty Images)](https://www.bing.com/th?id=OHR.BarcolanaBoats_IT-IT7828341555_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.CormorantsFlight_PT-BR9427423298_UHD.jpg&w=1000)Today: [Corvos-marinhos-de-orelhas sobre a baía de Monterey, Califórnia, EUA (© Hiroya Minakuchi/Minden Pictures)](https://www.bing.com/th?id=OHR.CormorantsFlight_PT-BR9427423298_UHD.jpg)
 <br><br/>
