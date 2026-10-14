@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.RailwayDay2026_JA-JP4058067313_UHD.jpg&w=1000)今日の壁紙: &nbsp;[嵯峨野トロッコ列車, 京都府京都市 (© giggsy25/Shutterstock)](https://www.bing.com/th?id=OHR.RailwayDay2026_JA-JP4058067313_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WroclawPoland_JA-JP4298283472_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ヴロツワフ, ポーランド (© Piotr Mitelski/Shutterstock)](https://www.bing.com/th?id=OHR.WroclawPoland_JA-JP4298283472_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AmmoniteFossils_FR-FR7395830779_UHD.jpg&w=1000)Today: [Fossiles d'ammonites du Jurassique (© J Nemchinova/Getty Images)](https://www.bing.com/th?id=OHR.AmmoniteFossils_FR-FR7395830779_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AmmoniteFossils_IT-IT0745512844_UHD.jpg&w=1000)Today: [Fossili di ammoniti del Giurassico (© J Nemchinova/Getty Images)](https://www.bing.com/th?id=OHR.AmmoniteFossils_IT-IT0745512844_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PlitviceAutumn_PT-BR4568960471_UHD.jpg&w=1000)Today: [Parque Nacional dos Lagos de Plitvice, Croácia (© Jan Wlodarczyk/Alamy)](https://www.bing.com/th?id=OHR.PlitviceAutumn_PT-BR4568960471_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AmmoniteFossils_PT-BR4750235603_UHD.jpg&w=1000)Today: [Fósseis de amonites do período Jurássico (© J Nemchinova/Getty Images)](https://www.bing.com/th?id=OHR.AmmoniteFossils_PT-BR4750235603_UHD.jpg)
 <br><br/>
