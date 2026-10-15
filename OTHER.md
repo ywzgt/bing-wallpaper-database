@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.WroclawPoland_JA-JP4298283472_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ヴロツワフ, ポーランド (© Piotr Mitelski/Shutterstock)](https://www.bing.com/th?id=OHR.WroclawPoland_JA-JP4298283472_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SneffelsAutumn_JA-JP1327078827_UHD.jpg&w=1000)今日の壁紙: &nbsp;[スネフェル山, 米国 コロラド州 (© lightphoto/Getty Images)](https://www.bing.com/th?id=OHR.SneffelsAutumn_JA-JP1327078827_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.WroclawPoland_FR-FR0061683282_UHD.jpg&w=1000)Today: [Vue sur la place du marché de Wrocław depuis le pont des Sorcières, Wrocław, Pologne (© Piotr Mitelski/Shutterstock)](https://www.bing.com/th?id=OHR.WroclawPoland_FR-FR0061683282_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.WroclawPoland_IT-IT1033829565_UHD.jpg&w=1000)Today: [Veduta della piazza del Mercato di Breslavia dal Ponte delle Streghe, Breslavia, Polonia (© Piotr Mitelski/Shutterstock)](https://www.bing.com/th?id=OHR.WroclawPoland_IT-IT1033829565_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AmmoniteFossils_PT-BR4750235603_UHD.jpg&w=1000)Today: [Fósseis de amonites do período Jurássico (© J Nemchinova/Getty Images)](https://www.bing.com/th?id=OHR.AmmoniteFossils_PT-BR4750235603_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WroclawPoland_PT-BR5779158730_UHD.jpg&w=1000)Today: [Vista da Praça do Mercado de Wrocław a partir da Ponte das Bruxas, Wrocław, Polônia (© Piotr Mitelski/Shutterstock)](https://www.bing.com/th?id=OHR.WroclawPoland_PT-BR5779158730_UHD.jpg)
 <br><br/>
