@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.SneffelsAutumn_JA-JP1327078827_UHD.jpg&w=1000)今日の壁紙: &nbsp;[スネフェル山, 米国 コロラド州 (© lightphoto/Getty Images)](https://www.bing.com/th?id=OHR.SneffelsAutumn_JA-JP1327078827_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WroclawPoland_FR-FR0061683282_UHD.jpg&w=1000)Today: [Vue sur la place du marché de Wrocław depuis le pont des Sorcières, Wrocław, Pologne (© Piotr Mitelski/Shutterstock)](https://www.bing.com/th?id=OHR.WroclawPoland_FR-FR0061683282_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SneffelsAutumn_FR-FR3895133232_UHD.jpg&w=1000)Today: [Le mont Sneffels dans les montagnes San Juan, près de Ridgway, Colorado, États-Unis (© lightphoto/Getty Images)](https://www.bing.com/th?id=OHR.SneffelsAutumn_FR-FR3895133232_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WroclawPoland_DE-DE7177247783_UHD.jpg&w=1000)Today: [Blick auf den Breslauer Marktplatz von der Hexenbrücke in Breslau, Polen (© Piotr Mitelski/Shutterstock)](https://www.bing.com/th?id=OHR.WroclawPoland_DE-DE7177247783_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AndechsAbbey_DE-DE4997798666_UHD.jpg&w=1000)Today: [Kloster Andechs bei Sonnenuntergang, Andechs, Bayern (© imageBROKER/Martin Moxter)](https://www.bing.com/th?id=OHR.AndechsAbbey_DE-DE4997798666_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WroclawPoland_ES-ES6249915839_UHD.jpg&w=1000)Today: [Vista de la plaza del Mercado de Breslavia desde el Puente de las Brujas, Breslavia, Polonia (© Piotr Mitelski/Shutterstock)](https://www.bing.com/th?id=OHR.WroclawPoland_ES-ES6249915839_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SneffelsAutumn_ES-ES3631909168_UHD.jpg&w=1000)Today: [Monte Sneffels, montañas San Juan, cerca de Ridgway, Colorado, EE. UU. (© lightphoto/Getty Images)](https://www.bing.com/th?id=OHR.SneffelsAutumn_ES-ES3631909168_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WroclawPoland_EN-GB4702725574_UHD.jpg&w=1000)Today: [View of the Wroclaw Market Square from the Witches' Bridge in Wroclaw, Poland (© Piotr Mitelski/Shutterstock)](https://www.bing.com/th?id=OHR.WroclawPoland_EN-GB4702725574_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SneffelsAutumn_EN-GB4713580034_UHD.jpg&w=1000)Today: [Mount Sneffels in the San Juan Mountains near Ridgway, Colorado, United States (© lightphoto/Getty Images)](https://www.bing.com/th?id=OHR.SneffelsAutumn_EN-GB4713580034_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WroclawPoland_IT-IT1033829565_UHD.jpg&w=1000)Today: [Veduta della piazza del Mercato di Breslavia dal Ponte delle Streghe, Breslavia, Polonia (© Piotr Mitelski/Shutterstock)](https://www.bing.com/th?id=OHR.WroclawPoland_IT-IT1033829565_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SneffelsAutumn_IT-IT1945499761_UHD.jpg&w=1000)Today: [Monte Sneffels, San Juan Mountains, vicino a Ridgway, Colorado, USA (© lightphoto/Getty Images)](https://www.bing.com/th?id=OHR.SneffelsAutumn_IT-IT1945499761_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.WroclawPoland_PT-BR5779158730_UHD.jpg&w=1000)Today: [Vista da Praça do Mercado de Wrocław a partir da Ponte das Bruxas, Wrocław, Polônia (© Piotr Mitelski/Shutterstock)](https://www.bing.com/th?id=OHR.WroclawPoland_PT-BR5779158730_UHD.jpg)
 <br><br/>
