@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SneffelsAutumn_JA-JP1327078827_UHD.jpg&w=1000)今日の壁紙: &nbsp;[スネフェル山, 米国 コロラド州 (© lightphoto/Getty Images)](https://www.bing.com/th?id=OHR.SneffelsAutumn_JA-JP1327078827_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Persimmons2026_JA-JP2192858733_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ずらりと並ぶ干し柿, 長野県 妻籠宿 (© wayfarer2020/Shutterstock)](https://www.bing.com/th?id=OHR.Persimmons2026_JA-JP2192858733_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SneffelsAutumn_FR-FR3895133232_UHD.jpg&w=1000)Today: [Le mont Sneffels dans les montagnes San Juan, près de Ridgway, Colorado, États-Unis (© lightphoto/Getty Images)](https://www.bing.com/th?id=OHR.SneffelsAutumn_FR-FR3895133232_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SneffelsAutumn_IT-IT1945499761_UHD.jpg&w=1000)Today: [Monte Sneffels, San Juan Mountains, vicino a Ridgway, Colorado, USA (© lightphoto/Getty Images)](https://www.bing.com/th?id=OHR.SneffelsAutumn_IT-IT1945499761_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WroclawPoland_PT-BR5779158730_UHD.jpg&w=1000)Today: [Vista da Praça do Mercado de Wrocław a partir da Ponte das Bruxas, Wrocław, Polônia (© Piotr Mitelski/Shutterstock)](https://www.bing.com/th?id=OHR.WroclawPoland_PT-BR5779158730_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Veadeiros_PT-BR0644976929_UHD.jpg&w=1000)Today: [Chapada dos Veadeiros, Goiás (© Roberto Kenji/Shutterstock)](https://www.bing.com/th?id=OHR.Veadeiros_PT-BR0644976929_UHD.jpg)
 <br><br/>
