@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Persimmons2026_JA-JP2192858733_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ずらりと並ぶ干し柿, 長野県 妻籠宿 (© wayfarer2020/Shutterstock)](https://www.bing.com/th?id=OHR.Persimmons2026_JA-JP2192858733_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DolbadarnWales_JA-JP2361140889_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ドルバダーン城, ウェールズ (© joe daniel price/Getty Images)](https://www.bing.com/th?id=OHR.DolbadarnWales_JA-JP2361140889_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.SmilingSquirrel_FR-FR7350313584_UHD.jpg&w=1000)Today: [Écureuil roux (© Cédric GUERE/Getty Images)](https://www.bing.com/th?id=OHR.SmilingSquirrel_FR-FR7350313584_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ChauvetPaintingsFrance_IT-IT2139803809_UHD.jpg&w=1000)Today: [Riproduzione a grandezza naturale delle pitture della grotta di Chauvet, Vallon-Pont-d'Arc, Francia (© Audrey Poree/Alamy)](https://www.bing.com/th?id=OHR.ChauvetPaintingsFrance_IT-IT2139803809_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.Veadeiros_PT-BR0644976929_UHD.jpg&w=1000)Today: [Chapada dos Veadeiros, Goiás (© Roberto Kenji/Shutterstock)](https://www.bing.com/th?id=OHR.Veadeiros_PT-BR0644976929_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChauvetPaintingsFrance_PT-BR7808142972_UHD.jpg&w=1000)Today: [Réplica em tamanho real das pinturas rupestres da Caverna de Chauvet, Vallon-Pont-d'Arc, França (© Audrey Poree/Alamy)](https://www.bing.com/th?id=OHR.ChauvetPaintingsFrance_PT-BR7808142972_UHD.jpg)
 <br><br/>
