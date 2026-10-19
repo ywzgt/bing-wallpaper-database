@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.VeniceSunrise_JA-JP2535499489_UHD.jpg&w=1000)今日の壁紙: &nbsp;[カナル・グランデ, イタリア (© Juan Romero/Cavan Images)](https://www.bing.com/th?id=OHR.VeniceSunrise_JA-JP2535499489_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BrownSloth_JA-JP2697515435_UHD.jpg&w=1000)今日の壁紙: &nbsp;[木の枝にぶら下がるナマケモノ, コスタリカ (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.BrownSloth_JA-JP2697515435_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.VeniceSunrise_FR-FR4230208455_UHD.jpg&w=1000)Today: [Le Grand Canal à Venise, Italie (© Juan Romero/Cavan Images)](https://www.bing.com/th?id=OHR.VeniceSunrise_FR-FR4230208455_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.VeniceSunrise_IT-IT2943629456_UHD.jpg&w=1000)Today: [Alba sul Canal Grande, Venezia, Veneto, Italia (© Juan Romero/Cavan Images)](https://www.bing.com/th?id=OHR.VeniceSunrise_IT-IT2943629456_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.DolbadarnWales_PT-BR0887027747_UHD.jpg&w=1000)Today: [Castelo de Dolbadarn, Llanberis, Parque Nacional de Eryri (Snowdonia), País de Gales (© joe daniel price/Getty Images)](https://www.bing.com/th?id=OHR.DolbadarnWales_PT-BR0887027747_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VeniceSunrise_PT-BR8365610239_UHD.jpg&w=1000)Today: [Grande Canal de Veneza, Itália (© Juan Romero/Cavan Images)](https://www.bing.com/th?id=OHR.VeniceSunrise_PT-BR8365610239_UHD.jpg)
 <br><br/>
