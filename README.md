@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BrownSloth_ZH-CN5776383136_UHD.jpg&w=1000)今日图片: &nbsp;[褐喉三趾树懒，塔拉曼卡旧港，哥斯达黎加 (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.BrownSloth_ZH-CN5776383136_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VietnamBridge_ZH-CN6134321119_UHD.jpg&w=1000)今日图片: &nbsp;[香江上的阮潢桥，顺化，越南 (© VU PHAM VAN/Getty Images)](https://www.bing.com/th?id=OHR.VietnamBridge_ZH-CN6134321119_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.VeniceSunrise_EN-US6714393168_UHD.jpg&w=1000)Today: [Grand Canal in Venice, Italy (© Juan Romero/Cavan Images)](https://www.bing.com/th?id=OHR.VeniceSunrise_EN-US6714393168_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BrownSloth_EN-US6816754257_UHD.jpg&w=1000)Today: [Brown-throated sloth, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.BrownSloth_EN-US6816754257_UHD.jpg)
 <br><br/>

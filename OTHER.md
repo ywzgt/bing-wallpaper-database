@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BrownSloth_JA-JP2697515435_UHD.jpg&w=1000)今日の壁紙: &nbsp;[木の枝にぶら下がるナマケモノ, コスタリカ (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.BrownSloth_JA-JP2697515435_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VietnamBridge_JA-JP2833280767_UHD.jpg&w=1000)今日の壁紙: &nbsp;[グエン・ホアン橋, ベトナム (© VU PHAM VAN/Getty Images)](https://www.bing.com/th?id=OHR.VietnamBridge_JA-JP2833280767_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BrownSloth_FR-FR7781895704_UHD.jpg&w=1000)Today: [Paresseux à gorge brune, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.BrownSloth_FR-FR7781895704_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BrownSloth_IT-IT3225849910_UHD.jpg&w=1000)Today: [Giovane bradipo tridattilo dalla gola bruna, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.BrownSloth_IT-IT3225849910_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.VeniceSunrise_PT-BR8365610239_UHD.jpg&w=1000)Today: [Grande Canal de Veneza, Itália (© Juan Romero/Cavan Images)](https://www.bing.com/th?id=OHR.VeniceSunrise_PT-BR8365610239_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BrownSloth_PT-BR9878913953_UHD.jpg&w=1000)Today: [Preguiça-comum em Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.BrownSloth_PT-BR9878913953_UHD.jpg)
 <br><br/>
