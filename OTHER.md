@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.VietnamBridge_JA-JP2833280767_UHD.jpg&w=1000)今日の壁紙: &nbsp;[グエン・ホアン橋, ベトナム (© VU PHAM VAN/Getty Images)](https://www.bing.com/th?id=OHR.VietnamBridge_JA-JP2833280767_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NaejangsanNP_JA-JP7092803320_UHD.jpg&w=1000)今日の壁紙: &nbsp;[内蔵山国立公園, 韓国 (© Twenty47studio/Getty Images)](https://www.bing.com/th?id=OHR.NaejangsanNP_JA-JP7092803320_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.VietnamBridge_FR-FR7991423921_UHD.jpg&w=1000)Today: [Le pont Nguyen Hoang sur la rivière des Parfums, Hué, Vietnam (© VU PHAM VAN/Getty Images)](https://www.bing.com/th?id=OHR.VietnamBridge_FR-FR7991423921_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.VietnamBridge_IT-IT3479546401_UHD.jpg&w=1000)Today: [Ponte Nguyễn Hoàng sul fiume dei Profumi, Hue, Vietnam (© VU PHAM VAN/Getty Images)](https://www.bing.com/th?id=OHR.VietnamBridge_IT-IT3479546401_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BrownSloth_PT-BR9878913953_UHD.jpg&w=1000)Today: [Preguiça-comum em Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.BrownSloth_PT-BR9878913953_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VietnamBridge_PT-BR8870725479_UHD.jpg&w=1000)Today: [Ponte Nguyen Hoang sobre o Rio Perfume, Hue, Vietnã (© VU PHAM VAN/Getty Images)](https://www.bing.com/th?id=OHR.VietnamBridge_PT-BR8870725479_UHD.jpg)
 <br><br/>
