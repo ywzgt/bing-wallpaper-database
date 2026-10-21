@@ -1,15 +1,15 @@
 ## Bing Wallpaper
 ![](https://www.bing.com/th?id=OHR.VietnamBridge_JA-JP2833280767_UHD.jpg&w=1000)今日の壁紙: &nbsp;[グエン・ホアン橋, ベトナム (© VU PHAM VAN/Getty Images)](https://www.bing.com/th?id=OHR.VietnamBridge_JA-JP2833280767_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BrownSloth_FR-FR7781895704_UHD.jpg&w=1000)Today: [Paresseux à gorge brune, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.BrownSloth_FR-FR7781895704_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VietnamBridge_FR-FR7991423921_UHD.jpg&w=1000)Today: [Le pont Nguyen Hoang sur la rivière des Parfums, Hué, Vietnam (© VU PHAM VAN/Getty Images)](https://www.bing.com/th?id=OHR.VietnamBridge_FR-FR7991423921_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BrownSloth_DE-DE1394372620_UHD.jpg&w=1000)Today: [Braunkehl-Faultier, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.BrownSloth_DE-DE1394372620_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VietnamBridge_DE-DE1735618070_UHD.jpg&w=1000)Today: [Nguyen-Hoang-Brücke über den Parfümfluss, Huế, Vietnam (© VU PHAM VAN/Getty Images)](https://www.bing.com/th?id=OHR.VietnamBridge_DE-DE1735618070_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BrownSloth_ES-ES6810824751_UHD.jpg&w=1000)Today: [Perezoso de tres dedos de garganta marrón joven, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.BrownSloth_ES-ES6810824751_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VietnamBridge_ES-ES2577546493_UHD.jpg&w=1000)Today: [Puente Nguyễn Hoàng sobre el río de los Perfumes, Hue, Vietnam (© VU PHAM VAN/Getty Images)](https://www.bing.com/th?id=OHR.VietnamBridge_ES-ES2577546493_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BrownSloth_EN-GB5100181368_UHD.jpg&w=1000)Today: [Brown-throated sloth, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.BrownSloth_EN-GB5100181368_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VietnamBridge_EN-GB5180652549_UHD.jpg&w=1000)Today: [Nguyen Hoang Bridge over the Perfume River, Hue, Vietnam (© VU PHAM VAN/Getty Images)](https://www.bing.com/th?id=OHR.VietnamBridge_EN-GB5180652549_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.BrownSloth_IT-IT3225849910_UHD.jpg&w=1000)Today: [Giovane bradipo tridattilo dalla gola bruna, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.BrownSloth_IT-IT3225849910_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VietnamBridge_IT-IT3479546401_UHD.jpg&w=1000)Today: [Ponte Nguyễn Hoàng sul fiume dei Profumi, Hue, Vietnam (© VU PHAM VAN/Getty Images)](https://www.bing.com/th?id=OHR.VietnamBridge_IT-IT3479546401_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.BrownSloth_PT-BR9878913953_UHD.jpg&w=1000)Today: [Preguiça-comum em Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.BrownSloth_PT-BR9878913953_UHD.jpg)
 <br><br/>
