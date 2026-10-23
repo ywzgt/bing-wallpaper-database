@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TsutanumaMomiji2026_JA-JP1409614988_UHD.jpg&w=1000)今日の壁紙: &nbsp;[蔦沼, 青森県 十和田市 (© MASATO SAITO/Getty Images)](https://www.bing.com/th?id=OHR.TsutanumaMomiji2026_JA-JP1409614988_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PortugueseLibrary_JA-JP3230226750_UHD.jpg&w=1000)今日の壁紙: &nbsp;[王立ポルトガル図書館, ブラジル (© Antonio Salaverry/Shutterstock)](https://www.bing.com/th?id=OHR.PortugueseLibrary_JA-JP3230226750_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.ReimsChampagne_FR-FR6230244152_UHD.jpg&w=1000)Today: [Vignobles à Verzenay, montagne de Reims, Champagne (© Philippe TURPIN/Getty Images)](https://www.bing.com/th?id=OHR.ReimsChampagne_FR-FR6230244152_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.YellowstoneWolves_IT-IT3969091116_UHD.jpg&w=1000)Today: [Due lupi grigi, Parco nazionale di Yellowstone, Wyoming, USA (© John Morrison/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneWolves_IT-IT3969091116_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.NaejangsanNP_PT-BR4250456618_UHD.jpg&w=1000)Today: [Outono no Parque Nacional Naejangsan, Coreia do Sul (© Twenty47studio/Getty Images)](https://www.bing.com/th?id=OHR.NaejangsanNP_PT-BR4250456618_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YellowstoneWolves_PT-BR5538259597_UHD.jpg&w=1000)Today: [Dois lobos-cinzentos no Parque Nacional de Yellowstone, Wyoming, EUA (© John Morrison/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneWolves_PT-BR5538259597_UHD.jpg)
 <br><br/>
