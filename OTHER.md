@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.PortugueseLibrary_JA-JP3230226750_UHD.jpg&w=1000)今日の壁紙: &nbsp;[王立ポルトガル図書館, ブラジル (© Antonio Salaverry/Shutterstock)](https://www.bing.com/th?id=OHR.PortugueseLibrary_JA-JP3230226750_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YellowstoneWolves_JA-JP3378091323_UHD.jpg&w=1000)今日の壁紙: &nbsp;[ハイイロオオカミ, 米国 ワイオミング州 (© John Morrison/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneWolves_JA-JP3378091323_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PortugueseLibrary_FR-FR9364310812_UHD.jpg&w=1000)Today: [Cabinet royal portugais de lecture, Rio de Janeiro, Brésil (© Antonio Salaverry/Shutterstock)](https://www.bing.com/th?id=OHR.PortugueseLibrary_FR-FR9364310812_UHD.jpg)
 <br><br/>
@@ -11,5 +11,5 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.PortugueseLibrary_IT-IT4308985837_UHD.jpg&w=1000)Today: [Real Gabinete Portoghese di Lettura, Rio de Janeiro, Brasile (© Antonio Salaverry/Shutterstock)](https://www.bing.com/th?id=OHR.PortugueseLibrary_IT-IT4308985837_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.YellowstoneWolves_PT-BR5538259597_UHD.jpg&w=1000)Today: [Dois lobos-cinzentos no Parque Nacional de Yellowstone, Wyoming, EUA (© John Morrison/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneWolves_PT-BR5538259597_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PortugueseLibrary_PT-BR6869331212_UHD.jpg&w=1000)Today: [Real Gabinete Português de Leitura, Rio de Janeiro (© Antonio Salaverry/Shutterstock)](https://www.bing.com/th?id=OHR.PortugueseLibrary_PT-BR6869331212_UHD.jpg)
 <br><br/>

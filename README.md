@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.PortugueseLibrary_ZH-CN7096893027_UHD.jpg&w=1000)今日图片: &nbsp;[皇家葡萄牙语阅览室，里约热内卢，巴西 (© Antonio Salaverry/Shutterstock)](https://www.bing.com/th?id=OHR.PortugueseLibrary_ZH-CN7096893027_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MaligneFest_ZH-CN8343066766_UHD.jpg&w=1000)今日图片: &nbsp;[玛琳湖，贾斯珀国家公园，艾伯塔省，加拿大 (© Andrey Popov/Getty Images)](https://www.bing.com/th?id=OHR.MaligneFest_ZH-CN8343066766_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.YellowstoneWolves_EN-US7105521535_UHD.jpg&w=1000)Today: [Two gray wolves, Yellowstone National Park, Wyoming (© John Morrison/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneWolves_EN-US7105521535_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PortugueseLibrary_EN-US7519268149_UHD.jpg&w=1000)Today: [Royal Portuguese Cabinet of Reading, Rio de Janeiro, Brazil (© Antonio Salaverry/Shutterstock)](https://www.bing.com/th?id=OHR.PortugueseLibrary_EN-US7519268149_UHD.jpg)
 <br><br/>
