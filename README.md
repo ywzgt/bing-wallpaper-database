@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_UHD.jpg&w=1000)今日图片: &nbsp;[库涅季采山城堡，波希米亚，捷克 (© Marek Saroch/Alamy)](https://www.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_UHD.jpg&w=1000)今日图片: &nbsp;[立石，埃夫伯里，威尔特郡，英格兰 (© George W Johnson/Getty Images)](https://www.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PondCypress_EN-US0123444779_UHD.jpg&w=1000)Today: [A grove of pond cypress trees with fall foliage, Georgia, USA (© Chris Moore/Getty Images)](https://www.bing.com/th?id=OHR.PondCypress_EN-US0123444779_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KuneticeCastle_EN-US9492527404_UHD.jpg&w=1000)Today: [Kunětická hora Castle, Bohemia, Czechia (© Marek Saroch/Alamy)](https://www.bing.com/th?id=OHR.KuneticeCastle_EN-US9492527404_UHD.jpg)
 <br><br/>
