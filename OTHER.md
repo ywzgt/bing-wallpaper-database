@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AutumnCranes_JA-JP2456396404_UHD.jpg&w=1000)今日の壁紙: &nbsp;[カナダヅル、ボスケ・デル・アパッチ国立野生動物保護区、ニューメキシコ州、アメリカ (© Terry St.Louis/Getty Images)](https://www.bing.com/th?id=OHR.AutumnCranes_JA-JP2456396404_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FrankfurtHalloween_JA-JP4785085446_UHD.jpg&w=1000)今日の壁紙: &nbsp;[聖バルトロメウス大聖堂、フランクフルト、ドイツ (© AlxeyPnferov/Getty Images)](https://www.bing.com/th?id=OHR.FrankfurtHalloween_JA-JP4785085446_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AutumnCranes_FR-FR2970535620_UHD.jpg&w=1000)Today: [Grues du Canada, réserve de Bosque del Apache, Nouveau-Mexique, États-Unis (© Terry St.Louis/Getty Images)](https://www.bing.com/th?id=OHR.AutumnCranes_FR-FR2970535620_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AutumnCranes_ES-ES8460518037_UHD.jpg&w=1000)Today: [Grullas canadienses, Refugio Nacional de Vida Silvestre Bosque del Apache, Nuevo Mexico, EUA (© Terry St.Louis/Getty Images)](https://www.bing.com/th?id=OHR.AutumnCranes_ES-ES8460518037_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AveburyStones_EN-GB5895980350_UHD.jpg&w=1000)Today: [Standing stones at Avebury in Wiltshire, England (© George W Johnson/Getty Images)](https://www.bing.com/th?id=OHR.AveburyStones_EN-GB5895980350_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AutumnCranes_EN-GB1528709848_UHD.jpg&w=1000)Today: [Sandhill cranes, Bosque del Apache National Wildlife Refuge, New Mexico, USA (© Terry St.Louis/Getty Images)](https://www.bing.com/th?id=OHR.AutumnCranes_EN-GB1528709848_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.AutumnCranes_IT-IT0637151336_UHD.jpg&w=1000)Today: [Gru canadesi, Bosque del Apache National Wildlife Refuge, New Mexico, USA (© Terry St.Louis/Getty Images)](https://www.bing.com/th?id=OHR.AutumnCranes_IT-IT0637151336_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AveburyStones_PT-BR9317811680_UHD.jpg&w=1000)Today: [Círculo de Pedras de Avebury, Wiltshire, Inglaterra (© George W Johnson/Getty Images)](https://www.bing.com/th?id=OHR.AveburyStones_PT-BR9317811680_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AutumnCranes_PT-BR8749482923_UHD.jpg&w=1000)Today: [Grous-canadenses, Refúgio Nacional de Vida Selvagem Bosque del Apache, Novo México, Estados Unidos (© Terry St.Louis/Getty Images)](https://www.bing.com/th?id=OHR.AutumnCranes_PT-BR8749482923_UHD.jpg)
 <br><br/>
