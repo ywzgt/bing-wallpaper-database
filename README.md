@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AutumnChina_ZH-CN7665959692_UHD.jpg&w=1000)今日图片: &nbsp;[五彩落羽杉间划船的人们，宣城，安徽省，中国 (© Jackal Pan/Getty Images)](https://www.bing.com/th?id=OHR.AutumnChina_ZH-CN7665959692_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.StileCrossing_ZH-CN9811465935_UHD.jpg&w=1000)今日图片: &nbsp;[石墙边的木制翻越梯，黑岩，湖区，英格兰 (© Alex Treadway/Getty Images)](https://www.bing.com/th?id=OHR.StileCrossing_ZH-CN9811465935_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.AlpineBraies_EN-US6636326357_UHD.jpg&w=1000)Today: [Lake Braies, Fanes‑Sennes‑Braies Nature Park, Dolomites, Italy (© leonid_tit/Getty Images)](https://www.bing.com/th?id=OHR.AlpineBraies_EN-US6636326357_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AutumnChina_EN-US0467722422_UHD.jpg&w=1000)Today: [People rowing among colorful bald cypress, Xuancheng, Anhui, China (© Jackal Pan/Getty Images)](https://www.bing.com/th?id=OHR.AutumnChina_EN-US0467722422_UHD.jpg)
 <br><br/>
