@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.DakotaBison_ZH-CN2302503868_UHD.jpg&w=1000)今日图片: &nbsp;[草原上的一头野牛，西奥多·罗斯福国家公园，北达科他州，美国 (© Tandem Stock/Adobe Stock)](https://www.bing.com/th?id=OHR.DakotaBison_ZH-CN2302503868_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DiwaliLamps_ZH-CN2462894749_UHD.jpg&w=1000)今日图片: &nbsp;[排灯节灯笼，孟买，马哈拉施特拉邦，印度 (© Dinodia Photo/Getty Images)](https://www.bing.com/th?id=OHR.DiwaliLamps_ZH-CN2462894749_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.PipiwaiTrail_EN-US0631882545_UHD.jpg&w=1000)Today: [Bamboo forest, Pīpīwai Trail, Haleakalā National Park, Maui, Hawaii (© MNStudio/Getty Images)](https://www.bing.com/th?id=OHR.PipiwaiTrail_EN-US0631882545_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DakotaBison_EN-US0710175615_UHD.jpg&w=1000)Today: [A bison in the grasslands of Theodore Roosevelt National Park, North Dakota (© Tandem Stock/Adobe Stock)](https://www.bing.com/th?id=OHR.DakotaBison_EN-US0710175615_UHD.jpg)
 <br><br/>
