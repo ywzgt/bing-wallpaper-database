@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.RoseIsland_ZH-CN6477140814_UHD.jpg&w=1000)今日图片: &nbsp;[玫瑰岛航拍图，巴哈马 (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.RoseIsland_ZH-CN6477140814_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Atlantica_ZH-CN6593995386_UHD.jpg&w=1000)今日图片: &nbsp;[大西洋森林，巴西 (© FG Trade/Getty Images)](https://www.bing.com/th?id=OHR.Atlantica_ZH-CN6593995386_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.TrianaSpain_EN-US0872031458_UHD.jpg&w=1000)Today: [Historic district of Triana, Seville, Spain (© Andrzej Rostek/Getty Images)](https://www.bing.com/th?id=OHR.TrianaSpain_EN-US0872031458_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RoseIsland_EN-US0952497192_UHD.jpg&w=1000)Today: [Aerial view of Rose Island, The Bahamas (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.RoseIsland_EN-US0952497192_UHD.jpg)
 <br><br/>
