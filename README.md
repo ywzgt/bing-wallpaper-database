@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.Atlantica_ZH-CN6593995386_UHD.jpg&w=1000)今日图片: &nbsp;[大西洋森林，巴西 (© FG Trade/Getty Images)](https://www.bing.com/th?id=OHR.Atlantica_ZH-CN6593995386_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NorthWindow_ZH-CN6734579353_UHD.jpg&w=1000)今日图片: &nbsp;[北窗，拱门国家公园，莫阿布，犹他州，美国 (© lightphoto/Getty Images)](https://www.bing.com/th?id=OHR.NorthWindow_ZH-CN6734579353_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RoseIsland_EN-US0952497192_UHD.jpg&w=1000)Today: [Aerial view of Rose Island, The Bahamas (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.RoseIsland_EN-US0952497192_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SunsetFlags_EN-US1046151448_UHD.jpg&w=1000)Today: [American flags in a public park in upstate New York (© Matt Champlin/Getty Images)](https://www.bing.com/th?id=OHR.SunsetFlags_EN-US1046151448_UHD.jpg)
 <br><br/>
