@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TrailCedars_ZH-CN2670680285_UHD.jpg&w=1000)今日图片: &nbsp;[雪松林步道，冰川国家公园，蒙大拿州，美国 (© DBushue Photography/Getty Images)](https://www.bing.com/th?id=OHR.TrailCedars_ZH-CN2670680285_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BarnOwlsUnite_ZH-CN2930153291_UHD.jpg&w=1000)今日图片: &nbsp;[一对仓鸮 (© Zahoor Salmi/Getty Images)](https://www.bing.com/th?id=OHR.BarnOwlsUnite_ZH-CN2930153291_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.GilaCliff_EN-US2139490645_UHD.jpg&w=1000)Today: [Gila Cliff Dwellings National Monument, New Mexico (© Chiara Salvadori/Getty Images)](https://www.bing.com/th?id=OHR.GilaCliff_EN-US2139490645_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TrailCedars_EN-US2240500417_UHD.jpg&w=1000)Today: [Trail of the Cedars, Glacier National Park, Montana (© DBushue Photography/Getty Images)](https://www.bing.com/th?id=OHR.TrailCedars_EN-US2240500417_UHD.jpg)
 <br><br/>
