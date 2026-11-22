@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.JustaHermitage_JA-JP5350379708_UHD.jpg&w=1000)今日の壁紙: &nbsp;[サンタ・フスタ礼拝堂、カンタブリア州、スペイン (© Tramont_ana/Getty Images)](https://www.bing.com/th?id=OHR.JustaHermitage_JA-JP5350379708_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FibonacciFern_JA-JP6039925060_UHD.jpg&w=1000)今日の壁紙: &nbsp;[シダの若芽 (© Reza Saputra/Getty Images)](https://www.bing.com/th?id=OHR.FibonacciFern_JA-JP6039925060_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.JustaHermitage_FR-FR2303317894_UHD.jpg&w=1000)Today: [Ermitage de Santa Justa, Cantabrie, Espagne (© Tramont_ana/Getty Images)](https://www.bing.com/th?id=OHR.JustaHermitage_FR-FR2303317894_UHD.jpg)
 <br><br/>
@@ -7,9 +7,9 @@
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.JustaHermitage_ES-ES5920553602_UHD.jpg&w=1000)Today: [Capilla y ermita de Santa Justa, Cantabria (© Tramont_ana/Getty Images)](https://www.bing.com/th?id=OHR.JustaHermitage_ES-ES5920553602_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RedNice_EN-GB3371662260_UHD.jpg&w=1000)Today: [Nice, Provence-Alpes-Côte d'Azur, France (© Siripong Kaewla-iad/Getty Images)](https://www.bing.com/th?id=OHR.RedNice_EN-GB3371662260_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JustaHermitage_EN-GB3758221368_UHD.jpg&w=1000)Today: [The chapel and hermitage of Santa Justa in Cantabria, Spain (© Tramont_ana/Getty Images)](https://www.bing.com/th?id=OHR.JustaHermitage_EN-GB3758221368_UHD.jpg)
 <br><br/>
 ![](https://www.bing.com/th?id=OHR.JustaHermitage_IT-IT2553496386_UHD.jpg&w=1000)Today: [Cappella e Eremo di Santa Justa, Cantabria, Spagna (© Tramont_ana/Getty Images)](https://www.bing.com/th?id=OHR.JustaHermitage_IT-IT2553496386_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RedNice_PT-BR5183216039_UHD.jpg&w=1000)Today: [Nice, Provença-Alpes-Costa Azul, França (© Siripong Kaewla-iad/Getty Images)](https://www.bing.com/th?id=OHR.RedNice_PT-BR5183216039_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JustaHermitage_PT-BR5712827780_UHD.jpg&w=1000)Today: [Ermida de Santa Justa, na Cantábria, Espanha (© Tramont_ana/Getty Images)](https://www.bing.com/th?id=OHR.JustaHermitage_PT-BR5712827780_UHD.jpg)
 <br><br/>

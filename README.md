@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.JustaHermitage_ZH-CN3751022621_UHD.jpg&w=1000)今日图片: &nbsp;[西班牙坎塔布里亚自治区的圣胡斯塔隐修院与小教堂 (© Tramont_ana/Getty Images)](https://www.bing.com/th?id=OHR.JustaHermitage_ZH-CN3751022621_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FibonacciFern_ZH-CN3882237848_UHD.jpg&w=1000)今日图片: &nbsp;[蕨类植物的卷曲嫩叶 (© Reza Saputra/Getty Images)](https://www.bing.com/th?id=OHR.FibonacciFern_ZH-CN3882237848_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.RedNice_EN-US9978351403_UHD.jpg&w=1000)Today: [Nice, Provence-Alpes-Côte d'Azur, France (© Siripong Kaewla-iad/Getty Images)](https://www.bing.com/th?id=OHR.RedNice_EN-US9978351403_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JustaHermitage_EN-US0130271816_UHD.jpg&w=1000)Today: [The chapel and hermitage of Santa Justa in Cantabria, Spain (© Tramont_ana/Getty Images)](https://www.bing.com/th?id=OHR.JustaHermitage_EN-US0130271816_UHD.jpg)
 <br><br/>
