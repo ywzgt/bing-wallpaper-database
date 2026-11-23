@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.FibonacciFern_ZH-CN3882237848_UHD.jpg&w=1000)今日图片: &nbsp;[蕨类植物的卷曲嫩叶 (© Reza Saputra/Getty Images)](https://www.bing.com/th?id=OHR.FibonacciFern_ZH-CN3882237848_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CairngormsSquirrel_ZH-CN0941302869_UHD.jpg&w=1000)今日图片: &nbsp;[红松鼠，凯恩戈姆斯国家公园，苏格兰高地 (© Scotland: The Big Picture/Minden Pictures)](https://www.bing.com/th?id=OHR.CairngormsSquirrel_ZH-CN0941302869_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.JustaHermitage_EN-US0130271816_UHD.jpg&w=1000)Today: [The chapel and hermitage of Santa Justa in Cantabria, Spain (© Tramont_ana/Getty Images)](https://www.bing.com/th?id=OHR.JustaHermitage_EN-US0130271816_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FibonacciFern_EN-US6307771770_UHD.jpg&w=1000)Today: [Fiddlehead fern (© Reza Saputra/Getty Images)](https://www.bing.com/th?id=OHR.FibonacciFern_EN-US6307771770_UHD.jpg)
 <br><br/>
