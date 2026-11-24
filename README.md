@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.CairngormsSquirrel_ZH-CN0941302869_UHD.jpg&w=1000)今日图片: &nbsp;[红松鼠，凯恩戈姆斯国家公园，苏格兰高地 (© Scotland: The Big Picture/Minden Pictures)](https://www.bing.com/th?id=OHR.CairngormsSquirrel_ZH-CN0941302869_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SunsetPoint_ZH-CN5737034685_UHD.jpg&w=1000)今日图片: &nbsp;[日落观景点，布莱斯峡谷国家公园，犹他州 (© Colin D. Young/Alamy)](https://www.bing.com/th?id=OHR.SunsetPoint_ZH-CN5737034685_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.FibonacciFern_EN-US6307771770_UHD.jpg&w=1000)Today: [Fiddlehead fern (© Reza Saputra/Getty Images)](https://www.bing.com/th?id=OHR.FibonacciFern_EN-US6307771770_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CairngormsSquirrel_EN-US7053432564_UHD.jpg&w=1000)Today: [Red squirrel in Cairngorms National Park, Highlands, Scotland (© Scotland: The Big Picture/Minden Pictures)](https://www.bing.com/th?id=OHR.CairngormsSquirrel_EN-US7053432564_UHD.jpg)
 <br><br/>
