@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SunsetPoint_ZH-CN5737034685_UHD.jpg&w=1000)今日图片: &nbsp;[日落观景点，布莱斯峡谷国家公园，犹他州 (© Colin D. Young/Alamy)](https://www.bing.com/th?id=OHR.SunsetPoint_ZH-CN5737034685_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RFHilo_ZH-CN5962114314_UHD.jpg&w=1000)今日图片: &nbsp;[怀卢库河上的彩虹瀑布，希洛市，夏威夷州，美国 (© Peter Unger/Getty Images)](https://www.bing.com/th?id=OHR.RFHilo_ZH-CN5962114314_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.CairngormsSquirrel_EN-US7053432564_UHD.jpg&w=1000)Today: [Red squirrel in Cairngorms National Park, Highlands, Scotland (© Scotland: The Big Picture/Minden Pictures)](https://www.bing.com/th?id=OHR.CairngormsSquirrel_EN-US7053432564_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SunsetPoint_EN-US0827880440_UHD.jpg&w=1000)Today: [Sunset Point, Bryce Canyon National Park, Utah (© Colin D. Young/Alamy)](https://www.bing.com/th?id=OHR.SunsetPoint_EN-US0827880440_UHD.jpg)
 <br><br/>
