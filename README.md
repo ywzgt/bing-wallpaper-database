@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.FaceCanyon_ZH-CN9505064248_UHD.jpg&w=1000)今日图片: &nbsp;[夕阳下的孤峰，鲍威尔湖脸峡谷，犹他州，美国 (© Jeff Foott/Minden)](https://www.bing.com/th?id=OHR.FaceCanyon_ZH-CN9505064248_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VltavaPrague_ZH-CN9898139716_UHD.jpg&w=1000)今日图片: &nbsp;[捷克布拉格老城区与伏尔塔瓦河 (© Lara_Uhryn/Getty Images)](https://www.bing.com/th?id=OHR.VltavaPrague_ZH-CN9898139716_UHD.jpg)
 <br><br/>
-![](https://www.bing.com/th?id=OHR.WildTom_EN-US1069249609_UHD.jpg&w=1000)Today: [Two wild tom turkeys (© davidsdodd/Getty Images)](https://www.bing.com/th?id=OHR.WildTom_EN-US1069249609_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FaceCanyon_EN-US6254374163_UHD.jpg&w=1000)Today: [Butte at sunset, Face Canyon, Lake Powell, Utah (© Jeff Foott/Minden)](https://www.bing.com/th?id=OHR.FaceCanyon_EN-US6254374163_UHD.jpg)
 <br><br/>
